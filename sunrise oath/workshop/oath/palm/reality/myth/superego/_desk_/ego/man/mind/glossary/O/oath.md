@@ -1,0 +1,1 @@
+I take a name, and give you one I had. You show a hand, and say a word of grace. Enlightenment—the end, and then a start.

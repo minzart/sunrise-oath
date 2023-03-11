@@ -1,0 +1,206 @@
+{
+  "main": {
+    "id": "ffa608a3d54d9b21",
+    "type": "split",
+    "children": [
+      {
+        "id": "11ab6ff7cc498af1",
+        "type": "tabs",
+        "children": [
+          {
+            "id": "7f24c860978dacb9",
+            "type": "leaf",
+            "state": {
+              "type": "markdown",
+              "state": {
+                "file": "sunrise oath/workshop/oath/palm/reality/myth/superego/_desk_/ego/man/mind/_desk_/journal/2023-03-10.md",
+                "mode": "source",
+                "source": false
+              }
+            }
+          },
+          {
+            "id": "50f7194c5c5ee3c3",
+            "type": "leaf",
+            "state": {
+              "type": "markdown",
+              "state": {
+                "file": "sunrise oath/welcome/home.md",
+                "mode": "source",
+                "source": false
+              }
+            }
+          }
+        ],
+        "currentTab": 1
+      }
+    ],
+    "direction": "vertical"
+  },
+  "left": {
+    "id": "f2cf0bc04ca09218",
+    "type": "split",
+    "children": [
+      {
+        "id": "d228fe63c9e60cb9",
+        "type": "tabs",
+        "children": [
+          {
+            "id": "63e5950b4619ae58",
+            "type": "leaf",
+            "state": {
+              "type": "file-explorer",
+              "state": {
+                "sortOrder": "alphabetical"
+              }
+            }
+          },
+          {
+            "id": "842f013babab0f1f",
+            "type": "leaf",
+            "state": {
+              "type": "search",
+              "state": {
+                "query": "",
+                "matchingCase": false,
+                "explainSearch": false,
+                "collapseAll": false,
+                "extraContext": false,
+                "sortOrder": "alphabetical"
+              }
+            }
+          },
+          {
+            "id": "be5e04f6e36015df",
+            "type": "leaf",
+            "state": {
+              "type": "starred",
+              "state": {}
+            }
+          }
+        ]
+      }
+    ],
+    "direction": "horizontal",
+    "width": 389.5
+  },
+  "right": {
+    "id": "6b9bf3f5d8a57fca",
+    "type": "split",
+    "children": [
+      {
+        "id": "63411542e68de902",
+        "type": "tabs",
+        "children": [
+          {
+            "id": "a53a70e9f6cfc5f8",
+            "type": "leaf",
+            "state": {
+              "type": "backlink",
+              "state": {
+                "file": "sunrise oath/welcome/home.md",
+                "collapseAll": true,
+                "extraContext": false,
+                "sortOrder": "alphabetical",
+                "showSearch": false,
+                "searchQuery": "",
+                "backlinkCollapsed": false,
+                "unlinkedCollapsed": true
+              }
+            }
+          },
+          {
+            "id": "31e79f0b7b29b981",
+            "type": "leaf",
+            "state": {
+              "type": "outgoing-link",
+              "state": {
+                "file": "sunrise oath/welcome/home.md",
+                "linksCollapsed": false,
+                "unlinkedCollapsed": true
+              }
+            }
+          },
+          {
+            "id": "25d14d9f7d9a02b5",
+            "type": "leaf",
+            "state": {
+              "type": "tag",
+              "state": {
+                "sortOrder": "frequency",
+                "useHierarchy": true
+              }
+            }
+          },
+          {
+            "id": "f161acf15afd3159",
+            "type": "leaf",
+            "state": {
+              "type": "outline",
+              "state": {
+                "file": "sunrise oath/welcome/home.md"
+              }
+            }
+          }
+        ],
+        "currentTab": 1
+      }
+    ],
+    "direction": "horizontal",
+    "width": 200
+  },
+  "left-ribbon": {
+    "hiddenItems": {
+      "switcher:Open quick switcher": false,
+      "graph:Open graph view": false,
+      "canvas:Create new canvas": false,
+      "daily-notes:Open today's daily note": false,
+      "templates:Insert template": false,
+      "command-palette:Open command palette": false
+    }
+  },
+  "active": "50f7194c5c5ee3c3",
+  "lastOpenFiles": [
+    "sunrise oath/workshop/oath/palm/reality/myth/superego/_desk_/ego/man/mind/_desk_/journal/2023-03-10.md",
+    "sunrise oath/welcome/home.md",
+    "netlify.toml",
+    "sunrise oath/wallet.md",
+    "_inbox_/scratch.canvas",
+    "carrd.md",
+    "_inbox_",
+    "sunrise oath/workshop/oath/palm/reality/myth/superego/_desk_/ego/man/mind/glossary/E/epistemology.md",
+    "sunrise oath/_inbox_",
+    "sunrise oath/site",
+    "SUNRISE OATH/Untitled",
+    "sunrise oath/workshop/mission/mission.md",
+    "sunrise oath/workshop/oath/palm/reality/myth/superego/_desk_/ego/man/body/_inbox_/scratch.canvas",
+    "sunrise oath/workshop/mission",
+    "sunrise oath/twitter",
+    "sunrise oath",
+    "sunrise oath/workshop/_inbox_",
+    "sunrise oath/workshop",
+    "sunrise oath/workshop/oath/palm/reality/_inbox_/scratch.canvas",
+    "sunrise oath/workshop/oath/palm/reality/myth/superego/_desk_/ego/man/mind/_desk_/duelity/rules.md",
+    "sunrise oath/workshop/oath/palm/reality/myth/superego/_desk_/ego/man/mind/glossary/S/system/system.md",
+    "sunrise oath/workshop/oath/palm/reality/myth/superego/_desk_/ego/man/mind/archive/malfoy on nietzsche.md",
+    "sunrise oath/workshop/oath/palm/reality/myth/superego/_desk_/ego/man/mind/_desk_/duelity/mode/format/format.md",
+    "sunrise oath/workshop/oath/palm/reality/myth/superego/_desk_/ego/man/mind/_desk_/world without fairies/wind at dawn/couplet 4/ii. kingdom/b. gone with night/gale saw dawn.md",
+    "sunrise oath/workshop/oath/palm/reality/myth/superego/_desk_/ego/man/mind/_desk_/world without fairies/wind at dawn/couplet 1/i. the wind went out/to meet with the sun.md",
+    "desk/world without fairies/wind at dawn/couplet 1/i. the wind went out/i. the wind went out.md",
+    "sunrise oath/workshop/oath/palm/reality/myth/superego/_desk_/ego/man/mind/_desk_/world without fairies/wind at dawn/couplet 3/ii. in the hour/the stars must die/stars must die.md",
+    "sunrise oath/workshop/oath/palm/reality/myth/superego/_desk_/ego/man/mind/archive/hex_template_200_10.png",
+    "sunrise oath/workshop/oath/palm/reality/myth/superego/_desk_/ego/man/mind/canvas/index.canvas",
+    "sunrise oath/workshop/oath/palm/reality/myth/superego/_desk_/ego/man/mind/_desk_/duelity/traditionally.md",
+    "sunrise oath/workshop/oath/palm/reality/myth/superego/_desk_/ego/man/mind/_desk_/world without fairies/swiftsails/swiftsails.md",
+    "sunrise oath/workshop/oath/palm/reality/myth/superego/_desk_/ego/man/mind/_desk_/duelity/duelity.md",
+    "sunrise oath/workshop/oath/palm/reality/myth/superego/_desk_/ego/man/mind/glossary/N/name.md",
+    "sunrise oath/workshop/oath/palm/reality/myth/superego/_desk_/ego/man/mind/_inbox_/inbox.md",
+    "Untitled 1.md",
+    "sunrise oath/workshop/oath/palm/reality/myth/superego/_desk_/ego/man/mind/_desk_/journal/2023-02-08.md",
+    "sunrise oath/workshop/oath/palm/reality/myth/superego/_desk_/ego/man/mind/_desk_/journal/2023-02-03.md",
+    "sunrise oath/workshop/oath/palm/reality/myth/superego/_desk_/ego/man/mind/glossary/E/eagle.md",
+    "sunrise oath/workshop/oath/palm/reality/myth/superego/_desk_/ego/man/mind/glossary/L/love.md",
+    "sunrise oath/workshop/oath/palm/reality/myth/superego/_desk_/ego/man/mind/glossary/A/atlas.md",
+    "sunrise oath/workshop/oath/palm/reality/myth/superego/_desk_/ego/man/mind/glossary/E/enter.md"
+  ]
+}

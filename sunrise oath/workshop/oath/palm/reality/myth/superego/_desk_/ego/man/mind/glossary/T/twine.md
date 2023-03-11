@@ -1,0 +1,1 @@
+[[hyperlink|Hyperlink]] engine, and a [[rope]] to hang myself with.
