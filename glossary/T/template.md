@@ -1,0 +1,1 @@
+![[hex_template_200_10.png]]

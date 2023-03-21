@@ -1,2 +1,0 @@
-
-Window into human industry.

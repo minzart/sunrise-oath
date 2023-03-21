@@ -1,2 +1,0 @@
-**Traditionally**, time-old rituals have been forgotten. May everything here be lost to the sands, should they no longer serve the game.
-

@@ -1,1 +1,0 @@
-The edge of everything within the [[frame]], all that which is contained within.

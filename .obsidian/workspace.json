@@ -13,7 +13,7 @@
             "state": {
               "type": "markdown",
               "state": {
-                "file": "sunrise oath/welcome/home.md",
+                "file": "home.md",
                 "mode": "source",
                 "backlinks": true,
                 "source": false
@@ -86,7 +86,7 @@
             "state": {
               "type": "backlink",
               "state": {
-                "file": "sunrise oath/welcome/home.md",
+                "file": "home.md",
                 "collapseAll": true,
                 "extraContext": false,
                 "sortOrder": "alphabetical",
@@ -103,7 +103,7 @@
             "state": {
               "type": "outgoing-link",
               "state": {
-                "file": "sunrise oath/welcome/home.md",
+                "file": "home.md",
                 "linksCollapsed": false,
                 "unlinkedCollapsed": true
               }
@@ -126,7 +126,7 @@
             "state": {
               "type": "outline",
               "state": {
-                "file": "sunrise oath/welcome/home.md"
+                "file": "home.md"
               }
             }
           }
@@ -151,49 +151,48 @@
   },
   "active": "257ffd3ee5b4862e",
   "lastOpenFiles": [
-    "_inbox_/inbox.md",
-    "sunrise oath/wallet.md",
-    "sunrise oath/mission.md",
-    "sunrise oath/workshop/duality/rules.md",
-    "template.md",
-    "sunrise oath/workshop/duality/duality.md",
+    "wallet.md",
+    "mission.md",
+    "glossary/R/rules.md",
+    "glossary/T/template.md",
+    "archive/solo/Cartes francais.pdf",
+    "rpg/solo/[you name here) and the argonauts French/backs francais.pdf",
+    "rpg/hotel/1.md",
+    "glossary/H/hotel.md",
+    "rpg/solo/[you name here) and the argonauts French",
+    "archive/solo/[you_name_here)_and_the_argonauts_French.zip",
+    "rpg/solo/[you_name_here)_and_the_argonauts_French",
+    "archive/solo/Princess with a Cursed Sword.pdf",
+    "archive/solo/TheTeaShelf.pdf",
+    "archive/solo/infinidungeon.pdf",
+    "archive/solo/DungeonYear_A4_Landscape.pdf",
+    "archive/solo/dtrpg-2023-03-18_11-28am.zip",
+    "_inbox_/rpg/hotel/0.md",
+    "archive/old port girl.jpg",
+    "archive/old port girl watercolor.jpg",
+    "glossary/T/traditionally.md",
+    "glossary/D/duality.md",
+    "duality/mode/format/format.md",
+    "archive/hex_template_200_10.png",
+    "home.md",
+    "glossary/P/player.md",
+    "glossary/A/adventure.md",
+    "glossary/A/admit.md",
+    "inbox/inbox.md",
+    "glossary/M/margin.md",
+    "instructions.md",
     "sunrise oath/workshop/_inbox_/scratch.canvas",
     "sunrise oath/workshop/_desk_ 1/world without fairies/swiftsails/swiftsails.md",
-    "sunrise oath/workshop/duality/traditionally.md",
-    "sunrise oath/workshop/duality/mode/format/format.md",
     "sunrise oath/workshop/_desk_/ego/man/mind/pocket/wallet/test.md",
-    "sunrise oath/glossary/F/floor.md",
-    "sunrise oath/workshop/_desk_/journal/2023-03-21.md",
-    "_archive_/desktop.ini",
-    "_archive_",
-    "sunrise oath/workshop/_desk_/journal/2023-03-19.md",
-    "sunrise oath/_inbox_/admit.md",
-    "muse",
-    "sunrise oath/workshop/_desk_/journal/2023-02-15.md",
-    "sunrise oath/glossary/T/twine.md",
-    "_inbox_/rpg/solo/[you_name_here)_and_the_argonauts_French/[you name here) and the argonauts French/Cartes francais.pdf",
-    "_inbox_/rpg/solo/[you_name_here)_and_the_argonauts_French/[you name here) and the argonauts French/backs francais.pdf",
-    "_inbox_/rpg/solo/[you_name_here)_and_the_argonauts_French/[you name here) and the argonauts French",
-    "_inbox_/rpg/solo/[you_name_here)_and_the_argonauts_French",
-    "_inbox_/rpg/solo/[you_name_here)_and_the_argonauts_French.zip",
-    "_inbox_/rpg/solo/Unconfirmed 485532.crdownload",
-    "_inbox_/rpg/solo/dtrpg-2023-03-18_11-28am.zip",
-    "_inbox_/rpg/hotel/0.md",
-    "sunrise oath/_inbox_/player.md",
-    "_archive_/old port girl watercolor.jpg",
-    "_archive_/old port girl.jpg",
+    "glossary/F/floor.md",
+    "journal/2023-03-21.md",
+    "journal/2023-03-19.md",
+    "journal/2023-02-15.md",
+    "glossary/T/twine.md",
     "_inbox_/rpg/hotel/1.md",
-    "_inbox_/rpg/hotel/characters/I.md",
-    "sunrise oath/workshop/_desk_/journal/2023-03-18.md",
-    "_archive_/margin.md",
-    "sunrise oath/glossary/J/journal.md",
-    "sunrise oath/glossary/D/days.md",
-    "sunrise oath/workshop/_desk_/journal/2023-03-17.md",
-    "sunrise oath/workshop/_desk_/journal/2023-03-15.md",
     "Pasted image 20230311224952.png",
-    "_inbox_/scratch.canvas",
+    "inbox/scratch.canvas",
     "sunrise oath/workshop/_desk_/ego/man/body/_inbox_/scratch.canvas",
-    "_archive_/hex_template_200_10.png",
     "sunrise oath/workshop/_desk_/ego/man/mind/canvas/index.canvas"
   ]
 }
