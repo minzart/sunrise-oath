@@ -1,1 +1,0 @@
-Everyone works together, suffers together, sins together, dies together.

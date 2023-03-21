@@ -1,1 +1,0 @@
-[[record|Record]] of [[place]], [[time]], and [[mind]].
