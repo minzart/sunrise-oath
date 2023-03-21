@@ -1,1 +1,0 @@
-Use the sidebar to pick apart my second brain.

@@ -11,13 +11,8 @@
             "id": "257ffd3ee5b4862e",
             "type": "leaf",
             "state": {
-              "type": "markdown",
-              "state": {
-                "file": "home.md",
-                "mode": "source",
-                "backlinks": true,
-                "source": false
-              }
+              "type": "empty",
+              "state": {}
             }
           }
         ]
@@ -86,7 +81,6 @@
             "state": {
               "type": "backlink",
               "state": {
-                "file": "home.md",
                 "collapseAll": true,
                 "extraContext": false,
                 "sortOrder": "alphabetical",
@@ -103,7 +97,6 @@
             "state": {
               "type": "outgoing-link",
               "state": {
-                "file": "home.md",
                 "linksCollapsed": false,
                 "unlinkedCollapsed": true
               }
@@ -125,9 +118,7 @@
             "type": "leaf",
             "state": {
               "type": "outline",
-              "state": {
-                "file": "home.md"
-              }
+              "state": {}
             }
           }
         ],
@@ -149,10 +140,12 @@
       "random-note:Open random note": false
     }
   },
-  "active": "257ffd3ee5b4862e",
+  "active": "63e5950b4619ae58",
   "lastOpenFiles": [
-    "wallet.md",
-    "mission.md",
+    "the wind at dawn/couplet 1/i. the wind went out/to meet with the sun.md",
+    "glossary/H/home.md",
+    "glossary/W/wallet.md",
+    "glossary/M/mission.md",
     "glossary/R/rules.md",
     "glossary/T/template.md",
     "archive/solo/Cartes francais.pdf",
@@ -174,7 +167,6 @@
     "glossary/D/duality.md",
     "duality/mode/format/format.md",
     "archive/hex_template_200_10.png",
-    "home.md",
     "glossary/P/player.md",
     "glossary/A/adventure.md",
     "glossary/A/admit.md",
