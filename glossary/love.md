@@ -1,3 +1,7 @@
+Is that how it was always [[meant]] to be? So [[halting]], [[soft]], and [[burning]]? Was that the [[perfect]] first I could not [[keep]], the one I see [[anew]] in every [[dream]]? I looked [[away]]. “We [[should]] [[stop]].”
+
+***
+
 She said she never learned an instrument. Not one of music, anyway. Her mind and eye saw everything as money, and my piano was expensive. “You have to close the lid,” she said again. “The dust will settle in the cracks.”  
   
 I kept my silence, as I always did. There was no thought I had not spared, and so to speak is to encourage her and all her ways of subterfuge.  

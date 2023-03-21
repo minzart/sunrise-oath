@@ -1,0 +1,1 @@
+A day before she left, marking a sudden end, was the one time she stood us up. Charlotte and I mused on [[epistemology]] over Alain’s coffee, and [[parted]] on the hour.

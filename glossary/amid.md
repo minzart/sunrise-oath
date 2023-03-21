@@ -1,0 +1,1 @@
+In the [[thick]] of [[things]], a [[young]] [[spirit]] [[seeks]] the [[company]] of [[matter]] and [[mind]].

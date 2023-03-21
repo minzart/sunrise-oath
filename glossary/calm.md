@@ -1,0 +1,1 @@
+[[the|The]] [[water]] [[on]] [[a]] [[clear]] [[day]], [[no]] [[breeze]] [[to]] [[crash]] [[against]] [[the]] [[polished]] [[surface]], [[the]] [[mirror]] [[that]] [[rippled]] [[at]] [[a]] [[halting]] [[touch]].

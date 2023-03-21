@@ -1,0 +1,1 @@
+Tribe of Levi. Stood too close to a burning bush, tripped on tryptamines. His ten [[commandments]] are the archetype.

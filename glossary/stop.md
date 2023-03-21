@@ -1,0 +1,1 @@
+“[[Please|please]].” [[Her|her]] [[smile]], [[seductive]] [[and]] [[mature]]; [[her]] [[eyes]], [[when]] [[were]] [[they]] [[ever]] [[so]] [[young]]? [[Those|those]] [[brown]] [[gems]], [[free]] [[of]] [[color]] [[contacts]], [[more]] [[than]] [[the]] [[false]] [[blue]] [[jewels]] [[I|i]] [[knew]], [[revealed]] [[a]] [[maiden]] [[pure]] [[and]] [[innocent]].

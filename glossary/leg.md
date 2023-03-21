@@ -1,0 +1,1 @@
+[[in|In]] [[middle]] [[school]], [[the]] [[engineer]] [[invited]] [[me]] [[to]] [[a]] [[birthday]] [[party]]. [[she|She]] [[greeted]] [[me]] [[at]] [[the]] [[door]], [[wearing]] [[a]] [[satin]] [[dress]] [[that]] [[showed]] [[a]] [[glimpse]] [[of]] [[her]] [[thigh]] [[in]] [[pantyhose]].

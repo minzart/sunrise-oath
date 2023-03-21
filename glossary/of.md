@@ -1,0 +1,1 @@
+[[to|To]] [[be]] [[joined]], [[and]] [[possessed]].

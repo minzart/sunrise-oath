@@ -1,0 +1,1 @@
+[[By|by]] [[way]] [[of]] [[one]] [[phenomenon]], [[another]] [[is]]. [[Cause|cause]] [[and]] [[effect]].

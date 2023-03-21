@@ -1,3 +1,7 @@
+For four months in [[montreal|Montreal]], I had the same [[dream]]. [[Seven|seven]] [[years]] [[ago]], [[on]] [[the]] [[saint|Saint]] [[lawrence|Lawrence]] [[river|River]], I danced to Celine Dion's ‘Nothing Broken But My Heart’ with an [[older]] [[teen]], a [[girl]] in a [[blue]] [[dress]] that [[seemed]] [[white]] in the [[dim]] of [[twilight]]. What I know best of the deck of the ship is the smell of [[strawberry]] [[shampoo]], of [[vanilla]] [[perfume]]. I held her close as the [[wind]] picked up.
+
+***
+
 The sun was gone, too far to seek at the late hour on Gatestone. But I went looking, putting on my jacket and stepping out, ignoring Eroica as she called out: “Where are you going?”
 
 At the playground by the Catholic school, Sol Maris was there. She looked up from a loose printed page, wrinkled from its tribulations in her small backpack, and smiled as I took the swing next to hers.

@@ -1,5 +1,9 @@
 {
   "trashOption": "local",
   "promptDelete": false,
-  "alwaysUpdateLinks": true
+  "alwaysUpdateLinks": false,
+  "newFileLocation": "folder",
+  "newFileFolderPath": "glossary",
+  "attachmentFolderPath": "archive",
+  "showInlineTitle": false
 }

@@ -2,7 +2,7 @@
 1. [[experiment|Experimented]], [[and]] [[create|created]]. 
 2. [[know|Know]] [[this]], [[you]] [[know]] [[who]] [[robs]] [[you]] [[of]] [[sight]].
 
-There once was an older girl, a younger woman, who saved me.
+There once was an [[older]] [[girl]], a [[younger]] [[woman]], who [[saved]] [[me]].
 
 On her good advice, I quit my job. I gave my notice at summer’s end, and Alain set me free from Génoise et Thé. “You can’t be kept, _mon gars_.” He patted my shoulder, and we shook hands, a parting between men. Waiting outside, Selene took off her sunglasses and dabbed her eyes.
 

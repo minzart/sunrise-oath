@@ -1,0 +1,1 @@
+[[The|the]] [[problem]], [[as]] [[stated]] [[by]] [[computer]] [[scientist]] [[Martin|martin]] [[Davis|davis]], [[is]] [[a]] [[seed]] [[of]] [[doubt]] [[that]] [[we]] [[may]] [[ever]] [[know]].

@@ -1,0 +1,1 @@
+[[The|the]] [[truth]] [[took]] [[the]] [[form]] [[of]] [[a]] [[clever]] [[illusion]].

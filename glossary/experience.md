@@ -1,0 +1,1 @@
+[[thought|Thought]], a [[tangled]] [[thing]], a [[reverie]] [[without]] a [[legacy]]. A [[storm]] of [[calm]] [[amid]] the [[roaring]] [[sea]].

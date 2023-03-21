@@ -1,0 +1,1 @@
+The last one of all fulfills the [[farce]], and trumps the [[tragedy]]. I took five friends with me to act a [[play]].

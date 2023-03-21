@@ -1,0 +1,1 @@
+[[She|she]] [[wore]] [[a]] [[gown]] [[too]] [[formal]] [[for]] [[casual]], [[too]] [[casual]] [[for]] [[formal]]. [[The|the]] [[skirt]] [[rippled]] [[in]] [[the]] [[wind]] [[at]] [[dawn]], [[upon]] [[our]] [[reunion]] [[at]] [[Alexandra|alexandra]] [[Basin|basin]], [[Old|old]] [[Port|port]] [[of]] [[montreal|montreal]].

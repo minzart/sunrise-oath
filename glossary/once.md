@@ -1,0 +1,1 @@
+The [[first]], the [[place]] [[before]], the [[pressing]] [[moment]].
