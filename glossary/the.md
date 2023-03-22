@@ -1,1 +1,1 @@
-[[Not|not]] [[simply]] [[anything]], [[but]] [[one]] [[special]] [[thing]].
+[[not|Not]] [[simply]] [[anything]], [[but]] [[one]] [[special]] [[thing]].

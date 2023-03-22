@@ -1,4 +1,4 @@
-For four months in [[montreal|Montreal]], I had the same [[dream]]. [[Seven|seven]] [[years]] [[ago]], [[on]] [[the]] [[saint|Saint]] [[lawrence|Lawrence]] [[river|River]], I danced to Celine Dion's ‘Nothing Broken But My Heart’ with an [[older]] [[teen]], a [[girl]] in a [[blue]] [[dress]] that [[seemed]] [[white]] in the [[dim]] of [[twilight]]. What I know best of the deck of the ship is the smell of [[strawberry]] [[shampoo]], of [[vanilla]] [[perfume]]. I held her close as the [[wind]] picked up.
+For four months in [[montreal|Montreal]], I had the same [[dream]]. [[Seven|seven]] [[years]] [[ago]], [[on]] [[the]] [[saint|Saint]] [[lawrence|Lawrence]] [[river|River]], I danced to Celine Dion's ‘Nothing Broken But My Heart’ with [[an]] [[older]] [[teen]], a [[girl]] in a [[blue]] [[dress]] that [[seemed]] [[white]] in the [[dim]] of [[twilight]]. What I know best of the deck of the ship is the smell of [[strawberry]] [[shampoo]], of [[vanilla]] [[perfume]]. I held her close as the [[wind]] picked up.
 
 ***
 

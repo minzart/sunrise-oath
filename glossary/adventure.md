@@ -46,7 +46,7 @@ I share a meal with the male elf, a soup with his fresh hunt. I learn that his n
 
 I know not what to say, and change direction. "What is so tragic of a short life?"
 
-"Death itself," he says. "Death, the abyss of evil, into which all that is good escapes. Creation, in all its glory, fades into the darkness of a reaper's overtilled domain. Is death not evil to you, an ill that looms over all other?"
+"Death itself," he says. "Death, the abyss of evil, into which all that is good escapes. Creation, in all its glory, fades into the darkness of a reaper's overtilled domain. Is death not evil to you, [[an]] ill that looms over all other?"
 
 "Death looms over evil too," I challenge. "All that is evil also falls into oblivion."
 
@@ -58,7 +58,7 @@ He nods. "Yet it is evil we forget, and good we remember. And so we wish for dea
 
 "Elves too?" I ask.
 
-"Elves most of all." He stands, stretching his legs, and retrieves an old tome from a bare shelf. On its cover you see: *Le Mort d'Arthur*. "Know you of the prophet Merlin?"
+"Elves most of all." He stands, stretching his legs, and retrieves [[an]] old tome from a bare shelf. On its cover you see: *Le Mort d'Arthur*. "Know you of the prophet Merlin?"
 
 "A human?" I ask.
 
@@ -76,7 +76,7 @@ He nods. "Yet it is evil we forget, and good we remember. And so we wish for dea
 
 "They know of stories," he says, "but they do not *have* them. In what sense is a story ours? A story is never ours, no more than a fact. Yet they have predicted the future, and the end times. This, we must all now [[admit]]."
 
-Changing subjects: "Would an elven woman find me agreeable?"
+Changing subjects: "Would [[an]] elven woman find me agreeable?"
 
 "Even better," he says. "Brutish. As they prefer it."
 

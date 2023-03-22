@@ -1,6 +1,6 @@
 How should a story start? A hidden truth, beyond the comprehension of a small mind like mine, may well be treated as a fairy tale.
 
-[[player|I]] find my way to a hotel with infinite floors. Every floor is a single room, every room is a strange land, and every visitor is a stranger to me. Yet, I seem to remember each one from a past life.
+[[player|I]] find my way to a hotel with infinite floors. [[Every]] floor is a single room, [[every]] room is a strange land, and [[every]] visitor is a stranger to me. Yet, I seem to remember each one from a past life.
 
 Entering the lobby, a concierge looks at me with severe eyes, blue regards that soften at my sight. “You’re here, mon gars.” So personal, yet so unfamiliar. “Come with me. I shall show you to the elevator.”
 
@@ -26,7 +26,7 @@ I read his neat handwriting:
 
 “Do I have my own room?” I ask.
 
-“On every floor,” he replies. “You shall have a bed, and amenities, and a roommate. Everyone is expecting you, and everyone has their advice on where you might explore next.” He reaches in his pocket again, and pulls out two basic lands. “Ever seen Magic cards?”
+“On [[every]] floor,” he replies. “You shall have a bed, and amenities, and a roommate. Everyone is expecting you, and everyone has their advice on where you might explore next.” He reaches in his pocket again, and pulls out two basic lands. “Ever seen Magic cards?”
 
 “No,” I answer, though I am not so sure. “What does it do?”
 
@@ -46,7 +46,7 @@ I read his neat handwriting:
 
 “Players roll dice in Magic?” I ask.
 
-“The joke sets do everything these days,” he says. “Anyway, you have no cards in hand or library. Go ahead and add some if you want. But you may also proceed without them, and simply use an online database like Gatherer if you need to generate or find a card.”
+“The joke sets do everything these days,” he says. “Anyway, you have no cards in hand or library. Go ahead and add some if you want. But you may also proceed without them, and simply use [[an]] online database like Gatherer if you need to generate or find a card.”
 
 I nod, and do as I wish.
 
@@ -58,7 +58,7 @@ I nod, and do as I wish.
 
 I gulp. “Who’s that?”
 
-“You‘ll see,” he says, and the elevator stops. I notice that the floor number is the exact same as the sum of all my d20 values, minus the lowest value of the d6 in my wallet. “Since this is a self-journaling adventure, you will have to decide what happens next. Get your pen and paper ready! Remember: d20 are skill checks and mana, d6 are items and money.”
+“You‘ll see,” he says, and the elevator stops. I notice that the floor number is the exact same as the sum of all my d20 values, minus the lowest value of the d6 in my wallet. “Since this is a self-journaling [[adventure]], you will have to decide what happens next. Get your pen and paper ready! Remember: d20 are skill checks and mana, d6 are items and money.”
 
 > Proceed to the page with the next floor number.
 

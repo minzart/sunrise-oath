@@ -1,9 +1,6 @@
-***
 # Objective
 
 Before the game, players set up cards and a hexagonal grid that both use this [[template]].
-
-
 
 # Subjective
 

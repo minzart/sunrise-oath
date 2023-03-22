@@ -1,0 +1,1 @@
+Too deep a [[question]] for a Wednesday at 1am.

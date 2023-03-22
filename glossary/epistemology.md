@@ -2,7 +2,7 @@
 1. [[experiment|Experimented]], [[and]] [[create|created]]. 
 2. [[know|Know]] [[this]], [[you]] [[know]] [[who]] [[robs]] [[you]] [[of]] [[sight]].
 
-There once was an [[older]] [[girl]], a [[younger]] [[woman]], who [[saved]] [[me]].
+There once was [[an]] [[older]] [[girl]], a [[younger]] [[woman]], who [[saved]] [[me]].
 
 On her good advice, I quit my job. I gave my notice at summer’s end, and Alain set me free from Génoise et Thé. “You can’t be kept, _mon gars_.” He patted my shoulder, and we shook hands, a parting between men. Waiting outside, Selene took off her sunglasses and dabbed her eyes.
 
@@ -22,7 +22,7 @@ So terrifying were the answers, I should never fall to sleep with a drop of her 
 
 ---
 
-A day before she left, marking a sudden end, was the one time she stood us up. Charlotte and I mused on epistemology over Alain’s coffee, and parted on the hour.
+A day before she left, marking a sudden end, was the one time she stood us up. Charlotte and I mused on epistemology over Alain’s coffee, and [[parted]] on the hour.
 
 ![](https://sunriseoath.files.wordpress.com/2023/01/bg-gnt-day-1.webp?w=1024)
 
@@ -46,7 +46,7 @@ I cleared my throat, and tried — failed — to pull away. “You’re acting o
 
 I paid with her card, and the tall wanderer leaned on my shoulder. We hobbled to my _un et demi_, tidy as I left it. She twirled, and kicked off her Converse sneakers. “Home, Gale Jones. Let us be merry!” A cackle bubbled, escaping her beautiful wide mouth. “The night is young.”
 
-I held her, inches from an edge. “Let’s calm down. Come, sit.”
+I held her, inches from [[an]] edge. “Let’s calm down. Come, sit.”
 
 Her embrace threw me off balance. On my bed, collapsed and tangled with me, her whisper betrayed: “Thanks, but no thanks.”
 
@@ -56,7 +56,7 @@ She was on top, captivating me with frost and fire. She held her ponytail in dis
 
 “It all crashes down.”
 
-A tug and a flick — like that, her hair tumbled. Bleached strands framed the milk-rose mask, the royal portrait leaning in. I stared at dark roots, short lashes, perfect teeth.
+A tug and a flick — like that, her hair [[tumbled]]. Bleached strands framed the milk-rose mask, the royal portrait leaning in. I stared at dark roots, short lashes, perfect teeth.
 
 “My word to your word, my heart to your heart, my lips . . .”
 
@@ -66,7 +66,7 @@ A shy kiss, a brush.
 
 ![](https://sunriseoath.files.wordpress.com/2023/01/cg-6.png?w=1024)
 
-Is that how it was always meant to be? So halting, soft, and burning? Was that the perfect first I could not keep, the one I see anew in every dream? I looked away. “We should stop.”
+Is that how it was always meant to be? So halting, soft, and [[burning]]? Was that the perfect first I could not keep, the one I see anew in [[every]] dream? I looked away. “We should stop.”
 
 “Should we?” She sounded sure, yet her legs quivered as I thought of _Bambi_, of fawn and doe, of Louise. I was aroused, and awake.
 

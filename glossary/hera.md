@@ -1,1 +1,1 @@
-Why did I ever fail you?
+[[why|Why]] [[did]] [[I]] [[ever]] [[fail]] [[you]]?

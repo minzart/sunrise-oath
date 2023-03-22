@@ -1,0 +1,1 @@
+The [[artist|artist’s]] [[favorite]] [[word]], or so I loved to say. [[new|New]] [[eras]], [[better]] [[slogans]].

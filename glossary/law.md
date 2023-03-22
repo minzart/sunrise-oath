@@ -123,11 +123,11 @@ For each loss, a player's opponent loses 1 life at the start of the game. For ea
 
 ### Draft
 
-The draft is conducted at the start of an event. One card at a time, from the pool with fewest losses to the pool with the most. Tiebreaker order: pool with more wins, player with lower lifetime losses, player with higher lifetime wins.
+The draft is conducted at the start of [[an]] event. One card at a time, from the pool with fewest losses to the pool with the most. Tiebreaker order: pool with more wins, player with lower lifetime losses, player with higher lifetime wins.
 
 Players may vote to retire cards from the cube. If the draft has over three hundred and sixty cards (the number of cards in a cube), no cards may be added. 
 
-Players retain only up to thirty cards in their pool at the end of an event. The rest of the cards are placed in a draft for the next event. Players must sign in their pools.
+Players retain only up to thirty cards in their pool at the end of [[an]] event. The rest of the cards are placed in a draft for the next event. Players must sign in their pools.
 
 ### Lifetime Win
 

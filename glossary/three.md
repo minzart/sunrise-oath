@@ -18,7 +18,7 @@ When you become the emperor, draw a mandate and gain control of all mandates.
 
 As you lose the game, the player who causes you to lose the game becomes the emperor. Start a new game in the match, leaving this emblem and all mandates in the command zone.  
 
-If you win the game or an opponent loses the game, you win the match.
+If you win the game or [[an]] opponent loses the game, you win the match.
 
 
 
