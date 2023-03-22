@@ -1,0 +1,1 @@
+[[Accost|accost]] and [[steal]] [[at]] [[the]] [[point]] [[of]] [[a]] [[knife]]. [[Religion|religion]] [[optional]].

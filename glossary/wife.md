@@ -1,0 +1,1 @@
+[[Not|not]] [[many]] [[people]] [[in]] [[this]] [[modern]] [[age]] [[meet]] [[their]] [[fated]] [[bride]] [[at]] [[seventeen]]. [[I|i]] [[am]] [[among]] [[the]] [[lucky]] [[few]] [[to]] [[marry]] [[the]] [[love]] [[of]] [[my]] [[dreams]]. [[False|false]] [[as]] [[she]] [[was]], [[she]] [[was]] [[also]] [[real]].

@@ -1,0 +1,1 @@
+Around the clock, they spoke in fast [[french|French]] that I could not understand. I never was a part of their [[world]], even after our summer trip to Montreal. I got along with the pianist, and quarreled with the engineer.

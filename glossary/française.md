@@ -1,0 +1,1 @@
+[[French|french]], [[of]] [[the]] [[fairer]] [[sex]].

@@ -1,0 +1,1 @@
+[[I|i]] [[sent]] [[one]] [[to]] [[NASA|nasa]], [[wishing]] [[them]] [[good]] [[luck]] [[on]] [[the]] [[upcoming]] //[[Challenger|challenger]]// [[mission]]. [[I|i]] [[saw]] [[the]] [[disaster]] [[live]] [[on]] [[television]].

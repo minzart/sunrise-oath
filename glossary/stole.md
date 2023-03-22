@@ -1,0 +1,1 @@
+[[Even|even]] [[if]] [[it]] [[is]] [[only]] [[money]], [[there]] [[is]] [[something]] [[so]] [[sinister]] [[about]] [[the]] [[thought]] [[of]] [[this]] [[commandment]] [[broken]]. [[Where|where]] [[is]] [[the]] [[passion]] [[in]] [[the]] [[crime]]?

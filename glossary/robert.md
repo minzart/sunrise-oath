@@ -1,0 +1,1 @@
+[[he|He]] [[was]] [[a]] [[Baptist|baptist]], [[the]] [[son]] [[of]] [[a]] [[pastor]]. [[i|I]] [[never]] [[could]] [[get]] [[mad]] [[at]] [[a]] [[person]] [[who]] [[thinks]] [[they]] [[are]] [[bound]] [[for]] [[hell]]. [[why|Why]] [[did]] [[it]] [[have]] [[to]] [[be]] [[rob|Rob]]?

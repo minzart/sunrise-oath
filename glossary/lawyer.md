@@ -1,0 +1,1 @@
+[[She|she]] [[was]] [[the]] [[younger]] [[cousin]] [[of]] [[the]] [[architect]], [[one]] [[year]] [[under]] [[us]]. [[The|the]] [[summer]] [[before]] [[I|i]] [[started]] [[dating]] [[Tara|tara]], [[Eroica|eroica]] [[gave]] [[me]] [[a]] [[kiss]] [[while]] [[tutoring]] [[me]] [[in]] [[calculus]].

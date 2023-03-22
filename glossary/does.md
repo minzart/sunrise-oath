@@ -1,0 +1,1 @@
+[[Multiple|multiple]] [[female]] [[deer]], [[when]] [[I|i]] [[manage]] [[to]] [[avoid]] [[do]] [[and]] [[its]] [[inflections]].

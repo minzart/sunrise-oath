@@ -1,3 +1,5 @@
+[[a|A]] [[law]] [[that]] [[we]] [[must]] [[force]] [[ourselves]] [[to]] [[keep]].
+
 For free and unsolicited, I outline ten: 
 1. Sight 
 2. Focus 

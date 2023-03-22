@@ -1,0 +1,1 @@
+[[A|a]] [[small]] [[nip]] [[that]] [[jolted]] [[me]] [[back]]. [[The|the]] [[architect]] [[laughed]]. “[[Eroica|eroica]] [[was]] [[right]], [[you]] [[know]]. [[Humans|humans]] [[taste]] [[exquisite]].”

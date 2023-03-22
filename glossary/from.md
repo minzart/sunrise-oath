@@ -1,0 +1,1 @@
+[[Waterloo|waterloo]], [[the]] [[place]] [[whence]] [[I|i]] [[came]], [[was]] [[always]] [[good]] [[to]] [[me]]. [[I|i]] [[knew]] [[not]] [[that]] [[it]] [[would]] [[be]] [[lost]] [[to]] [[me]], [[the]] [[Eden|eden]] [[that]] [[I|i]] [[took]] [[for]] [[granted]].

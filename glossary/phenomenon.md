@@ -1,0 +1,1 @@
+[[Theory|theory]] [[as]] [[experience]]. [[Sense|sense]] as [[knowledge]]. [[The|the]] [[wind]] [[at]] [[dawn]], [[the]] [[beautiful]] [[stranger]], [[the]] [[sunrise]] [[oath]].

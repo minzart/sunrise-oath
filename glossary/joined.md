@@ -1,0 +1,1 @@
+[[connected|Connected]], [[parts]] [[in]] [[a]] [[whole]], [[a]] [[marriage]].

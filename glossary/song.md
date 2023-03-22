@@ -1,0 +1,1 @@
+[[Prayer|prayer]] in the [[form]] of [[melody]].

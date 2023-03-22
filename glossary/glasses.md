@@ -1,0 +1,1 @@
+[[The|the]] [[doctor]] [[massaged]] [[the]] [[bridge]] [[of]] [[her]] [[nose]], [[where]] [[two]] [[red]] [[marks]] [[sat]] [[as]] [[battle]] [[scars]].

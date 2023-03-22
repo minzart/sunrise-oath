@@ -1,0 +1,1 @@
+[[Catherine|catherine]] [[spoke]] [[of]] [[God|god]] [[to]] [[me]] [[a]] [[lot]]. [[She|she]] [[was]] [[a]] [[Catholic|catholic]] [[girl]] [[of]] [[firm]] [[faith]]. [[At|at]] [[least]], [[that]] [[was]] [[the]] [[front]] [[I|i]] [[knew]] [[her]] [[by]].

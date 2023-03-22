@@ -1,0 +1,1 @@
+[[I|i]] [[know]] [[someone]] [[who]] [[stabbed]] [[his]] [[mom]] [[forty]] [[times]] [[while]] [[she]] [[was]] [[asleep]]. [[On|on]] [[the]] [[news]] [[was]] [[another]] [[who]] [[hired]] [[friends]] [[to]] [[take]] [[out]] [[both]] [[her]] [[parents]], [[and]] [[only]] [[the]] [[father]] [[survived]].

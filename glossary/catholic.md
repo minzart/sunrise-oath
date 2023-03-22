@@ -1,0 +1,1 @@
+[[Her|her]] [[God|god]] [[asked]] [[good]] [[works]] [[of]] [[his]] [[favorite]] [[creations]], [[us]] [[apes]] [[who]] [[walk]] [[the]] [[earth]] [[as]] [[a]] [[network]] [[of]] [[mirrors]], [[basking]] [[in]] [[the]] [[light]] [[of]] [[perfect]] [[love]].

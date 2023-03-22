@@ -1,4 +1,4 @@
-
+>[[The|the]] [[unstable]] [[polity]], [[the]] [[problems]] [[of]] [[existence]].
 
 **MANDATE**
 a *Magic: the Gathering* custom multiplayer game mode

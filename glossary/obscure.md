@@ -1,0 +1,1 @@
+[[Smoke|smoke]] and [[mirrors]], [[always]], [[every]] [[time]].

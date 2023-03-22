@@ -4,15 +4,20 @@
     "type": "split",
     "children": [
       {
-        "id": "5247233889fab9c6",
+        "id": "e0dc909a93a625d0",
         "type": "tabs",
         "children": [
           {
-            "id": "4cbecb2f80383c50",
+            "id": "b28fb8be69e4443d",
             "type": "leaf",
             "state": {
-              "type": "empty",
-              "state": {}
+              "type": "markdown",
+              "state": {
+                "file": "journal/2023-03-22.md",
+                "mode": "source",
+                "backlinks": true,
+                "source": false
+              }
             }
           }
         ]
@@ -81,6 +86,7 @@
             "state": {
               "type": "backlink",
               "state": {
+                "file": "journal/2023-03-22.md",
                 "collapseAll": true,
                 "extraContext": false,
                 "sortOrder": "alphabetical",
@@ -97,6 +103,7 @@
             "state": {
               "type": "outgoing-link",
               "state": {
+                "file": "journal/2023-03-22.md",
                 "linksCollapsed": false,
                 "unlinkedCollapsed": true
               }
@@ -118,7 +125,9 @@
             "type": "leaf",
             "state": {
               "type": "outline",
-              "state": {}
+              "state": {
+                "file": "journal/2023-03-22.md"
+              }
             }
           }
         ],
@@ -140,34 +149,34 @@
       "random-note:Open random note": false
     }
   },
-  "active": "4cbecb2f80383c50",
+  "active": "b28fb8be69e4443d",
   "lastOpenFiles": [
-    "glossary/wept.md",
-    "glossary/was.md",
-    "glossary/venom.md",
-    "glossary/admit.md",
-    "glossary/a.md",
-    "glossary/unfamiliar.md",
-    "glossary/twilight.md",
-    "glossary/tumbled.md",
-    "glossary/truth.md",
-    "glossary/to.md",
-    "glossary/thought.md",
-    "glossary/the.md",
-    "glossary/tangled.md",
-    "glossary/story.md",
-    "glossary/stop.md",
-    "glossary/september.md",
-    "glossary/seemed.md",
-    "glossary/sea.md",
-    "glossary/scene.md",
-    "glossary/rippled.md",
-    "glossary/reveal.md",
-    "glossary/questions.md",
-    "glossary/ponytail.md",
-    "glossary/perfume.md",
-    "glossary/parted.md",
-    "glossary/paid.md",
+    "glossary/murders.md",
+    "journal/2023-03-22.md",
+    "glossary/difference.md",
+    "glossary/wit.md",
+    "glossary/meaningless.md",
+    "glossary/matricide.md",
+    "journal/2023-02-03.md",
+    "glossary/cheerleaders.md",
+    "glossary/second.md",
+    "glossary/vampire.md",
+    "glossary/bite.md",
+    "glossary/leena.md",
+    "glossary/made.md",
+    "glossary/joined.md",
+    "glossary/cogent.md",
+    "glossary/eroica.md",
+    "glossary/tara.md",
+    "glossary/lawyer.md",
+    "glossary/erratic.md",
+    "glossary/rob.md",
+    "glossary/mad.md",
+    "glossary/son.md",
+    "glossary/takes.md",
+    "glossary/from.md",
+    "glossary/stole.md",
+    "glossary/robert.md",
     "archive/Pasted image 20230321145325.png",
     "archive/Pasted image 20230321140121.png",
     "inbox/scratch.canvas",

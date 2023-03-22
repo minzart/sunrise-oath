@@ -1,0 +1,1 @@
+[[The|the]] [[days]] [[were]] [[calm]], [[for]] [[I|i]] [[was]] [[bored]].

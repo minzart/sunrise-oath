@@ -1,0 +1,1 @@
+[[colette|Colette]] [[wrote]] [[that]] [[smoking]] [[adds]] [[idleness]] [[to]] [[the]] [[life]] [[of]] [[an]] [[artist]].

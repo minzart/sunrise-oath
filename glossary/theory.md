@@ -1,0 +1,1 @@
+[[Truth|truth]] [[and]] [[knowledge]] [[as]] [[we]] [[came]] [[to]] [[know]] [[it]].

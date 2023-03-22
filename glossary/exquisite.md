@@ -1,0 +1,1 @@
+[[Picturing|picturing]] [[her]] [[as]] [[I|i]] [[touched]] [[myself]], [[what]] [[I|i]] [[saw]] [[was]] [[her]] [[smile]], [[her]] [[laugh]], [[the]] [[way]] [[she]] [[said]] [[my]] [[name]].

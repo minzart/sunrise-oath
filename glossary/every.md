@@ -1,0 +1,1 @@
+[[All|all]] [[and]] [[each]], [[all]] [[at]] [[once]].

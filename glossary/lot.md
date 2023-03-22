@@ -1,0 +1,1 @@
+[[First|first]] [[two]] [[cities]] [[burn]] [[to]] [[the]] [[ground]], [[then]] [[his]] [[wife]] [[is]] [[stuck]] [[in]] [[time]]. [[What|what]] [[a]] [[day]], [[and]] [[this]] [[is]] [[before]] [[his]] [[daughters]] [[get]] [[funny]] [[ideas]]. [[He|he]] [[went]] [[to]] [[the]] [[cave]], [[and]] [[wished]] [[the]] [[girls]] [[good]] [[night]].

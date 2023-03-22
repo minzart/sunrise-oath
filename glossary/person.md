@@ -1,0 +1,1 @@
+[[Now|now]] [[that]] [[I|i]] [[see]] [[the]] [[mind]] [[in]] [[all]] [[matter]], [[what]] [[is]] [[the]] [[difference]], [[the]] [[tiny]] [[distance]], [[between]] [[self]] [[and]] [[world]]?

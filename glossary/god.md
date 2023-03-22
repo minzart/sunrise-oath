@@ -1,0 +1,1 @@
+[[Commandment|commandment]] [[as]] [[a]] [[person]] [[in]] [[the]] [[sky]].

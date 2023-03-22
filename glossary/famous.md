@@ -1,0 +1,1 @@
+“[[How|how]] [[does]] [[it]] [[feel]] [[to]] [[be]] [[a]] [[celebrity]]?” [[the]] [[doctor]] [[asked]] [[the]] [[curator]] [[one]] [[day]]. [[Selene|selene]] [[hesitated]], [[and]] [[said]] [[she]] [[never]] [[thought]] [[that]] [[hard]] [[about]] [[it]].

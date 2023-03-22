@@ -1,0 +1,1 @@
+[[The|the]] [[negative]] [[logarithm]] [[of]] [[entropy]], [[according]] [[to]] [[the]] [[scientist]].

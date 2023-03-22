@@ -1,0 +1,1 @@
+[[three|Three]] goddesses: [[athena|Athena]], [[hera|Hera]], [[aphrodite|Aphrodite]]. [[fuck|Fuck]], [[marry]], [[kill]].

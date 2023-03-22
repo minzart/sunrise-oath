@@ -1,0 +1,1 @@
+[[before|Before]] [[she]] [[was]] [[the]] [[engineer]], [[she]] [[was]] [[cat|Cat]] [[during]] [[fifth]] [[grade]] [[recess]], [[when]] [[we]] [[began]] [[to]] [[stay]] [[inside]] [[and]] [[read]]. [[i|I]] [[called]] [[her]] [[cathy|Cathy]] [[when]] [[we]] [[met]], [[and]] [[she]] [[rewarded]] [[me]] [[with]] [[a]] [[flick]] [[to]] [[the]] [[forehead]].

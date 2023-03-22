@@ -1,0 +1,1 @@
+[[I|i]] [[was]] [[born]] [[and]] [[raised]] [[in]] [[a]] [[city]] [[with]] [[the]] [[same]] [[name]] [[as]] [[the]] [[place]] [[where]] [[a]] [[famous]] [[Romantic|romantic]] [[hero]] [[lost]].

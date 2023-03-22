@@ -1,0 +1,1 @@
+[[hear|Hear]] [[it]] [[once]], [[know]] [[it]] [[all]].

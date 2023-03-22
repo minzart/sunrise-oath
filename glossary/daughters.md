@@ -1,0 +1,1 @@
+[[After|after]] [[I|i]] [[became]] [[a]] [[father]], [[my]] [[wife]] [[said]] [[I|i]] [[was]] [[much]] [[too]] [[overbearing]]. [[She|she]] [[was]] [[right]]. [[I|i]] [[could]] [[not]] [[lose]] [[another]] [[baby]] [[girl]], [[even]] [[if]] [[it]] [[meant]] [[that]] [[I|i]] [[would]] [[never]] [[let]] [[them]] [[go]] [[away]] [[and]] [[walk]] [[their]] [[path]].

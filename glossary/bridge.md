@@ -1,0 +1,1 @@
+[[Path|path]] [[between]] [[past]] [[and]] [[future]]. [[The|the]] [[writer]] [[and]] [[the]] [[engineer]] [[talked]] [[about]] [[the]] [[card]] [[game]] [[sometimes]]. [[I|i]] [[knew]] [[not]] [[the]] [[rules]], [[but]] [[kept]] [[quiet]].

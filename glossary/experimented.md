@@ -1,0 +1,1 @@
+[[There|there]] [[once]] [[was]] [[an]] [[older]] [[girl]], [[a]] [[younger]] [[woman]], [[who]] [[saved]] [[me]].

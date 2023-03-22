@@ -1,0 +1,1 @@
+[[From|from]] [[the]] [[forehead]] [[of]] [[her]] [[father]], [[she]] [[was]] [[born]]. [[Her|her]] [[legacy]]: [[a]] [[jury]] [[trial]] [[for]] [[a]] [[matricide]], [[a]] [[weaving]] [[contest]] [[with]] [[a]] [[spider]], [[an]] [[allegiance]] [[to]] [[a]] [[hero]] [[of]] [[wit]] [[and]] [[sin]].

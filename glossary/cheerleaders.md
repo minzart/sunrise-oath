@@ -1,0 +1,1 @@
+[[Other|other]] [[than]] [[their]] [[glistening]] [[legs]], [[I|i]] [[noticed]] [[their]] [[wet]] [[uniforms]] [[were]] [[more]] [[beige]] [[than]] [[gold]].

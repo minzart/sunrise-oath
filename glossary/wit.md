@@ -1,0 +1,1 @@
+[[Mine|mine]] [[is]] [[whole]], [[and]] [[most]] [[times]] [[not]] [[too]] [[middling]]. [[That|that]] [[means]] [[nothing]] [[except]] [[that]] [[I|i]] [[may]] [[be]] [[allowed]] [[to]] [[a]] [[joke]] [[or]] [[two]].

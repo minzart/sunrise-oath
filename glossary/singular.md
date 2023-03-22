@@ -1,0 +1,1 @@
+[[By|by]] [[oneself]] [[without]] [[a]] [[group]], [[I|i]] [[felt]] [[naked]]. [[Exposed|exposed]] [[like]] [[skin]] [[in]] [[the]] [[afternoon]] [[sun]], [[my]] [[soul]] [[was]] [[burning]] [[for]] [[the]] [[first]] [[time]].

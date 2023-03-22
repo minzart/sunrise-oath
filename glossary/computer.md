@@ -1,0 +1,1 @@
+[[I|i]] [[typed]] [[on]] [[a]] [[Compaq|compaq]] [[til]] [[the]] [[nicotine]] [[wore]] [[off]], [[and]] [[crawled]] [[into]] [[bed]] [[with]] [[a]] [[Walkman|walkman]]. “[[Rewind|rewind]]”, “[[Play|play]]” — [[I|i]] [[fell]] [[asleep]] [[to]] [[the]] [[Elgar|elgar]] [[art]] [[song]], [[and]] [[dreamed]].

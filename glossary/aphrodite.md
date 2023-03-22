@@ -1,0 +1,1 @@
+[[I|i]] [[never]] [[asked]] [[the]] [[doctor]] [[for]] [[her]] [[name]]. [[Sharing|sharing]] [[tea]] [[and]] [[coffee]] [[with]] [[her]] [[and]] [[the]] [[curator]], [[I|i]] [[learned]] [[that]] [[she]] [[was]] [[Charlotte|charlotte]].
