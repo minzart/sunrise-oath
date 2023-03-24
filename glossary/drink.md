@@ -1,0 +1,1 @@
+Catherine herself is a gin and tonic: the intoxication of the Hawthorns, the bitterness of the Shanks.

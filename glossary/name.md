@@ -7,3 +7,5 @@ I have many, and below I shall list them.
 * [[天]]
 * [[晨晏]]
 * [[旴晴]]
+***
+Cards have no official names, so name them anything you want.

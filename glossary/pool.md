@@ -1,0 +1,1 @@
+All legal cards are available. Which ones will you create?

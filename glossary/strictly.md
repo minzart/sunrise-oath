@@ -1,0 +1,1 @@
+**Each card has its advantages and disadvantages. No card is better than any other in every single possible way.**

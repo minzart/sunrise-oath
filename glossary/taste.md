@@ -1,0 +1,1 @@
+The tongue consumes and savors, lashes and pleases.

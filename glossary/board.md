@@ -1,0 +1,1 @@
+Pieces move on nineteen hexagonal tiles, arranged in a 3-4-5-4-3 column formation. For a diagram, see the [[template]]. Players may play without a board so long as they can correctly represent the game state.

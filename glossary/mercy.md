@@ -1,0 +1,1 @@
+[[wellington|Wellington]] spared Napoleon many times: at Waterloo, and after the war.

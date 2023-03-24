@@ -1,0 +1,1 @@
+A [[general]] fated to be sick at [[waterloo|Waterloo]].

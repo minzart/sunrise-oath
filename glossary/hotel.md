@@ -1,3 +1,11 @@
+Hilbert 54  
+  
+Game where the player goes up and down levels in a persistent magical "hotel" with cards. Guests regularly get moved up and down floors, represented by cards being added to the deck. When guests leave, all other guests are moved to fill in the gaps.  
+  
+Win by having more points (cards of suit or rank matching initial).
+
+* * *
+
 How should a story start? A hidden truth, beyond the comprehension of a small mind like mine, may well be treated as a fairy tale.
 
 [[player|I]] find my way to a hotel with infinite floors. [[Every]] floor is a single room, [[every]] room is a strange land, and [[every]] visitor is a stranger to me. Yet, I seem to remember each one from a past life.

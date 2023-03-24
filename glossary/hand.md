@@ -1,0 +1,1 @@
+Action cards for each player are placed face-up outside of the board. Each player takes their turn with full information of all the opponent’s options on the next turn.

@@ -1,0 +1,1 @@
+Added the Various Complemenets auto-complete, and I want to see if it improves my [[workflow]] in any meaningful ([[meaningless]]) way. It kinda [[feels]] like I have Tourette's or [[something]] when these words pop up [[and]] I am encouraged to tunnel into a new world of thought, somewhere I ventured [[before]] but have [[long]] [[left]] behind.

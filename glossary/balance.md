@@ -1,0 +1,1 @@
+Improving a card for white makes it worse for black, and vice versa. As a cakecut is conducted before the game, optimal play requires splitting a dualist’s capabilities between the two sides.

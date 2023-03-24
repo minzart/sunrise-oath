@@ -1,0 +1,1 @@
+Gale dreams of the car accident with Louise right after he finds out of her death?

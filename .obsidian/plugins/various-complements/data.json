@@ -1,0 +1,887 @@
+{
+  "strategy": "default",
+  "cedictPath": "./cedict_ts.u8",
+  "matchStrategy": "prefix",
+  "fuzzyMatch": true,
+  "matchingWithoutEmoji": true,
+  "treatAccentDiacriticsAsAlphabeticCharacters": true,
+  "maxNumberOfSuggestions": 8,
+  "maxNumberOfWordsAsPhrase": 3,
+  "minNumberOfCharactersTriggered": 0,
+  "minNumberOfWordsTriggeredPhrase": 1,
+  "complementAutomatically": true,
+  "delayMilliSeconds": 0,
+  "disableSuggestionsDuringImeOn": false,
+  "insertAfterCompletion": true,
+  "firstCharactersDisableSuggestions": ":/^",
+  "useCommonPrefixCompletionOfSuggestion": false,
+  "patternsToSuppressTrigger": [
+    "^~~~.*",
+    "^```.*"
+  ],
+  "showMatchStrategy": true,
+  "showComplementAutomatically": true,
+  "showIndexingStatus": true,
+  "descriptionOnSuggestion": "Full",
+  "selectSuggestionKeys": "Enter",
+  "additionalCycleThroughSuggestionsKeys": "Tab, Shift+Tab",
+  "disableUpDownKeysForCycleThroughSuggestionsKeys": false,
+  "openSourceFileKey": "None",
+  "propagateEsc": true,
+  "enableCurrentFileComplement": true,
+  "currentFileMinNumberOfCharacters": 0,
+  "onlyComplementEnglishOnCurrentFileComplement": false,
+  "enableCurrentVaultComplement": false,
+  "currentVaultMinNumberOfCharacters": 0,
+  "includeCurrentVaultPathPrefixPatterns": "",
+  "excludeCurrentVaultPathPrefixPatterns": "",
+  "includeCurrentVaultOnlyFilesUnderCurrentDirectory": false,
+  "enableCustomDictionaryComplement": false,
+  "customDictionaryPaths": "https://raw.githubusercontent.com/first20hours/google-10000-english/master/google-10000-english-no-swears.txt",
+  "columnDelimiter": "Tab",
+  "customDictionaryWordRegexPattern": "",
+  "delimiterToHideSuggestion": "",
+  "delimiterToDivideSuggestionsForDisplayFromInsertion": "",
+  "caretLocationSymbolAfterComplement": "",
+  "displayedTextSuffix": " => ...",
+  "enableInternalLinkComplement": true,
+  "suggestInternalLinkWithAlias": false,
+  "excludeInternalLinkPathPrefixPatterns": "",
+  "updateInternalLinksOnSave": true,
+  "insertAliasTransformedFromDisplayedInternalLink": {
+    "enabled": false,
+    "beforeRegExp": "",
+    "after": ""
+  },
+  "enableFrontMatterComplement": true,
+  "frontMatterComplementMatchStrategy": "inherit",
+  "insertCommaAfterFrontMatterCompletion": false,
+  "intelligentSuggestionPrioritization": {
+    "maxDaysToKeepHistory": 30,
+    "maxNumberOfHistoryToKeep": 0
+  },
+  "disableOnMobile": false,
+  "showLogAboutPerformanceInConsole": false,
+  "selectionHistoryTree": {
+    "workflow": {
+      "workflow": {
+        "internalLink": {
+          "count": 1,
+          "lastUpdated": 1679508512509
+        }
+      }
+    },
+    "meaningless": {
+      "meaningless": {
+        "internalLink": {
+          "count": 1,
+          "lastUpdated": 1679508526943
+        }
+      }
+    },
+    "feels": {
+      "feels": {
+        "internalLink": {
+          "count": 2,
+          "lastUpdated": 1679675703451
+        }
+      }
+    },
+    "something": {
+      "something": {
+        "internalLink": {
+          "count": 1,
+          "lastUpdated": 1679508552440
+        }
+      }
+    },
+    "and": {
+      "and": {
+        "internalLink": {
+          "count": 2,
+          "lastUpdated": 1679678524038
+        }
+      }
+    },
+    "before": {
+      "before": {
+        "internalLink": {
+          "count": 1,
+          "lastUpdated": 1679508584694
+        }
+      }
+    },
+    "long": {
+      "long": {
+        "internalLink": {
+          "count": 1,
+          "lastUpdated": 1679508589141
+        }
+      }
+    },
+    "left": {
+      "left": {
+        "internalLink": {
+          "count": 1,
+          "lastUpdated": 1679508591246
+        }
+      }
+    },
+    "friendship": {
+      "friendship": {
+        "internalLink": {
+          "count": 2,
+          "lastUpdated": 1679679940554
+        }
+      }
+    },
+    "high": {
+      "high": {
+        "internalLink": {
+          "count": 1,
+          "lastUpdated": 1679508731478
+        }
+      }
+    },
+    "you": {
+      "you": {
+        "internalLink": {
+          "count": 1,
+          "lastUpdated": 1679508766999
+        }
+      }
+    },
+    "are": {
+      "are": {
+        "internalLink": {
+          "count": 2,
+          "lastUpdated": 1679678345055
+        }
+      }
+    },
+    "more ": {
+      "more ": {
+        "currentFile": {
+          "count": 1,
+          "lastUpdated": 1679582805151
+        }
+      }
+    },
+    "another": {
+      "another": {
+        "internalLink": {
+          "count": 1,
+          "lastUpdated": 1679583098216
+        }
+      }
+    },
+    "played": {
+      "played": {
+        "internalLink": {
+          "count": 1,
+          "lastUpdated": 1679583355641
+        }
+      }
+    },
+    "game": {
+      "game": {
+        "internalLink": {
+          "count": 1,
+          "lastUpdated": 1679583359554
+        }
+      }
+    },
+    "times": {
+      "times": {
+        "internalLink": {
+          "count": 1,
+          "lastUpdated": 1679583363346
+        }
+      }
+    },
+    "with": {
+      "with": {
+        "internalLink": {
+          "count": 2,
+          "lastUpdated": 1679679685017
+        }
+      }
+    },
+    "people": {
+      "people": {
+        "internalLink": {
+          "count": 1,
+          "lastUpdated": 1679583371395
+        }
+      }
+    },
+    "curator": {
+      "curator": {
+        "internalLink": {
+          "count": 1,
+          "lastUpdated": 1679583819881
+        }
+      }
+    },
+    "stranger": {
+      "stranger": {
+        "internalLink": {
+          "count": 1,
+          "lastUpdated": 1679583989928
+        }
+      }
+    },
+    "dreams": {
+      "dreams": {
+        "internalLink": {
+          "count": 1,
+          "lastUpdated": 1679583999440
+        }
+      }
+    },
+    "thought": {
+      "thought": {
+        "internalLink": {
+          "count": 2,
+          "lastUpdated": 1679670706771
+        }
+      }
+    },
+    "soul": {
+      "soul": {
+        "internalLink": {
+          "count": 1,
+          "lastUpdated": 1679670540463
+        }
+      }
+    },
+    "feel": {
+      "feel": {
+        "internalLink": {
+          "count": 1,
+          "lastUpdated": 1679670573472
+        }
+      }
+    },
+    "complete": {
+      "complete": {
+        "currentFile": {
+          "count": 1,
+          "lastUpdated": 1679670584516
+        }
+      }
+    },
+    "out": {
+      "out": {
+        "internalLink": {
+          "count": 1,
+          "lastUpdated": 1679670617799
+        }
+      }
+    },
+    "myself": {
+      "myself": {
+        "internalLink": {
+          "count": 2,
+          "lastUpdated": 1679680051691
+        }
+      }
+    },
+    "them": {
+      "them": {
+        "internalLink": {
+          "count": 2,
+          "lastUpdated": 1679678400064
+        }
+      }
+    },
+    "only": {
+      "only": {
+        "internalLink": {
+          "count": 2,
+          "lastUpdated": 1679679116250
+        }
+      }
+    },
+    "they": {
+      "they": {
+        "internalLink": {
+          "count": 1,
+          "lastUpdated": 1679670715880
+        }
+      }
+    },
+    "even": {
+      "even": {
+        "internalLink": {
+          "count": 1,
+          "lastUpdated": 1679670725125
+        }
+      }
+    },
+    "forgotten": {
+      "forgotten": {
+        "internalLink": {
+          "count": 2,
+          "lastUpdated": 1679678006580
+        }
+      }
+    },
+    "order": {
+      "order": {
+        "internalLink": {
+          "count": 1,
+          "lastUpdated": 1679670738857
+        }
+      }
+    },
+    "dawn": {
+      "dawn": {
+        "internalLink": {
+          "count": 1,
+          "lastUpdated": 1679674872666
+        }
+      }
+    },
+    "charlotte": {
+      "charlotte": {
+        "internalLink": {
+          "count": 1,
+          "lastUpdated": 1679674904393
+        }
+      }
+    },
+    "louise": {
+      "louise": {
+        "internalLink": {
+          "count": 1,
+          "lastUpdated": 1679674934521
+        }
+      }
+    },
+    "tara": {
+      "tara": {
+        "internalLink": {
+          "count": 1,
+          "lastUpdated": 1679674999571
+        }
+      }
+    },
+    "fell": {
+      "fell": {
+        "internalLink": {
+          "count": 1,
+          "lastUpdated": 1679675190501
+        }
+      }
+    },
+    "without": {
+      "without": {
+        "internalLink": {
+          "count": 1,
+          "lastUpdated": 1679675203626
+        }
+      }
+    },
+    "ever": {
+      "ever": {
+        "internalLink": {
+          "count": 1,
+          "lastUpdated": 1679675208508
+        }
+      }
+    },
+    "perfect": {
+      "perfect": {
+        "internalLink": {
+          "count": 1,
+          "lastUpdated": 1679675228171
+        }
+      }
+    },
+    "love": {
+      "love": {
+        "internalLink": {
+          "count": 3,
+          "lastUpdated": 1679680055603
+        }
+      }
+    },
+    "took": {
+      "took": {
+        "internalLink": {
+          "count": 1,
+          "lastUpdated": 1679675331286
+        }
+      }
+    },
+    "from": {
+      "from": {
+        "internalLink": {
+          "count": 1,
+          "lastUpdated": 1679675334611
+        }
+      }
+    },
+    "the": {
+      "the": {
+        "internalLink": {
+          "count": 4,
+          "lastUpdated": 1679678169994
+        }
+      }
+    },
+    "life": {
+      "life": {
+        "internalLink": {
+          "count": 3,
+          "lastUpdated": 1679679790721
+        }
+      }
+    },
+    "knew": {
+      "knew": {
+        "internalLink": {
+          "count": 1,
+          "lastUpdated": 1679675347661
+        }
+      }
+    },
+    "could": {
+      "could": {
+        "internalLink": {
+          "count": 1,
+          "lastUpdated": 1679675370751
+        }
+      }
+    },
+    "restless": {
+      "restless": {
+        "internalLink": {
+          "count": 1,
+          "lastUpdated": 1679675692416
+        }
+      }
+    },
+    "this": {
+      "this": {
+        "internalLink": {
+          "count": 2,
+          "lastUpdated": 1679678163412
+        }
+      }
+    },
+    "through": {
+      "through": {
+        "internalLink": {
+          "count": 1,
+          "lastUpdated": 1679675707760
+        }
+      }
+    },
+    "battle": {
+      "battle": {
+        "internalLink": {
+          "count": 1,
+          "lastUpdated": 1679675734503
+        }
+      }
+    },
+    "change": {
+      "change": {
+        "internalLink": {
+          "count": 1,
+          "lastUpdated": 1679677391034
+        }
+      }
+    },
+    "years": {
+      "years": {
+        "internalLink": {
+          "count": 1,
+          "lastUpdated": 1679677426492
+        }
+      }
+    },
+    "last": {
+      "last": {
+        "internalLink": {
+          "count": 1,
+          "lastUpdated": 1679677437688
+        }
+      }
+    },
+    "truth": {
+      "truth": {
+        "internalLink": {
+          "count": 2,
+          "lastUpdated": 1679679484370
+        }
+      }
+    },
+    "master": {
+      "master": {
+        "internalLink": {
+          "count": 1,
+          "lastUpdated": 1679677607458
+        }
+      }
+    },
+    "who": {
+      "who": {
+        "internalLink": {
+          "count": 1,
+          "lastUpdated": 1679677623804
+        }
+      }
+    },
+    "least": {
+      "least": {
+        "internalLink": {
+          "count": 1,
+          "lastUpdated": 1679677790827
+        }
+      }
+    },
+    "word": {
+      "word": {
+        "internalLink": {
+          "count": 1,
+          "lastUpdated": 1679677847974
+        }
+      }
+    },
+    "day": {
+      "day": {
+        "internalLink": {
+          "count": 1,
+          "lastUpdated": 1679677950468
+        }
+      }
+    },
+    "have": {
+      "have": {
+        "internalLink": {
+          "count": 1,
+          "lastUpdated": 1679677966484
+        }
+      }
+    },
+    "soon": {
+      "soon": {
+        "internalLink": {
+          "count": 1,
+          "lastUpdated": 1679678107133
+        }
+      }
+    },
+    "parents": {
+      "parents": {
+        "internalLink": {
+          "count": 1,
+          "lastUpdated": 1679678152155
+        }
+      }
+    },
+    "was": {
+      "was": {
+        "internalLink": {
+          "count": 1,
+          "lastUpdated": 1679678166226
+        }
+      }
+    },
+    "one": {
+      "one": {
+        "internalLink": {
+          "count": 3,
+          "lastUpdated": 1679679687535
+        }
+      }
+    },
+    "most": {
+      "most": {
+        "internalLink": {
+          "count": 1,
+          "lastUpdated": 1679678171651
+        }
+      }
+    },
+    "commandments": {
+      "commandments": {
+        "internalLink": {
+          "count": 1,
+          "lastUpdated": 1679678177002
+        }
+      }
+    },
+    "what": {
+      "what": {
+        "internalLink": {
+          "count": 2,
+          "lastUpdated": 1679679399269
+        }
+      }
+    },
+    "must": {
+      "must": {
+        "internalLink": {
+          "count": 1,
+          "lastUpdated": 1679678241189
+        }
+      }
+    },
+    "itself": {
+      "itself": {
+        "internalLink": {
+          "count": 1,
+          "lastUpdated": 1679678245998
+        }
+      }
+    },
+    "right": {
+      "right": {
+        "internalLink": {
+          "count": 1,
+          "lastUpdated": 1679678259493
+        }
+      }
+    },
+    "family": {
+      "family": {
+        "internalLink": {
+          "count": 1,
+          "lastUpdated": 1679678321353
+        }
+      }
+    },
+    "their": {
+      "their": {
+        "internalLink": {
+          "count": 1,
+          "lastUpdated": 1679678348839
+        }
+      }
+    },
+    "own": {
+      "own": {
+        "internalLink": {
+          "count": 1,
+          "lastUpdated": 1679678350421
+        }
+      }
+    },
+    "fate": {
+      "fate": {
+        "internalLink": {
+          "count": 1,
+          "lastUpdated": 1679678395887
+        }
+      }
+    },
+    "greatest": {
+      "greatest": {
+        "internalLink": {
+          "count": 1,
+          "lastUpdated": 1679678503393
+        }
+      }
+    },
+    "shall": {
+      "shall": {
+        "currentFile": {
+          "count": 1,
+          "lastUpdated": 1679678510002
+        },
+        "internalLink": {
+          "count": 1,
+          "lastUpdated": 1679679681449
+        }
+      }
+    },
+    "mercy": {
+      "mercy": {
+        "internalLink": {
+          "count": 1,
+          "lastUpdated": 1679678824684
+        }
+      }
+    },
+    "grace": {
+      "grace": {
+        "internalLink": {
+          "count": 1,
+          "lastUpdated": 1679678876703
+        }
+      }
+    },
+    "all": {
+      "all": {
+        "internalLink": {
+          "count": 1,
+          "lastUpdated": 1679678906042
+        }
+      }
+    },
+    "not": {
+      "not": {
+        "internalLink": {
+          "count": 1,
+          "lastUpdated": 1679678913577
+        }
+      }
+    },
+    "touch": {
+      "touch": {
+        "internalLink": {
+          "count": 1,
+          "lastUpdated": 1679678980690
+        }
+      }
+    },
+    "hand": {
+      "hand": {
+        "internalLink": {
+          "count": 1,
+          "lastUpdated": 1679678982641
+        }
+      }
+    },
+    "her": {
+      "her": {
+        "internalLink": {
+          "count": 1,
+          "lastUpdated": 1679678987562
+        }
+      }
+    },
+    "power": {
+      "power": {
+        "internalLink": {
+          "count": 1,
+          "lastUpdated": 1679679102894
+        }
+      }
+    },
+    "there": {
+      "there": {
+        "internalLink": {
+          "count": 3,
+          "lastUpdated": 1679680157080
+        }
+      }
+    },
+    "world": {
+      "world": {
+        "internalLink": {
+          "count": 2,
+          "lastUpdated": 1679680153454
+        }
+      }
+    },
+    "else": {
+      "else": {
+        "internalLink": {
+          "count": 1,
+          "lastUpdated": 1679679401162
+        }
+      }
+    },
+    "work": {
+      "work": {
+        "internalLink": {
+          "count": 1,
+          "lastUpdated": 1679679422399
+        }
+      }
+    },
+    "god": {
+      "god": {
+        "internalLink": {
+          "count": 1,
+          "lastUpdated": 1679679489462
+        }
+      }
+    },
+    "always": {
+      "always": {
+        "internalLink": {
+          "count": 1,
+          "lastUpdated": 1679679572478
+        }
+      }
+    },
+    "felt": {
+      "felt": {
+        "internalLink": {
+          "count": 1,
+          "lastUpdated": 1679679576074
+        }
+      }
+    },
+    "like": {
+      "like": {
+        "internalLink": {
+          "count": 1,
+          "lastUpdated": 1679679577780
+        }
+      }
+    },
+    "fault": {
+      "fault": {
+        "internalLink": {
+          "count": 1,
+          "lastUpdated": 1679679582118
+        }
+      }
+    },
+    "started": {
+      "started": {
+        "internalLink": {
+          "count": 1,
+          "lastUpdated": 1679679665670
+        }
+      }
+    },
+    "two": {
+      "two": {
+        "internalLink": {
+          "count": 1,
+          "lastUpdated": 1679679670215
+        }
+      }
+    },
+    "that": {
+      "that": {
+        "internalLink": {
+          "count": 1,
+          "lastUpdated": 1679679913126
+        }
+      }
+    },
+    "path": {
+      "path": {
+        "internalLink": {
+          "count": 1,
+          "lastUpdated": 1679680143913
+        }
+      }
+    },
+    "being": {
+      "being": {
+        "internalLink": {
+          "count": 1,
+          "lastUpdated": 1679680146983
+        }
+      }
+    },
+    "much": {
+      "much": {
+        "internalLink": {
+          "count": 1,
+          "lastUpdated": 1679680168243
+        }
+      }
+    }
+  }
+}

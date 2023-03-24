@@ -1,0 +1,1 @@
+The first player sees the second player’s first card before making a move.

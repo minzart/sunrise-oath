@@ -1,3 +1,10 @@
+Love is never greeted.  
+Love is never graceful.  
+Love is never found.  
+Love is never wrong.
+
+* * *
+
 # Players and Organizers of the Waterloo Chapter of the Rise Magic League of the Oath Sign of the Way (PO-loo-RML of the OSW)
 
 ## Who

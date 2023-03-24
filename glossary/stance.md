@@ -1,0 +1,1 @@
+A piece has three stances: left, middle, and right. A piece chooses a stance as it moves to a new tile. A piece is turned sixty degrees counterclockwise or counterclockwise in the left and right stances, respectively. A card’s diagram is read according to its orientation.

@@ -1,0 +1,1 @@
+Gale has a dream of how his life could have went if he never saw Sarah Carice on the summer dinner cruise. He wakes up in the hospital.

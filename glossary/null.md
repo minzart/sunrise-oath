@@ -1,0 +1,1 @@
+An empty tile on a card allows for an action of either color.

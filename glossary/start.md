@@ -1,0 +1,1 @@
+The players perform a cakecut at the start of each game. This is necessary for balance.

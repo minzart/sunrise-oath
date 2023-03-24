@@ -1,0 +1,1 @@
+Gale never remembered Louise in English, even though she must have spoken it at school. So he is taken aback by her lack of accent.

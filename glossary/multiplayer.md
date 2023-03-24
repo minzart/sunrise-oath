@@ -1,0 +1,1 @@
+Duality may be played with more than two players. Create your own variant!

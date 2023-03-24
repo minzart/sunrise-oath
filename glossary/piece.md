@@ -1,0 +1,1 @@
+Each card may be placed on the board as a [[dualist]] that moves according to the player’s side and the marked cells on the diagram. Players may choose to represent cards with figurines or miniatures as appropriate, so long as it can represent three stances and six orientations.
