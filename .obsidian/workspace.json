@@ -4,102 +4,23 @@
     "type": "split",
     "children": [
       {
-        "id": "34ab68e9ca247a4d",
+        "id": "b0b7a575cf628e6d",
         "type": "tabs",
         "children": [
           {
-            "id": "1a31b35d8df34bf4",
+            "id": "7bc16b42fabd2f48",
             "type": "leaf",
             "state": {
               "type": "markdown",
               "state": {
-                "file": "deck/Qh.md",
-                "mode": "source",
-                "backlinks": true,
-                "source": false
-              }
-            }
-          },
-          {
-            "id": "802d9744d2f07ac5",
-            "type": "leaf",
-            "state": {
-              "type": "markdown",
-              "state": {
-                "file": "deck/8d.md",
-                "mode": "source",
-                "backlinks": true,
-                "source": false
-              }
-            }
-          },
-          {
-            "id": "754160f40bdfe789",
-            "type": "leaf",
-            "state": {
-              "type": "markdown",
-              "state": {
-                "file": "glossary/newton.md",
-                "mode": "source",
-                "backlinks": true,
-                "source": false
-              }
-            }
-          },
-          {
-            "id": "4041ebdfc75a29df",
-            "type": "leaf",
-            "state": {
-              "type": "markdown",
-              "state": {
-                "file": "deck/7s.md",
-                "mode": "source",
-                "backlinks": true,
-                "source": false
-              }
-            }
-          },
-          {
-            "id": "9af16c9da7dd85bb",
-            "type": "leaf",
-            "state": {
-              "type": "markdown",
-              "state": {
-                "file": "deck/2h.md",
-                "mode": "source",
-                "backlinks": true,
-                "source": false
-              }
-            }
-          },
-          {
-            "id": "12450c1e677e4db3",
-            "type": "leaf",
-            "state": {
-              "type": "markdown",
-              "state": {
-                "file": "glossary/crowley.md",
-                "mode": "source",
-                "backlinks": true,
-                "source": false
-              }
-            }
-          },
-          {
-            "id": "0e9f3c43e0976fe1",
-            "type": "leaf",
-            "state": {
-              "type": "markdown",
-              "state": {
-                "file": "glossary/anthem.md",
+                "file": "glossary/grace.md",
                 "mode": "source",
                 "backlinks": true,
                 "source": false
               }
             }
           }
-        ],
-        "currentTab": 6
+        ]
       }
     ],
     "direction": "vertical"
@@ -128,7 +49,7 @@
             "state": {
               "type": "search",
               "state": {
-                "query": "",
+                "query": "wind",
                 "matchingCase": true,
                 "explainSearch": true,
                 "collapseAll": false,
@@ -145,11 +66,13 @@
               "state": {}
             }
           }
-        ]
+        ],
+        "currentTab": 1
       }
     ],
     "direction": "horizontal",
-    "width": 200
+    "width": 200,
+    "collapsed": true
   },
   "right": {
     "id": "6b9bf3f5d8a57fca",
@@ -165,7 +88,7 @@
             "state": {
               "type": "backlink",
               "state": {
-                "file": "glossary/anthem.md",
+                "file": "glossary/grace.md",
                 "collapseAll": true,
                 "extraContext": false,
                 "sortOrder": "alphabetical",
@@ -182,7 +105,7 @@
             "state": {
               "type": "outgoing-link",
               "state": {
-                "file": "glossary/anthem.md",
+                "file": "glossary/grace.md",
                 "linksCollapsed": false,
                 "unlinkedCollapsed": true
               }
@@ -205,7 +128,7 @@
             "state": {
               "type": "outline",
               "state": {
-                "file": "glossary/anthem.md"
+                "file": "glossary/grace.md"
               }
             }
           }
@@ -228,37 +151,37 @@
       "periodic-notes:Open today": false
     }
   },
-  "active": "0e9f3c43e0976fe1",
+  "active": "7bc16b42fabd2f48",
   "lastOpenFiles": [
+    "glossary/child.md",
+    "glossary/grace.md",
+    "glossary/amphetamines.md",
+    "glossary/prayer.md",
+    "glossary/song.md",
+    "glossary/geneology.md",
+    "glossary/seeker.md",
+    "glossary/sacrificed.md",
+    "glossary/fate.md",
+    "glossary/mind.md",
+    "journal/2023-03-26.md",
+    "glossary/wind.md",
     "glossary/Untitled.md",
+    "glossary/king.md",
+    "glossary/friend.md",
+    "glossary/theogony.md",
+    "glossary/death.md",
+    "glossary/always.md",
+    "journal/2023-03-25.md",
+    "deck/2h.md",
+    "glossary/academy.md",
+    "glossary/crowley.md",
+    "glossary/religion.md",
+    "glossary/rob.md",
     "glossary/anthem.md",
+    "glossary/tara.md",
     "archive/Kika_v27.pdf",
     "archive/Unconfirmed 500322.crdownload",
-    "glossary/crowley.md",
-    "deck/2h.md",
-    "deck/joker.md",
-    "deck/Jh.md",
-    "deck/7s.md",
-    "deck/2d.md",
-    "glossary/newton.md",
-    "deck/8d.md",
-    "deck/Qh.md",
-    "deck/Kd.md",
-    "deck/10d.md",
-    "deck/7d.md",
-    "deck/Ks.md",
-    "deck/8c.md",
-    "deck/4h.md",
-    "deck/6c.md",
-    "glossary/jesus.md",
-    "deck/Qs.md",
-    "deck/Qd.md",
-    "deck/Qc.md",
-    "journal/2023-03-24.md",
     "deck",
-    "glossary/metempsychosis.md",
-    "glossary/null.md",
-    "glossary/cost.md",
     "archive/Pasted image 20230321145325.png",
     "archive/Pasted image 20230321140121.png",
     "inbox/scratch.canvas",
