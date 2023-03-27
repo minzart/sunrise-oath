@@ -11,3 +11,9 @@ BACK THEN:
 < Let's break up. >  
   
 < Sure. > OR < I love you. >
+
+
+* * * 
+
+Handstand, flipping over railing, dying.  
+His friend feels guilty.

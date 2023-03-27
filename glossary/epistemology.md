@@ -10,11 +10,11 @@ On her good advice, I quit my job. I gave my notice at summer’s end, and Alain
 
 I cleaned my room, fussing over details she fixed sooner and better. The curator was a lovely guest, bringing gifts and Charlotte. We were in bright humor from the change in the season, the shift in the wind. I did well as a host, as a man. I shaved my face, brushed my teeth, wore my shirt, and owned my life.
 
-At the Old Port, we sat on a bench. She spoke, and I learned. I asked, she asked further. We leaned into mystery, and tackled the snake, fang and venom, as it was. 
+At the Old [[Port]], we sat on a bench. She spoke, and I learned. I asked, she asked further. We leaned into mystery, and tackled the snake, fang and venom, as it was. 
 
 ![](https://sunriseoath.files.wordpress.com/2023/01/cg-bench.png?w=1024)
 
-The questions multiplied, as she said they would. Questions — at the café, a glum place for me as a customer; at ritzy establishments around the city, places where she sought secrets and traded _la bise_ with socialites, a trace of summer fever in her fashion; in the metro, on the last train of the night; in the calm of our chaste slumber, as I lay awake with her dreaming at my side, mouth open but a sliver.
+The questions multiplied, as she said they would. Questions — at the [[café]], a glum place for me as a customer; at ritzy establishments around the city, places where she sought secrets and traded _la bise_ with socialites, a trace of summer fever in her fashion; in the metro, on the last train of the night; in the calm of our chaste slumber, as I lay awake with her dreaming at my side, mouth open but a sliver.
 
 So terrifying were the answers, I should never fall to sleep with a drop of her insight. I was glad, so glad to not sleep. It was the longest September, the best of my life. I soon forgot my sunrise oath, the promise made in early July.
 

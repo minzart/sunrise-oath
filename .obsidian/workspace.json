@@ -4,20 +4,15 @@
     "type": "split",
     "children": [
       {
-        "id": "b0b7a575cf628e6d",
+        "id": "b1d70cf1324641ca",
         "type": "tabs",
         "children": [
           {
-            "id": "7bc16b42fabd2f48",
+            "id": "009decf9b277111a",
             "type": "leaf",
             "state": {
-              "type": "markdown",
-              "state": {
-                "file": "glossary/epistemology.md",
-                "mode": "source",
-                "backlinks": true,
-                "source": false
-              }
+              "type": "empty",
+              "state": {}
             }
           }
         ]
@@ -49,8 +44,8 @@
             "state": {
               "type": "search",
               "state": {
-                "query": "epistemology",
-                "matchingCase": false,
+                "query": "",
+                "matchingCase": true,
                 "explainSearch": true,
                 "collapseAll": false,
                 "extraContext": false,
@@ -71,7 +66,7 @@
       }
     ],
     "direction": "horizontal",
-    "width": 200
+    "width": 203.5
   },
   "right": {
     "id": "6b9bf3f5d8a57fca",
@@ -87,7 +82,6 @@
             "state": {
               "type": "backlink",
               "state": {
-                "file": "glossary/epistemology.md",
                 "collapseAll": true,
                 "extraContext": false,
                 "sortOrder": "alphabetical",
@@ -104,7 +98,6 @@
             "state": {
               "type": "outgoing-link",
               "state": {
-                "file": "glossary/epistemology.md",
                 "linksCollapsed": false,
                 "unlinkedCollapsed": true
               }
@@ -126,9 +119,7 @@
             "type": "leaf",
             "state": {
               "type": "outline",
-              "state": {
-                "file": "glossary/epistemology.md"
-              }
+              "state": {}
             }
           }
         ],
@@ -150,47 +141,47 @@
       "periodic-notes:Open today": false
     }
   },
-  "active": "7bc16b42fabd2f48",
+  "active": "009decf9b277111a",
   "lastOpenFiles": [
-    "journal/2023-03-26.md",
-    "glossary/grace.md",
-    "glossary/child.md",
-    "glossary/amphetamines.md",
-    "glossary/prayer.md",
-    "glossary/song.md",
-    "glossary/geneology.md",
-    "glossary/seeker.md",
-    "glossary/sacrificed.md",
-    "glossary/fate.md",
-    "glossary/mind.md",
-    "glossary/wind.md",
-    "glossary/Untitled.md",
-    "glossary/king.md",
-    "glossary/friend.md",
-    "glossary/theogony.md",
-    "glossary/death.md",
-    "glossary/always.md",
-    "journal/2023-03-25.md",
-    "deck/2h.md",
-    "glossary/academy.md",
-    "glossary/crowley.md",
-    "glossary/religion.md",
-    "glossary/rob.md",
-    "glossary/anthem.md",
-    "glossary/tara.md",
+    "list.md",
+    "journal/2023-03-27.md",
+    "glossary/regret.md",
+    "glossary/ritual.md",
+    "glossary/escher.md",
+    "glossary/shock.md",
+    "glossary/doubt.md",
+    "glossary/timeline.md",
+    "glossary/relic.md",
+    "glossary/law.md",
+    "glossary/sacrifice.md",
+    "glossary/revelation.md",
+    "glossary/neighborhood.md",
+    "glossary/link.md",
+    "index/1991.md",
+    "glossary/god.md",
+    "glossary/goddess.md",
+    "glossary/bird.md",
+    "glossary/procheiron.md",
+    "glossary/prosoche.md",
+    "glossary/teacher.md",
+    "glossary/allusion.md",
+    "glossary/myth.md",
+    "glossary/language.md",
+    "glossary/entanglement.md",
+    "glossary/vici.md",
+    "archive/Pasted image 20230321140121.png",
+    "index",
+    "archive/Pasted image 20230321145325.png",
+    "pages",
     "archive/Kika_v27.pdf",
     "archive/Unconfirmed 500322.crdownload",
     "deck",
-    "archive/Pasted image 20230321145325.png",
-    "archive/Pasted image 20230321140121.png",
     "inbox/scratch.canvas",
     "glossary/Y",
     "glossary/W",
     "glossary/V",
     "glossary/T",
     "glossary/S",
-    "glossary/R",
-    "glossary/P",
     "archive/old port girl.jpg",
     "archive/old port girl watercolor.jpg",
     "archive/hex_template_200_10.png",

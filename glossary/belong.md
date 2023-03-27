@@ -1,0 +1,1 @@
+Interactive fiction game with random walks and fateful encounters.

@@ -1,0 +1,1 @@
+Charlotte said Gale's name without him telling her, and lies that she overheard a conversation earlier.

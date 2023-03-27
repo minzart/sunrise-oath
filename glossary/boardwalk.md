@@ -18,7 +18,7 @@ Incredibly, Lauren and I were friends again by the end of the school year. I got
   
 By then, I had new friends, two girls that met at seven in the morning to read and chat at Coffee Culture near the Boardwalk. Linda’s small house was near the Chinese church, and Catherine’s manor was in a pricey neighborhood. Their houses were near everything new being built, something I envied as someone who had only a small plaza near home. Chasing the exciting life I thought they had, I relished their company. Over time, we grew close. In senior year after the Montreal exchange, I was Linda’s gym partner at the YMCA near my house, and Catherine’s boyfriend til halfway through the first semester of university. My best teenage memories were screaming and laughing for no reason with Linda, and speaking of the uncertain future with Catherine. Though, when I went to watch the first part of Mockingjay with Catherine,  
   
-Things were not the same with love in the picture, where there was once but camaraderie. Linda and I went from pals to foes after I told Catherine about a sloppy drunken evening perhaps better kept secret, and months later Catherine had enough of the neuroticism and mind games I brought from my own family. Our last date was Dairy Queen at the Boardwalk, followed by a movie at Landmark (to which Empire had sold the location at some point). We left halfway through the second part of Mockingjay, argued in the parking lot, and never saw each other again. Our anniversary, and overall a fitting memorial service.  
+Things were not the same with love in the picture, where there was once but camaraderie. Linda and I went from pals to foes after I told Catherine about a sloppy drunken evening perhaps better kept [[secret]], and months later Catherine had enough of the neuroticism and mind games I brought from my own family. Our last date was Dairy Queen at the Boardwalk, followed by a movie at Landmark (to which Empire had sold the location at some point). We left halfway through the second part of Mockingjay, argued in the parking lot, and never saw each other again. Our anniversary, and overall a fitting memorial service.  
   
 Regina took me to First Choice Haircutters, and hesitated after seeing the results.  
   
@@ -38,7 +38,7 @@ What great act of God was it for me to see [[an]] angel, to enter the gate of he
 
 Art peeks from all the senses, hiding from the eyes of those who seek it not.  
 
-As no one but the very best of us might ever seek to overcome the past, the status quo is thus that the worthy youth are burned at the altar, in [[every]] age and generation.  
+As no one but the very best of us might ever seek to overcome the past, the status quo is thus that the worthy youth are burned at the altar, in [[every]] [[age]] and generation.  
 
 The ones with most to gain rebel against their parents, deconstructing the order in which they were sternly raised by maids and governesses, the paid instruments of the domestic ruling class.  
 

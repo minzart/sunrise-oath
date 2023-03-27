@@ -1,0 +1,1 @@
+Sunview Heights has its high school near its center

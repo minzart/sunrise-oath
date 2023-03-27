@@ -1,0 +1,1 @@
+Life is too short to do everything, but too long to do nothing.

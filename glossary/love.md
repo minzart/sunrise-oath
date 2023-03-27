@@ -10,7 +10,7 @@ I kept my silence, as I always did. There was no thought I had not spared, and s
   
 “No thanks.”  
   
-“They want you there,” my secret pleaded.  
+“They want you there,” my [[secret]] pleaded.  
   
 “And as for me,” I said, “I shall be here.”  
   

@@ -24,3 +24,7 @@ I know that I will never forget her tears under the light of the moon. But for t
 
 ~In other words, I love you.
 ```
+
+Gale Jones was supposed to return to Waterloo on Canada Day, and was not allowed to go to the Old Port.  
+  
+He broke his promise, and for that he was punished by the gods.

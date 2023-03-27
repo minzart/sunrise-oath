@@ -1,0 +1,1 @@
+The Boardwalk is a short walk away.

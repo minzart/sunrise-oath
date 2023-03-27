@@ -1,0 +1,1 @@
+Daughter of Flamel is a Knight of the Order, withdrawn from the peerage to fight for the rights of all to read forbidden books. She takes in a boy who she makes her squire, and raises for many years after his father's death. He and she read in the library, and think about new ideas.

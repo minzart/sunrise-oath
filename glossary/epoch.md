@@ -1,0 +1,1 @@
+Stan Dragland, founder of Brick, died on August 2, 2022.

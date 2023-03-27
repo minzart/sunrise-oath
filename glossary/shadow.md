@@ -1,0 +1,1 @@
+Selene talks about how the characters for "speak" and "sun" are pretty much the same, hinting that Dawn is a fiction.

@@ -1,0 +1,1 @@
+[[You]] [[kill]] [[time]], [[then]] [[time]] [[kills]] [[you]].

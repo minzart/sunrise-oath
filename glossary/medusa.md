@@ -1,0 +1,1 @@
+Eroica tells Gale to not look directly at Tara, and thus conquer her. In the end, he holds her gaze honestly for the first time, and was captivated.

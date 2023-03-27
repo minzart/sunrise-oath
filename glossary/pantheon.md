@@ -4,6 +4,6 @@ Alone is the self, and selfish are the lone.
   
 No joy can I withstand before I fall, and come up with a new excuse to suffer, to choose the path of nature back to dust and clay, forsaking God and losing perfect grace, meeting the morning star in mankind, rendered by the light of day in vivid image, the mirage that I have made my resting place. Why leave delusion when one chances on it? If the heart want truth, and truly wants, what shows the story of a splendid lie, a beginning and end spun out by chattering hands that play the muse as though it were a toy, when it is cherished as the Way?  
   
-Be the tree, the drinker of water, the eater of earth, the bender of air, the taker of fire.  
+Be the tree, the drinker of water, the eater of [[earth]], the bender of air, the taker of fire.  
   
 Beauty and the Beast, Madonna and the Philistine, Mother and the Brute, Woman and the Man.

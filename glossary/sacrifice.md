@@ -1,0 +1,1 @@
+Rachel could've went to Italy when she was younger, but decided to stay in Waterloo to be closer to Solomon.

@@ -1,8 +1,8 @@
 {
-  "trashOption": "local",
+  "trashOption": "system",
   "promptDelete": false,
   "alwaysUpdateLinks": false,
-  "newFileLocation": "folder",
+  "newFileLocation": "root",
   "newFileFolderPath": "glossary",
   "attachmentFolderPath": "archive",
   "showInlineTitle": false
