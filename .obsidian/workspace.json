@@ -13,7 +13,7 @@
             "state": {
               "type": "markdown",
               "state": {
-                "file": "glossary/grace.md",
+                "file": "glossary/epistemology.md",
                 "mode": "source",
                 "backlinks": true,
                 "source": false
@@ -49,8 +49,8 @@
             "state": {
               "type": "search",
               "state": {
-                "query": "wind",
-                "matchingCase": true,
+                "query": "epistemology",
+                "matchingCase": false,
                 "explainSearch": true,
                 "collapseAll": false,
                 "extraContext": false,
@@ -71,8 +71,7 @@
       }
     ],
     "direction": "horizontal",
-    "width": 200,
-    "collapsed": true
+    "width": 200
   },
   "right": {
     "id": "6b9bf3f5d8a57fca",
@@ -88,7 +87,7 @@
             "state": {
               "type": "backlink",
               "state": {
-                "file": "glossary/grace.md",
+                "file": "glossary/epistemology.md",
                 "collapseAll": true,
                 "extraContext": false,
                 "sortOrder": "alphabetical",
@@ -105,7 +104,7 @@
             "state": {
               "type": "outgoing-link",
               "state": {
-                "file": "glossary/grace.md",
+                "file": "glossary/epistemology.md",
                 "linksCollapsed": false,
                 "unlinkedCollapsed": true
               }
@@ -128,7 +127,7 @@
             "state": {
               "type": "outline",
               "state": {
-                "file": "glossary/grace.md"
+                "file": "glossary/epistemology.md"
               }
             }
           }
@@ -153,8 +152,9 @@
   },
   "active": "7bc16b42fabd2f48",
   "lastOpenFiles": [
-    "glossary/child.md",
+    "journal/2023-03-26.md",
     "glossary/grace.md",
+    "glossary/child.md",
     "glossary/amphetamines.md",
     "glossary/prayer.md",
     "glossary/song.md",
@@ -163,7 +163,6 @@
     "glossary/sacrificed.md",
     "glossary/fate.md",
     "glossary/mind.md",
-    "journal/2023-03-26.md",
     "glossary/wind.md",
     "glossary/Untitled.md",
     "glossary/king.md",
