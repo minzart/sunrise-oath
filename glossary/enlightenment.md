@@ -1,0 +1,1 @@
+Athena's statues were spared during the French Revolution.

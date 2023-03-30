@@ -11,11 +11,30 @@
             "id": "009decf9b277111a",
             "type": "leaf",
             "state": {
-              "type": "empty",
-              "state": {}
+              "type": "markdown",
+              "state": {
+                "file": "journal/2023-03-29.md",
+                "mode": "source",
+                "backlinks": true,
+                "source": false
+              }
+            }
+          },
+          {
+            "id": "95493832a1d1f7b8",
+            "type": "leaf",
+            "state": {
+              "type": "markdown",
+              "state": {
+                "file": "prismata.md",
+                "mode": "source",
+                "backlinks": true,
+                "source": false
+              }
             }
           }
-        ]
+        ],
+        "currentTab": 1
       }
     ],
     "direction": "vertical"
@@ -82,6 +101,7 @@
             "state": {
               "type": "backlink",
               "state": {
+                "file": "prismata.md",
                 "collapseAll": true,
                 "extraContext": false,
                 "sortOrder": "alphabetical",
@@ -98,6 +118,7 @@
             "state": {
               "type": "outgoing-link",
               "state": {
+                "file": "prismata.md",
                 "linksCollapsed": false,
                 "unlinkedCollapsed": true
               }
@@ -119,7 +140,9 @@
             "type": "leaf",
             "state": {
               "type": "outline",
-              "state": {}
+              "state": {
+                "file": "prismata.md"
+              }
             }
           }
         ],
@@ -141,9 +164,29 @@
       "periodic-notes:Open today": false
     }
   },
-  "active": "009decf9b277111a",
+  "active": "95493832a1d1f7b8",
   "lastOpenFiles": [
-    "list.md",
+    "journal/2023-03-30.md",
+    "prismata.md",
+    "glossary/home.md",
+    "journal/2023-03-29.md",
+    "glossary/athena.md",
+    "glossary/theogony.md",
+    "glossary/enlightenment.md",
+    "glossary/snake.md",
+    "index/8219.md",
+    "index/1753.md",
+    "index/1999.md",
+    "index/1991.md",
+    "index/1.md",
+    "index/0.md",
+    "archive/Pasted image 20230329150730.png",
+    "glossary/magic.md",
+    "archive/hex_template_200_10.png",
+    "magic.md",
+    "glossary/epithet.md",
+    "glossary/ai.md",
+    "glossary/list.md",
     "journal/2023-03-27.md",
     "glossary/regret.md",
     "glossary/ritual.md",
@@ -151,24 +194,6 @@
     "glossary/shock.md",
     "glossary/doubt.md",
     "glossary/timeline.md",
-    "glossary/relic.md",
-    "glossary/law.md",
-    "glossary/sacrifice.md",
-    "glossary/revelation.md",
-    "glossary/neighborhood.md",
-    "glossary/link.md",
-    "index/1991.md",
-    "glossary/god.md",
-    "glossary/goddess.md",
-    "glossary/bird.md",
-    "glossary/procheiron.md",
-    "glossary/prosoche.md",
-    "glossary/teacher.md",
-    "glossary/allusion.md",
-    "glossary/myth.md",
-    "glossary/language.md",
-    "glossary/entanglement.md",
-    "glossary/vici.md",
     "archive/Pasted image 20230321140121.png",
     "index",
     "archive/Pasted image 20230321145325.png",
@@ -184,7 +209,6 @@
     "glossary/S",
     "archive/old port girl.jpg",
     "archive/old port girl watercolor.jpg",
-    "archive/hex_template_200_10.png",
     "sunrise oath/workshop/_inbox_/scratch.canvas",
     "Pasted image 20230311224952.png",
     "sunrise oath/workshop/_desk_/ego/man/body/_inbox_/scratch.canvas",
