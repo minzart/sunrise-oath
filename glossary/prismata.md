@@ -1,3 +1,5 @@
+(The following is an old Facebook post I found while scouring my Facebook for local RPG playgroups.)
+
 December 23rd, 2014 to January 1st, 2015 is ten days. Since I would otherwise be wasting away at home practicing piano, I will try to do some writing on each of these ten days. The first nine days will be self-reflections, and the tenth, on New Year's Day, will look forward. This will be Post 2/10.
 
 ***

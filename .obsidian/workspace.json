@@ -8,12 +8,12 @@
         "type": "tabs",
         "children": [
           {
-            "id": "009decf9b277111a",
+            "id": "590de76e0d9f0e52",
             "type": "leaf",
             "state": {
               "type": "markdown",
               "state": {
-                "file": "journal/2023-03-29.md",
+                "file": "glossary/reality.md",
                 "mode": "source",
                 "backlinks": true,
                 "source": false
@@ -21,12 +21,12 @@
             }
           },
           {
-            "id": "95493832a1d1f7b8",
+            "id": "e427bf8c41a3f343",
             "type": "leaf",
             "state": {
               "type": "markdown",
               "state": {
-                "file": "prismata.md",
+                "file": "deck/3d.md",
                 "mode": "source",
                 "backlinks": true,
                 "source": false
@@ -80,8 +80,7 @@
               "state": {}
             }
           }
-        ],
-        "currentTab": 1
+        ]
       }
     ],
     "direction": "horizontal",
@@ -101,7 +100,7 @@
             "state": {
               "type": "backlink",
               "state": {
-                "file": "prismata.md",
+                "file": "deck/3d.md",
                 "collapseAll": true,
                 "extraContext": false,
                 "sortOrder": "alphabetical",
@@ -118,7 +117,7 @@
             "state": {
               "type": "outgoing-link",
               "state": {
-                "file": "prismata.md",
+                "file": "deck/3d.md",
                 "linksCollapsed": false,
                 "unlinkedCollapsed": true
               }
@@ -141,7 +140,7 @@
             "state": {
               "type": "outline",
               "state": {
-                "file": "prismata.md"
+                "file": "deck/3d.md"
               }
             }
           }
@@ -164,36 +163,36 @@
       "periodic-notes:Open today": false
     }
   },
-  "active": "95493832a1d1f7b8",
+  "active": "e427bf8c41a3f343",
   "lastOpenFiles": [
-    "journal/2023-03-30.md",
-    "prismata.md",
+    "deck/Qh.md",
+    "deck/3d.md",
+    "deck/7c.md",
+    "deck/9d.md",
+    "deck/7h.md",
+    "deck/10c.md",
+    "deck/4h.md",
+    "deck/Js.md",
+    "deck/9s.md",
+    "deck/As.md",
+    "index/66.md",
+    "glossary/reality.md",
+    "journal/2023-04-03.md",
+    "glossary/death.md",
+    "glossary/rollplay.md",
+    "glossary/session.md",
+    "journal/2023-04-02.md",
+    "glossary/hospice.md",
+    "glossary/create.md",
+    "journal/2023-03-31.md",
     "glossary/home.md",
+    "journal/2023-03-11.md",
+    "glossary/prismata.md",
+    "journal/2023-03-30.md",
     "journal/2023-03-29.md",
     "glossary/athena.md",
-    "glossary/theogony.md",
-    "glossary/enlightenment.md",
-    "glossary/snake.md",
-    "index/8219.md",
-    "index/1753.md",
-    "index/1999.md",
-    "index/1991.md",
-    "index/1.md",
-    "index/0.md",
     "archive/Pasted image 20230329150730.png",
-    "glossary/magic.md",
     "archive/hex_template_200_10.png",
-    "magic.md",
-    "glossary/epithet.md",
-    "glossary/ai.md",
-    "glossary/list.md",
-    "journal/2023-03-27.md",
-    "glossary/regret.md",
-    "glossary/ritual.md",
-    "glossary/escher.md",
-    "glossary/shock.md",
-    "glossary/doubt.md",
-    "glossary/timeline.md",
     "archive/Pasted image 20230321140121.png",
     "index",
     "archive/Pasted image 20230321145325.png",
