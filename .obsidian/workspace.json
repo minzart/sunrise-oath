@@ -8,33 +8,19 @@
         "type": "tabs",
         "children": [
           {
-            "id": "590de76e0d9f0e52",
-            "type": "leaf",
-            "state": {
-              "type": "markdown",
-              "state": {
-                "file": "glossary/reality.md",
-                "mode": "source",
-                "backlinks": true,
-                "source": false
-              }
-            }
-          },
-          {
             "id": "e427bf8c41a3f343",
             "type": "leaf",
             "state": {
               "type": "markdown",
               "state": {
-                "file": "deck/3d.md",
+                "file": "hortus.md",
                 "mode": "source",
                 "backlinks": true,
                 "source": false
               }
             }
           }
-        ],
-        "currentTab": 1
+        ]
       }
     ],
     "direction": "vertical"
@@ -100,7 +86,7 @@
             "state": {
               "type": "backlink",
               "state": {
-                "file": "deck/3d.md",
+                "file": "hortus.md",
                 "collapseAll": true,
                 "extraContext": false,
                 "sortOrder": "alphabetical",
@@ -117,7 +103,7 @@
             "state": {
               "type": "outgoing-link",
               "state": {
-                "file": "deck/3d.md",
+                "file": "hortus.md",
                 "linksCollapsed": false,
                 "unlinkedCollapsed": true
               }
@@ -140,7 +126,7 @@
             "state": {
               "type": "outline",
               "state": {
-                "file": "deck/3d.md"
+                "file": "hortus.md"
               }
             }
           }
@@ -165,8 +151,15 @@
   },
   "active": "e427bf8c41a3f343",
   "lastOpenFiles": [
-    "deck/Qh.md",
+    "journal/2023-04-05.md",
+    "hortus.md",
+    "glossary/sagittarius.md",
+    "glossary/leo.md",
+    "glossary/capricorn.md",
+    "journal/2023-04-03.md",
+    "glossary/reality.md",
     "deck/3d.md",
+    "deck/Qh.md",
     "deck/7c.md",
     "deck/9d.md",
     "deck/7h.md",
@@ -176,8 +169,6 @@
     "deck/9s.md",
     "deck/As.md",
     "index/66.md",
-    "glossary/reality.md",
-    "journal/2023-04-03.md",
     "glossary/death.md",
     "glossary/rollplay.md",
     "glossary/session.md",
@@ -186,11 +177,6 @@
     "glossary/create.md",
     "journal/2023-03-31.md",
     "glossary/home.md",
-    "journal/2023-03-11.md",
-    "glossary/prismata.md",
-    "journal/2023-03-30.md",
-    "journal/2023-03-29.md",
-    "glossary/athena.md",
     "archive/Pasted image 20230329150730.png",
     "archive/hex_template_200_10.png",
     "archive/Pasted image 20230321140121.png",
