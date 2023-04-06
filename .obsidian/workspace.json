@@ -13,14 +13,90 @@
             "state": {
               "type": "markdown",
               "state": {
-                "file": "hortus.md",
+                "file": "journal/2023-04-06.md",
                 "mode": "source",
                 "backlinks": true,
                 "source": false
               }
             }
+          },
+          {
+            "id": "49db82ef115f974e",
+            "type": "leaf",
+            "state": {
+              "type": "markdown",
+              "state": {
+                "file": "map/2,0.md",
+                "mode": "source",
+                "backlinks": true,
+                "source": false
+              }
+            }
+          },
+          {
+            "id": "1f99cd5e2e5074be",
+            "type": "leaf",
+            "state": {
+              "type": "markdown",
+              "state": {
+                "file": "map/700,0.md",
+                "mode": "source",
+                "backlinks": true,
+                "source": false
+              }
+            }
+          },
+          {
+            "id": "d74db64a47e40d87",
+            "type": "leaf",
+            "state": {
+              "type": "markdown",
+              "state": {
+                "file": "map/700,0.md",
+                "mode": "source",
+                "backlinks": true,
+                "source": false
+              }
+            }
+          },
+          {
+            "id": "111ac66591c07c52",
+            "type": "leaf",
+            "state": {
+              "type": "markdown",
+              "state": {
+                "file": "map/703,-1.md",
+                "mode": "source",
+                "backlinks": true,
+                "source": false
+              }
+            }
+          },
+          {
+            "id": "9fca8aaef4fb3f29",
+            "type": "leaf",
+            "state": {
+              "type": "markdown",
+              "state": {
+                "file": "glossary/capricorn.md",
+                "mode": "source",
+                "backlinks": true,
+                "source": false
+              }
+            }
+          },
+          {
+            "id": "cfd80ab27c55636f",
+            "type": "leaf",
+            "state": {
+              "type": "image",
+              "state": {
+                "file": "archive/hex_template_200_10.png"
+              }
+            }
           }
-        ]
+        ],
+        "currentTab": 6
       }
     ],
     "direction": "vertical"
@@ -49,7 +125,7 @@
             "state": {
               "type": "search",
               "state": {
-                "query": "",
+                "query": "home",
                 "matchingCase": true,
                 "explainSearch": true,
                 "collapseAll": false,
@@ -86,7 +162,7 @@
             "state": {
               "type": "backlink",
               "state": {
-                "file": "hortus.md",
+                "file": "archive/hex_template_200_10.png",
                 "collapseAll": true,
                 "extraContext": false,
                 "sortOrder": "alphabetical",
@@ -103,7 +179,7 @@
             "state": {
               "type": "outgoing-link",
               "state": {
-                "file": "hortus.md",
+                "file": "archive/hex_template_200_10.png",
                 "linksCollapsed": false,
                 "unlinkedCollapsed": true
               }
@@ -126,7 +202,7 @@
             "state": {
               "type": "outline",
               "state": {
-                "file": "hortus.md"
+                "file": "archive/hex_template_200_10.png"
               }
             }
           }
@@ -149,39 +225,48 @@
       "periodic-notes:Open today": false
     }
   },
-  "active": "e427bf8c41a3f343",
+  "active": "cfd80ab27c55636f",
   "lastOpenFiles": [
-    "journal/2023-04-05.md",
-    "hortus.md",
-    "glossary/sagittarius.md",
-    "glossary/leo.md",
+    "archive/Pasted image 20230321140121.png",
+    "archive/Pasted image 20230406150931.png",
+    "archive/Pasted image 20230406150948.png",
+    "archive/Pasted image 20230406151022.png",
+    "archive/Pasted image 20230406151046.png",
+    "archive/Pasted image 20230406151103.png",
+    "archive/Pasted image 20230406151212.png",
+    "archive/Pasted image 20230321145325.png",
+    "journal/2023-03.md",
+    "journal/2023-W14.md",
+    "journal/2023-04-06.md",
+    "map/-1,0.md",
+    "map/0,0.md",
+    "glossary/origin.md",
+    "glossary/genesis.md",
+    "glossary/home.md",
+    "glossary/sidus.md",
     "glossary/capricorn.md",
     "journal/2023-04-03.md",
-    "glossary/reality.md",
-    "deck/3d.md",
-    "deck/Qh.md",
-    "deck/7c.md",
-    "deck/9d.md",
-    "deck/7h.md",
-    "deck/10c.md",
-    "deck/4h.md",
-    "deck/Js.md",
-    "deck/9s.md",
-    "deck/As.md",
-    "index/66.md",
-    "glossary/death.md",
-    "glossary/rollplay.md",
-    "glossary/session.md",
-    "journal/2023-04-02.md",
-    "glossary/hospice.md",
-    "glossary/create.md",
-    "journal/2023-03-31.md",
-    "glossary/home.md",
+    "glossary/leo.md",
+    "journal/2023-04-05.md",
+    "glossary/sagittarius.md",
+    "glossary/virgo.md",
+    "glossary/campaign.md",
+    "map/2,0.md",
+    "map/100,0.md",
+    "map/700,0.md",
+    "map/703,-1.md",
+    "map/703,1.md",
+    "map/704,0.md",
+    "map/20000,0.md",
+    "glossary/circumference.md",
+    "map/703,0.md",
+    "map",
+    "map/map.canvas",
+    "map",
+    "deck/desktop.ini",
     "archive/Pasted image 20230329150730.png",
     "archive/hex_template_200_10.png",
-    "archive/Pasted image 20230321140121.png",
     "index",
-    "archive/Pasted image 20230321145325.png",
     "pages",
     "archive/Kika_v27.pdf",
     "archive/Unconfirmed 500322.crdownload",
@@ -189,13 +274,7 @@
     "inbox/scratch.canvas",
     "glossary/Y",
     "glossary/W",
-    "glossary/V",
-    "glossary/T",
-    "glossary/S",
-    "archive/old port girl.jpg",
-    "archive/old port girl watercolor.jpg",
     "sunrise oath/workshop/_inbox_/scratch.canvas",
-    "Pasted image 20230311224952.png",
     "sunrise oath/workshop/_desk_/ego/man/body/_inbox_/scratch.canvas",
     "sunrise oath/workshop/_desk_/ego/man/mind/canvas/index.canvas"
   ]

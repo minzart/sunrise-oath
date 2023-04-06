@@ -11,6 +11,8 @@ A drunk man will find his way home, but a drunk bird may get lost forever. — S
 
 Turn-based game (maybe ADV VN format). Board state is updated every turn. No true ending to the game, meant to be a place to go back to. Every turn, the player progresses the clock one hour. He befriends a bird in a cage, and eventually lets it out. It promises to come back, and from then on sporadic conversations with the bird are the main emotional thread.
 
+[Google Doc](https://docs.google.com/document/d/1BHqcTDLKla_fcFlUmrpV3iQhzGAVAGJUwrOW4CxQ53c?authuser=0)
+
 HOME 
 
 “A drunk man will find his way home, but a drunk bird may get lost forever.” — Shizuo Kakutani 
