@@ -8,12 +8,12 @@
         "type": "tabs",
         "children": [
           {
-            "id": "e427bf8c41a3f343",
+            "id": "16d24520adb75273",
             "type": "leaf",
             "state": {
               "type": "markdown",
               "state": {
-                "file": "journal/2023-04-06.md",
+                "file": "map/3,0.md",
                 "mode": "source",
                 "backlinks": true,
                 "source": false
@@ -21,82 +21,20 @@
             }
           },
           {
-            "id": "49db82ef115f974e",
+            "id": "3c693a50112b6544",
             "type": "leaf",
             "state": {
               "type": "markdown",
               "state": {
-                "file": "map/2,0.md",
+                "file": "journal/2023-04-12.md",
                 "mode": "source",
                 "backlinks": true,
                 "source": false
-              }
-            }
-          },
-          {
-            "id": "1f99cd5e2e5074be",
-            "type": "leaf",
-            "state": {
-              "type": "markdown",
-              "state": {
-                "file": "map/700,0.md",
-                "mode": "source",
-                "backlinks": true,
-                "source": false
-              }
-            }
-          },
-          {
-            "id": "d74db64a47e40d87",
-            "type": "leaf",
-            "state": {
-              "type": "markdown",
-              "state": {
-                "file": "map/700,0.md",
-                "mode": "source",
-                "backlinks": true,
-                "source": false
-              }
-            }
-          },
-          {
-            "id": "111ac66591c07c52",
-            "type": "leaf",
-            "state": {
-              "type": "markdown",
-              "state": {
-                "file": "map/703,-1.md",
-                "mode": "source",
-                "backlinks": true,
-                "source": false
-              }
-            }
-          },
-          {
-            "id": "9fca8aaef4fb3f29",
-            "type": "leaf",
-            "state": {
-              "type": "markdown",
-              "state": {
-                "file": "glossary/capricorn.md",
-                "mode": "source",
-                "backlinks": true,
-                "source": false
-              }
-            }
-          },
-          {
-            "id": "cfd80ab27c55636f",
-            "type": "leaf",
-            "state": {
-              "type": "image",
-              "state": {
-                "file": "archive/hex_template_200_10.png"
               }
             }
           }
         ],
-        "currentTab": 6
+        "currentTab": 1
       }
     ],
     "direction": "vertical"
@@ -125,9 +63,9 @@
             "state": {
               "type": "search",
               "state": {
-                "query": "home",
-                "matchingCase": true,
-                "explainSearch": true,
+                "query": "",
+                "matchingCase": false,
+                "explainSearch": false,
                 "collapseAll": false,
                 "extraContext": false,
                 "sortOrder": "alphabetical"
@@ -162,7 +100,7 @@
             "state": {
               "type": "backlink",
               "state": {
-                "file": "archive/hex_template_200_10.png",
+                "file": "journal/2023-04-12.md",
                 "collapseAll": true,
                 "extraContext": false,
                 "sortOrder": "alphabetical",
@@ -179,7 +117,7 @@
             "state": {
               "type": "outgoing-link",
               "state": {
-                "file": "archive/hex_template_200_10.png",
+                "file": "journal/2023-04-12.md",
                 "linksCollapsed": false,
                 "unlinkedCollapsed": true
               }
@@ -202,7 +140,7 @@
             "state": {
               "type": "outline",
               "state": {
-                "file": "archive/hex_template_200_10.png"
+                "file": "journal/2023-04-12.md"
               }
             }
           }
@@ -225,8 +163,35 @@
       "periodic-notes:Open today": false
     }
   },
-  "active": "cfd80ab27c55636f",
+  "active": "3c693a50112b6544",
   "lastOpenFiles": [
+    "glossary/leo.md",
+    "journal/2023-04-12.md",
+    "glossary/pavi.md",
+    "glossary/enil.md",
+    "glossary/corrin.md",
+    "glossary/himero.md",
+    "journal/2023-04-11.md",
+    "glossary/azi.md",
+    "glossary/zephyr.md",
+    "glossary/starhaven.md",
+    "glossary/jesus.md",
+    "glossary/campaign.md",
+    "glossary/lea.md",
+    "map/4,0.md",
+    "map/3,0.md",
+    "glossary/cancer.md",
+    "journal/2023-04-10.md",
+    "glossary/caroline.md",
+    "map/2,0.md",
+    "index/0.md",
+    "index/467.md",
+    "glossary/aldous.md",
+    "glossary/raiment.md",
+    "glossary/simon.md",
+    "glossary/bear.md",
+    "glossary/donne.md",
+    "archive/hex_template_200_10.png",
     "archive/Pasted image 20230321140121.png",
     "archive/Pasted image 20230406150931.png",
     "archive/Pasted image 20230406150948.png",
@@ -235,37 +200,11 @@
     "archive/Pasted image 20230406151103.png",
     "archive/Pasted image 20230406151212.png",
     "archive/Pasted image 20230321145325.png",
-    "journal/2023-03.md",
-    "journal/2023-W14.md",
-    "journal/2023-04-06.md",
-    "map/-1,0.md",
-    "map/0,0.md",
-    "glossary/origin.md",
-    "glossary/genesis.md",
-    "glossary/home.md",
-    "glossary/sidus.md",
-    "glossary/capricorn.md",
-    "journal/2023-04-03.md",
-    "glossary/leo.md",
-    "journal/2023-04-05.md",
-    "glossary/sagittarius.md",
-    "glossary/virgo.md",
-    "glossary/campaign.md",
-    "map/2,0.md",
-    "map/100,0.md",
-    "map/700,0.md",
-    "map/703,-1.md",
-    "map/703,1.md",
-    "map/704,0.md",
-    "map/20000,0.md",
-    "glossary/circumference.md",
-    "map/703,0.md",
     "map",
     "map/map.canvas",
     "map",
     "deck/desktop.ini",
     "archive/Pasted image 20230329150730.png",
-    "archive/hex_template_200_10.png",
     "index",
     "pages",
     "archive/Kika_v27.pdf",

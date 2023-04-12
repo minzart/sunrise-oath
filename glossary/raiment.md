@@ -1,0 +1,1 @@
+We are more than the clothes on our backs.

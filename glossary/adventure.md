@@ -2,7 +2,7 @@
 
 I walk toward the cabin.
 
-**Male elf in cabin. "You stink," he says.**
+**Male [[elf]] in cabin. "You stink," he says.**
 
 "You don't," I counter."
 
