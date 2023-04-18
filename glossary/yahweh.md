@@ -1,0 +1,1 @@
+[[God]], as [[known]] to the Hebrews.

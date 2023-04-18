@@ -1,0 +1,1 @@
+[[sleeping|Sleeping]] in the [[same]] [[bed]], [[dreaming]] [[different]] [[dreams]].

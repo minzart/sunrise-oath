@@ -1,4 +1,4 @@
-Copied and adapted from YouTube comments:
+Copied and adapted from [[YouTube]] comments:
 
 >I'm a hospice nurse so I'll give some of my thoughts from just from my anecdotal experiences with my patients. 
 >
