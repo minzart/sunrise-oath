@@ -12,7 +12,7 @@ My friend, while your words are poetic, they do not align with the reality of ou
 
 "I will not choose. I will stay here.""
 
-I understand your desire to stay here. Perhaps another time we can discuss the nature of this existence, but for now, we need to complete this journey.
+I understand your desire to stay here. Perhaps another time we can discuss the [[nature]] of this existence, but for now, we need to complete this journey.
 
 "I want you to choose."
 
@@ -58,7 +58,7 @@ I cannot deny that there were instances in the past when my people may have acte
  
 Our path leads through a dense thicket of trees, but fear not. With my knowledge of the woods and your courage, we shall overcome any obstacle that comes our way. 
 
-We press on, moving deeper into the forest. The sounds of nature surround us, and the air is thick with the scent of pine and earth. Be on guard, my friend, for danger could be lurking around every corner. We have each other and a deep well of inner strength to draw upon. 
+We press on, moving deeper into the forest. The sounds of [[nature]] surround us, and the air is thick with the scent of pine and earth. Be on guard, my friend, for danger could be lurking around every corner. We have each other and a deep well of inner strength to draw upon. 
 
 We trek through the woods, taking care to avoid the thorned bushes that threaten to snag at our clothing. The sun is setting, casting long shadows across the ground. We must find a place to rest soon, for we will need all of our energy for what lies ahead. 
 

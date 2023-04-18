@@ -1,1 +1,1 @@
-How many glasses have we drank, and failed to taste?
+[[How]] [[many]] [[cups]] [[have]] [[we]] [[drank]], [[allowed]] [[to]] [[make]] [[us]] [[drunk]], [[and]] [[failed]] [[to]] [[taste]]?

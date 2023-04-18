@@ -39,11 +39,13 @@ SIDEBAR_COLLAPSED = "y"
 FOOTER = ""
 # (Optional, default main) Root section name.
 ROOT_SECTION_NAME = "main"
+
 # (Optional) visjs graph options. Can remove if desired.
 GRAPH_OPTIONS = """
         {
         	nodes: {
         		shape: "dot",
+				size: "10",
         		color: isDark() ? "#8c8e91" : "#dee2e6",
         		font: {
         			face: "Inter",
@@ -70,7 +72,8 @@ GRAPH_OPTIONS = """
         	height: "100%",
         	width: "100%",
         	physics: {
-        		solver: "repulsion",
+        		solver: "barnesHut",
+				maxVelocity: "10",
         	},
         }
         """

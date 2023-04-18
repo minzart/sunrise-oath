@@ -1,0 +1,1 @@
+[[One]] [[for]] [[every]] [[star]], [[marked]] [[as]] [[bullet]] [[points]] [[in]] [[the]] [[minds]] [[of]] [[God]]’s [[abiding]] [[angels]].

@@ -12,7 +12,7 @@ ancra
 scripture  
 DAO  
 prophet  
-nature  
+[[nature]]  
   
 blog  
 SUNRISE OATH  

@@ -6,7 +6,7 @@ Taverner
   
 My fiancée and I rarely met alone in private. I stayed over at Louise's place only once, after having sex in her remodeled garage.  
   
-_We are so in love,_ she said that night, and pressed her naked body against me. _I pray tonight will not ruin it._  
+_We are so in love,_ she said that night, and pressed her naked [[body]] against me. _I pray tonight will not ruin it._  
   
 It was on Valentine's Day earlier that year. She had a shock earlier that evening, and wanted me by her side. That brush with death changed her, and made her so beautiful. She was loud, a sighing soprano seductress, and was more sensual than she ever was before.  
   

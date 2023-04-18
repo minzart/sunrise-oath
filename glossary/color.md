@@ -10,7 +10,7 @@ Red, impulse and instinct itself, is the first human acting in paradise, sans sh
 
 Artifice, the creation of tools and the mastery of material, is associated with Cain and Vulcan, the first artisans. 
 
-Green, the appeal to and participation in nature, is the first in a long line of human-created institutions, in the form of might makes right. 
+Green, the appeal to and participation in [[nature]], is the first in a long line of human-created institutions, in the form of might makes right. 
 
 Blue, the formalized and structured thought that came from literary and rhetorical traditions, made words (and "the Word"). And then with the emergence of an even larger multitude of multitudes (cells are to humans what humans are to humanity), now there is a new type of "sight". 
 

@@ -7,7 +7,7 @@ BRANN BRONZEBEARD
 8  14 10 32
 ```
 
-Brann is a tall, pale man with the body of a hungry peasant and the mind of a skilled tactician. A scar below his right eye comes from fighting enemies that took his parents from him. Since that difficult childhood, he has cared for himself and wandered the world outside of his native Byzantine Turkey. With few friends, he has made his name as a solo adventurer. He is always running from where he is.
+Brann is a tall, pale man with the [[body]] of a hungry peasant and the mind of a skilled tactician. A scar below his right eye comes from fighting enemies that took his parents from him. Since that difficult childhood, he has cared for himself and wandered the world outside of his native Byzantine Turkey. With few friends, he has made his name as a solo adventurer. He is always running from where he is.
 
 He meets [[Saad]] and the bartender at [[horn|Horn]] Tavern. Tasked by the latter to accost and detain the former, he ends up drugged by the degenerate man. Saad forces Brann to disclose his patron, then upon hearing the man's criticisms pays the adventurer to shut up.
 

@@ -13,7 +13,7 @@
             "state": {
               "type": "markdown",
               "state": {
-                "file": "glossary/eternity.md",
+                "file": "glossary/body.md",
                 "mode": "source",
                 "backlinks": true,
                 "source": false
@@ -50,7 +50,7 @@
               "type": "search",
               "state": {
                 "query": "",
-                "matchingCase": false,
+                "matchingCase": true,
                 "explainSearch": false,
                 "collapseAll": false,
                 "extraContext": false,
@@ -86,7 +86,7 @@
             "state": {
               "type": "backlink",
               "state": {
-                "file": "glossary/eternity.md",
+                "file": "glossary/body.md",
                 "collapseAll": true,
                 "extraContext": false,
                 "sortOrder": "alphabetical",
@@ -103,7 +103,7 @@
             "state": {
               "type": "outgoing-link",
               "state": {
-                "file": "glossary/eternity.md",
+                "file": "glossary/body.md",
                 "linksCollapsed": false,
                 "unlinkedCollapsed": true
               }
@@ -126,7 +126,7 @@
             "state": {
               "type": "outline",
               "state": {
-                "file": "glossary/eternity.md"
+                "file": "glossary/body.md"
               }
             }
           }
@@ -149,10 +149,25 @@
       "periodic-notes:Open today": false
     }
   },
-  "active": "0cb08f050dc432bf",
+  "active": "63e5950b4619ae58",
   "lastOpenFiles": [
-    "glossary/forever.md",
+    "glossary/goddess.md",
+    "glossary/body.md",
+    "glossary/pavi.md",
+    "glossary/grace.md",
+    "glossary/nature.md",
+    "glossary/adventure.md",
+    "glossary/of.md",
+    "journal/2023-03-22.md",
+    "and] [[grace.md",
+    "glossary/flesh.md",
+    "glossary/father.md",
+    "glossary/trinity.md",
+    "glossary/writer.md",
+    "glossary/dawn.md",
+    "glossary/number.md",
     "glossary/eternity.md",
+    "glossary/forever.md",
     "glossary/with.md",
     "glossary/good.md",
     "glossary/way.md",
@@ -162,21 +177,6 @@
     "glossary/knowledge.md",
     "glossary/choice.md",
     "glossary/artist.md",
-    "glossary/marriage.md",
-    "glossary/prophecy.md",
-    "glossary/miracles.md",
-    "glossary/known.md",
-    "glossary/yahweh.md",
-    "glossary/god.md",
-    "glossary/saint.md",
-    "glossary/lawrence.md",
-    "journal/2023-04-18.md",
-    "glossary/heresy.md",
-    "journal/2023-04-17.md",
-    "glossary/drelil.md",
-    "glossary/resonance.md",
-    "journal/2023-04-15.md",
-    "journal/2023-04-13.md",
     "journal/Untitled",
     "archive/hex_template_200_10.png",
     "archive/Pasted image 20230321140121.png",

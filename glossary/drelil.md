@@ -12,7 +12,7 @@ WIL: 11
 
 ### Equipment
 
--   **Armor:** No upper body protection, a Shield (+1 Armor).
+-   **Armor:** No upper [[body]] protection, a Shield (+1 Armor).
 -   **Weapon:** Crossbow (bulky).
 -   **Gear, tools & trinkets:** Hourglass, Repellent, and Lens.
 -   **Bonus item:** Net (stacks).

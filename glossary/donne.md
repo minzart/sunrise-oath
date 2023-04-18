@@ -1,2 +1,2 @@
-Bandit in a bear cub's body.
+Bandit in a bear cub's [[body]].
 Retainer of [[Corrin]]. 

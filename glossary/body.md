@@ -1,0 +1,1 @@
+[[The]] [[flesh]], [[and]] [[all]] [[matter]]. [[Everything]] [[is]] [[part]] [[of]] [[God]], [[whether]] [[it]] [[wills]] [[or]] [[not]].

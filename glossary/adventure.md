@@ -38,7 +38,7 @@ I share a meal with the male elf, a soup with his fresh hunt. I learn that his n
 
 "The creatures of these woods do not elude you," I say, as a question.
 
-"They offer themselves to me." He laughs. "I give them harmony and peace in these woods, away from the harsh nature into which they were born. In exchange, I may have their meat with my daily bread."
+"They offer themselves to me." He laughs. "I give them harmony and peace in these woods, away from the harsh [[nature]] into which they were born. In exchange, I may have their meat with my daily bread."
 
 "A ranch?"
 
@@ -84,7 +84,7 @@ Changing subjects: "Would [[an]] elven woman find me agreeable?"
 
 "The elven maids gossip thus: 'A happy woman's hips are broken twice: by the child, but first from her husband.'"
 
-"A poet who knows not the way of elven grace, who sees in him a savage and a noble." I repeat a story I read as a child. "Know you of Romeo and Juliet?"
+"A poet who knows not the way of elven [[grace]], who sees in him a savage and a noble." I repeat a story I read as a child. "Know you of Romeo and Juliet?"
 
 "The epic," he says, tearing up. "Wherefore art thou Romeo?"
 

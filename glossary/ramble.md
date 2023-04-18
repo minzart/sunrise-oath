@@ -6,7 +6,7 @@ The poasters are my favorite company, providing controversy, scandal, and revolu
   
 Art and action start and end with the actual. A painting shows existence yet itself exists, a loop that finds its fans with those who finished Gödel, Escher, Bach.  
   
-The sun set over his dying body. By dusk, he was gone.
+The sun set over his dying [[body]]. By dusk, he was gone.
 
 Writing is meditation.  
   

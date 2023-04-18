@@ -1,1 +1,0 @@
-[[Nothing]] but his [[words]] and [[dreams]].

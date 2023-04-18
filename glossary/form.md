@@ -12,7 +12,7 @@ Gale is ready to move on and enjoy a new life, but is stopped by a stumble. The 
   
 Chapter 4  
   
-Gale resolves to face the truth and seek it out. Through Selene's tutelage, he learns about the nature of truth and explores many subjects, reveling in the joy of knowledge, yet in the process is blind to the curator's lies. By the end of the chapter, he is forlorn and heartbroken by her delusion and betrayal.  
+Gale resolves to face the truth and seek it out. Through Selene's tutelage, he learns about the [[nature]] of truth and explores many subjects, reveling in the joy of knowledge, yet in the process is blind to the curator's lies. By the end of the chapter, he is forlorn and heartbroken by her delusion and betrayal.  
   
 Chapter 5  
   

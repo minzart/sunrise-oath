@@ -29,7 +29,7 @@ Thomas hurts Gale, so Gale denies Thomas.
   
 "You know why my parents named me Thomas?"  
 "After Aquinas."  
-"Wrong. Doubting Thomas. The guy who stuck his finger in a hole on the Messiah's body."  
+"Wrong. Doubting Thomas. The guy who stuck his finger in a hole on the Messiah's [[body]]."  
   
   
 I took out my wallet and riffled through bills. In the end, I stuffed them all in his hands. "Will you manage?"  

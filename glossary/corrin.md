@@ -25,7 +25,7 @@ Finda non-humans fascinating, poor in combat against them.
 - They declare him king, he knights them  
 - Sneevil meets them on road, tells them of a dungeon  
 - Meets elf at his cabin, accidentally insults him, does his chores to gain favor, uses sermon to feed followers  
-- Elf joins them at the fire, challenges him on the propaganda, then they commisserate over love troubles and the nature of stories, lof how he can finally tell the story of his late wife.  
+- Elf joins them at the fire, challenges him on the propaganda, then they commisserate over love troubles and the [[nature]] of stories, lof how he can finally tell the story of his late wife.  
 - Elf gives them three potions (that let him use magic at a distance)
 - Boxes steals a box  
 - [[Donne]] and [[Aldous]] tell Corrin about their life and their time studying under Rohan the Thief  
