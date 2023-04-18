@@ -44,7 +44,7 @@ ROOT_SECTION_NAME = "main"
 GRAPH_OPTIONS = """
         {
         	nodes: {
-        		shape: "circle",
+        		shape: "dot",
 				size: "10",
         		color: isDark() ? "#8c8e91" : "#dee2e6",
         		font: {
