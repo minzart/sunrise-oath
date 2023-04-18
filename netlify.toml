@@ -73,11 +73,13 @@ GRAPH_OPTIONS = """
         	width: "100%",
         	physics: {
 				barnesHut: {
-					barnesHut.gravitationalConstant = 10000,
-					barnesHut.avoidOverlap = 0.8
+					gravitationalConstant = 10000,
+					avoidOverlap = 0.8,
+					theta = 0.7,
+					centralGravity = 0.5,
 				}
         		solver: "barnesHut",
-				maxVelocity: 10,
+				maxVelocity: 100,
         	},
         }
         """
