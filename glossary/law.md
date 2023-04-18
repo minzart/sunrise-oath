@@ -36,7 +36,7 @@ Discuss plans for lunch at noon.
 
 #### Rise
 
-And the wind, the wind went out to meet with the sun . . .
+And the wind, the wind went out to meet [[with]] the sun . . .
 . . . At the dawn when the night is done.
 
 #### Noon
@@ -75,7 +75,7 @@ Open to friends and family.
 
 #### Mission
 
-Players greet each other at games with the sign.
+Players greet each other at games [[with]] the sign.
 
 #### Oath
 
@@ -97,7 +97,7 @@ https://www.reddit.com/r/mtgcube/comments/10pnn8y/ideas_for_cube_league_that_use
 
 #### Rules
 
-***Magic: the Gathering*: Arena** is a free-to-learn online educational tool. Events are Casual and are not associated with Wizards of the Coast or Duelists' Convocation International.
+***Magic: the Gathering*: Arena** is a free-to-learn online educational tool. Events are Casual and are not associated [[with]] Wizards of the Coast or Duelists' Convocation International.
 
 ### Enter
 

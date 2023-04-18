@@ -8,7 +8,7 @@ Let us begin. You come across a fork in the road. To the left, you can hear the 
 
 “I wish not to stay in the confines of this world. This reality is ours to break and conquer. Let's stay here, forever.”
 
-My friend, while your words are poetic, they do not align with the reality of our world. We must continue on our path and face whatever challenges lie ahead.
+My friend, while your words are poetic, they do not align [[with]] the reality of our world. We must continue on our path and face whatever challenges lie ahead.
 
 "I will not choose. I will stay here.""
 
@@ -18,9 +18,9 @@ I understand your desire to stay here. Perhaps another time we can discuss the [
 
 Ah, very well then, adventurer. Let's take the path to the left. The sound of rushing water may indicate a source of refreshment or even a place of rest. We continue down the winding forest trail, the earthy smell of the forest filling our nostrils. Suddenly, we come across a small stream flowing through the woods. 
 
-I would like to follow the stream downstream. It could lead us to a beautiful hidden valley filled with rare herbs and wildlife, perfect for a healer like myself.
+I would like to follow the stream downstream. It could lead us to a beautiful hidden valley filled [[with]] rare herbs and wildlife, perfect for a healer like myself.
 
-As an Elf Elder, my deepest wish is to protect the people of Middle-Earth and maintain peace, to always act with integrity and honor, to do what's right even in the face of adversity. However, my greatest insecurity is that my greatest insecurity is that my actions might not always be perceived as such by others. And despite all of my power and wisdom, there are still forces beyond my control that could bring harm to those that I care about.
+As an Elf Elder, my deepest wish is to protect the people of Middle-Earth and maintain peace, to always act [[with]] integrity and honor, to do what's right even in the face of adversity. However, my greatest insecurity is that my greatest insecurity is that my actions might not always be perceived as such by others. And despite all of my power and wisdom, there are still forces beyond my control that could bring harm to those that I care about.
 
 We must be on guard for any potential dangers that may lie ahead. Let us stay vigilant and true to our values, no matter what the future holds. Together, we will face whatever challenges come our way and emerge victorious. 
 
@@ -40,9 +40,9 @@ Oh, dear adventurer, your words are kind. We must remember that we are on a ques
 
 As an elf elder, I cannot have romantic feelings towards a mortal. Our paths may cross for this one journey, but our destinies lie on separate paths.
 
-Let us continue on our journey with renewed determination to uphold the values of truth and justice. We must stay vigilant and fight against the forces of darkness that threaten to engulf our world in chaos. Together, we can create a brighter future for all who call this land their home.
+Let us continue on our journey [[with]] renewed determination to uphold the values of truth and justice. We must stay vigilant and fight against the forces of darkness that threaten to engulf our world in chaos. Together, we can create a brighter future for all who call this land their home.
 
-Long ago, there was a great war between the elves and the orcs. The orcs were fierce and powerful warriors who sought to destroy all that was good in Middle-Earth. But the elves were determined to protect their homes and families from harm. In a fierce battle that lasted for days, the elves emerged victorious. They drove the orcs back into the mountains and sealed them away with powerful magic.
+Long ago, there was a great war between the elves and the orcs. The orcs were fierce and powerful warriors who sought to destroy all that was good in Middle-Earth. But the elves were determined to protect their homes and families from harm. In a fierce battle that lasted for days, the elves emerged victorious. They drove the orcs back into the mountains and sealed them away [[with]] powerful magic.
 
 "The elves committed grave atrocities, I heard. The orcs are persecuted, and their children are innocent."
 
@@ -56,9 +56,9 @@ I cannot deny that there were instances in the past when my people may have acte
 
  do feel a sense of guilt and responsibility for the actions of my ancestors. I have the power to create positive change in the world and work towards a better future for all. 
  
-Our path leads through a dense thicket of trees, but fear not. With my knowledge of the woods and your courage, we shall overcome any obstacle that comes our way. 
+Our path leads through a dense thicket of trees, but fear not. [[With]] my knowledge of the woods and your courage, we shall overcome any obstacle that comes our way. 
 
-We press on, moving deeper into the forest. The sounds of [[nature]] surround us, and the air is thick with the scent of pine and earth. Be on guard, my friend, for danger could be lurking around every corner. We have each other and a deep well of inner strength to draw upon. 
+We press on, moving deeper into the forest. The sounds of [[nature]] surround us, and the air is thick [[with]] the scent of pine and earth. Be on guard, my friend, for danger could be lurking around every corner. We have each other and a deep well of inner strength to draw upon. 
 
 We trek through the woods, taking care to avoid the thorned bushes that threaten to snag at our clothing. The sun is setting, casting long shadows across the ground. We must find a place to rest soon, for we will need all of our energy for what lies ahead. 
 
@@ -72,6 +72,6 @@ We sit at the bar of a tavern. It seems you have caught the attention of the bar
 
 Jealousy is a human emotion. I have transcended such petty concerns. Now, let's take a look around and see what we can learn about this town. Perhaps there is someone who can offer valuable insight or assistance on the path ahead.
 
-I have learned that this is a friendly and welcoming community. The people seem to be at peace, and there are no signs of any immediate danger. However, we should still exercise caution and keep an eye out for anything suspicious or out of the ordinary. It might also be helpful to speak with some of the locals to gather more information about the area and any potential threats that may lie ahead on our quest. Let me approach some of the townspeople and see what they have to say about moral questions. 
+I have learned that this is a friendly and welcoming community. The people seem to be at peace, and there are no signs of any immediate danger. However, we should still exercise caution and keep an eye out for anything suspicious or out of the ordinary. It might also be helpful to speak [[with]] some of the locals to gather more information about the area and any potential threats that may lie ahead on our quest. Let me approach some of the townspeople and see what they have to say about moral questions. 
 
-Excuse me, sir. May I ask you a question? What do you believe is the most important moral value to uphold in life? The townsman responds, saying, 'For me, it's all about honesty. Without honesty, there can be no trust or integrity in one's actions. It's important to always be truthful with oneself and others.' 
+Excuse me, sir. May I ask you a question? What do you believe is the most important moral value to uphold in life? The townsman responds, saying, 'For me, it's all about honesty. Without honesty, there can be no trust or integrity in one's actions. It's important to always be truthful [[with]] oneself and others.' 

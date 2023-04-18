@@ -4,7 +4,7 @@
 
 Long ago, I found an ancient trilobite in the shallows along a shore, past a waterfall running out to sea, the sights I never forgot. The arthropod was silent, and I thought of the vast wealth contained in its swollen gut.
 
-As I reflected on how to kill it, a man in a coat with strange bulges came from the woods and approached me. His raccoon face was conspiratorial, and his lizard tail wagged.
+As I reflected on how to kill it, a man in a coat [[with]] strange bulges came from the woods and approached me. His raccoon face was conspiratorial, and his lizard tail wagged.
 
 “Care for a squirrel?” he asked, and a bird's talons emerged from between two buttons.
 
@@ -30,7 +30,7 @@ Back in the island city where I once belonged, I thought of the lies I lived, th
 
 “It was not free after all,” I sighed, and removed the spider from my cuff. “Take this.”
 
-The man received the equipment in his claws and grinned with his furry face, beat the ground with his scaly appendage. I shall wait for him to meet his end on his travels, then wait for the cuff to be mine again. 
+The man received the equipment in his claws and grinned [[with]] his furry face, beat the ground [[with]] his scaly appendage. I shall wait for him to meet his end on his travels, then wait for the cuff to be mine again. 
 
 As he left, and was soon obscured by the shifting crowd, I regretted wishing for his death.
 

@@ -1,1 +1,1 @@
-A player may use a card as a one-time move for a piece on the board with no overlapping pips. A card used this way is placed in its owner’s discard pile.
+A player may use a card as a one-time move for a piece on the board [[with]] no overlapping pips. A card used this way is placed in its owner’s discard pile.

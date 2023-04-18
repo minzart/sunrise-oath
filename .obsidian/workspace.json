@@ -13,7 +13,7 @@
             "state": {
               "type": "markdown",
               "state": {
-                "file": "glossary/body.md",
+                "file": "glossary/with.md",
                 "mode": "source",
                 "backlinks": true,
                 "source": false
@@ -86,7 +86,7 @@
             "state": {
               "type": "backlink",
               "state": {
-                "file": "glossary/body.md",
+                "file": "glossary/with.md",
                 "collapseAll": true,
                 "extraContext": false,
                 "sortOrder": "alphabetical",
@@ -103,7 +103,7 @@
             "state": {
               "type": "outgoing-link",
               "state": {
-                "file": "glossary/body.md",
+                "file": "glossary/with.md",
                 "linksCollapsed": false,
                 "unlinkedCollapsed": true
               }
@@ -126,7 +126,7 @@
             "state": {
               "type": "outline",
               "state": {
-                "file": "glossary/body.md"
+                "file": "glossary/with.md"
               }
             }
           }
@@ -149,10 +149,16 @@
       "periodic-notes:Open today": false
     }
   },
-  "active": "63e5950b4619ae58",
+  "active": "0cb08f050dc432bf",
   "lastOpenFiles": [
-    "glossary/goddess.md",
+    "glossary/law.md",
+    "glossary/with.md",
+    "glossary/chatgpt.md",
+    "glossary/campaign.md",
+    "glossary/boardwalk.md",
+    "journal/2023-03-11.md",
     "glossary/body.md",
+    "glossary/goddess.md",
     "glossary/pavi.md",
     "glossary/grace.md",
     "glossary/nature.md",
@@ -168,15 +174,9 @@
     "glossary/number.md",
     "glossary/eternity.md",
     "glossary/forever.md",
-    "glossary/with.md",
     "glossary/good.md",
     "glossary/way.md",
     "glossary/anathem.md",
-    "glossary/enter.md",
-    "glossary/calvin.md",
-    "glossary/knowledge.md",
-    "glossary/choice.md",
-    "glossary/artist.md",
     "journal/Untitled",
     "archive/hex_template_200_10.png",
     "archive/Pasted image 20230321140121.png",

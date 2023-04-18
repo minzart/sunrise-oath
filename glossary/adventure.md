@@ -14,7 +14,7 @@ I sniff. "Not a thing," I say.
 
 "Only if it is not vegetarian."
 
-I share a meal with the male elf, a soup with his fresh hunt. I learn that his name is Galahad. He notices my gear, and asks: "You also hunt?"**
+I share a meal [[with]] the male elf, a soup [[with]] his fresh hunt. I learn that his name is Galahad. He notices my gear, and asks: "You also hunt?"**
 
 "I do."
 
@@ -26,7 +26,7 @@ I share a meal with the male elf, a soup with his fresh hunt. I learn that his n
 
 "Why?"
 
-"The communion of creatures with short, fleeting lives." He looks at me, pity in his eyes. "You know the suffering of a life that ends too soon. The compassion of a killer tastes sweetest."
+"The communion of creatures [[with]] short, fleeting lives." He looks at me, pity in his eyes. "You know the suffering of a life that ends too soon. The compassion of a killer tastes sweetest."
 
 "My people have a saying: everyone dies, but few people truly live." I let him think on it for a moment, then continue: "Human sorcerers have achieved the same magic of the elven sages."
 
@@ -38,7 +38,7 @@ I share a meal with the male elf, a soup with his fresh hunt. I learn that his n
 
 "The creatures of these woods do not elude you," I say, as a question.
 
-"They offer themselves to me." He laughs. "I give them harmony and peace in these woods, away from the harsh [[nature]] into which they were born. In exchange, I may have their meat with my daily bread."
+"They offer themselves to me." He laughs. "I give them harmony and peace in these woods, away from the harsh [[nature]] into which they were born. In exchange, I may have their meat [[with]] my daily bread."
 
 "A ranch?"
 

@@ -6,7 +6,7 @@ Same birthdays
 [https://www.astrotheme.com/astrology/Catherine_of_Aragon](https://www.astrotheme.com/astrology/Catherine_of_Aragon)  
 Selene's cousin Tian is travelling home at the time that he is writing the last words for The Wind at Dawn.  
   
-He became associated with Gale Jones by Selene's intervention and Catherine's support. 
+He became associated [[with]] Gale Jones by Selene's intervention and Catherine's support. 
 
 
   
@@ -15,7 +15,7 @@ That night, I kept Louise up til morning.
 Catherine and I saw each other for lunch every day. She came over and cooked for me and Louise. The first time Louise canceled, Catherine called me and asked: "Should we cancel?"  
 I thought about it. "No."  
 From then on, she and I met alone every so often. We even went camping together.  
-Soon, I talked to Catherine more than we did with Louise. The beauty of her duty filled my heart.  
+Soon, I talked to Catherine more than we did [[with]] Louise. The beauty of her duty filled my heart.  
   
 Catherine's heart in Gale's hands  
   
@@ -56,7 +56,7 @@ Catherine kept an eye on Tara and Gale. She knows that Gale saw Tara in Montreal
 The moon is not the Moon.  
 Our moon is not a sphere orbiting the [[Earth]], but a reflection of the Sun.  
   
-When Gale is with Selene, he can't ever see Dawn.  
+When Gale is [[with]] Selene, he can't ever see Dawn.  
 How about this, Gale Jones: I teach you the first three of my maxims. In exchange, you be my loyal retainer for one month. I swear not sunrise oaths, but I shall sing a Moonlight Serenade.  
 Gale acknowledges, accepts, accompanies, accomplishes, and accounts Selene for a month starting from the day of Louise's birthday. 1999/08/19 to 1999/09/19 (32 total days spanned, Beethoven 32 variations)  
 acknowledge: who she is  
@@ -69,7 +69,7 @@ Forevermore, he is the pre-eminent expert of who she was at that time in her lif
   
   
 Unravel once a year.  
-(Gale has trouble with this one, and Selene kickstarts it by taking unnamed drugs, satisfying her duty to always fulfill her oaths. The end of this oath satisfaction has them as friends, during which Gale finds out how awkward Selene is when he gives her not the utmost charity. He even finds her surprisingly immature.)  
+(Gale has trouble [[with]] this one, and Selene kickstarts it by taking unnamed drugs, satisfying her duty to always fulfill her oaths. The end of this oath satisfaction has them as friends, during which Gale finds out how awkward Selene is when he gives her not the utmost charity. He even finds her surprisingly immature.)  
 Lie once a lifetime.  
 (Selene's one lie in her life is "Selene Bauman", a falsehood she carries forever. Gale's falsehood, it turns out by the end, is Dawn.)  
 "My life must have a fate to be discovered.  

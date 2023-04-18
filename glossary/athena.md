@@ -1,11 +1,11 @@
 [[From|from]] [[the]] [[forehead]] [[of]] [[her]] [[father]], [[she]] [[was]] [[born]]. [[Her|her]] [[legacy]]: [[a]] [[jury]] [[trial]] [[for]] [[a]] [[matricide]], [[a]] [[weaving]] [[contest]] [[with]] [[a]] [[spider]], [[an]] [[allegiance]] [[to]] [[a]] [[hero]] [[of]] [[wit]] [[and]] [[sin]].
 
-[Article](https://creation.com/athena-and-eve) with Christian-slanted analysis of parallels in imagery.
+[Article](https://creation.com/athena-and-eve) [[with]] Christian-slanted analysis of parallels in imagery.
 
 * * *
 Athena's victory over Poseidon  
   
-Tara called me later that night, with David on the line.  
+Tara called me later that night, [[with]] David on the line.  
 Tara explained everything to David,  
 because she trusted him to listen.  
 David says that he and Tara will support me from afar.  
@@ -22,7 +22,7 @@ one guaranteeing our union. Tara ruined it,
 and so Eroica severed the link between us.  
   
 Gale is a secretary for Eroica.  
-She helped with the plan of Montreal,  
+She helped [[with]] the plan of Montreal,  
 to the chagrin of Catherine / Louise.  
   
 Eroica cannot control Tara,  
@@ -46,14 +46,14 @@ The two former lovers each create worlds.
 Her through architecture, he through stories.  
   
 Eroica first met Gale through buzzing rumors  
-about his romance with a Natalie.  
+about his romance [[with]] a Natalie.  
 The freshman saw how well Gale composed himself.  
   
 Tara returns in twelfth grade instead?  
-Eroica goes to Italy with family,  
-and convinces Tara to return with her.  
+Eroica goes to Italy [[with]] family,  
+and convinces Tara to return [[with]] her.  
   
-Eroica studied with Gale after his trip,  
+Eroica studied [[with]] Gale after his trip,  
 and kissed him at the house where she grew up:  
 the Birchleaf residence, where Tara moved.  
   
@@ -90,7 +90,7 @@ Attending the opening of the Canadian Clay and Glass Gallery is what first spark
   
 (Maybe they see Louise and Catherine at the opening too? Then Louise invites them along to dance. This leads into them watching movies together, too.)  
   
-Gale is the closest friend Tara ever had, and Louise is the second. Tara hung out with Louise without Gale or Catherine present. Eroica and Louise join Tara and Gale to watch Slaughterhouse-Five. Tara and Eroica are maternal cousins. Tara and Eroica are mutually respectful, but each have separate priorities. Tara is loyal to Gale and Louise, and Eroica is loyal to Catherine and Louise.  
+Gale is the closest friend Tara ever had, and Louise is the second. Tara hung out [[with]] Louise without Gale or Catherine present. Eroica and Louise join Tara and Gale to watch Slaughterhouse-Five. Tara and Eroica are maternal cousins. Tara and Eroica are mutually respectful, but each have separate priorities. Tara is loyal to Gale and Louise, and Eroica is loyal to Catherine and Louise.  
   
 Eroica loved Chinese classics, imparting them to Rachel.  
 Before she mentored Rachel, her own cousin,  

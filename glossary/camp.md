@@ -22,7 +22,7 @@ I laughed. “Aren’t you doing the same thing?”
   
 “I always talk back,” I insisted.  
   
-Catherine folded her arms, and shook her head. “Not with that look on your face.”  
+Catherine folded her arms, and shook her head. “Not [[with]] that look on your face.”  
   
 The moon was brighter than I ever knew, the glowing guide of a raft on a stormy sea of silver. The tent for four was too small for one man and one woman, adrift on the solid ground of a small camping site. The space between us was a forbidden stretch, larger than the space between us and the heavenly gods of Greece and Rome.  
   
@@ -38,7 +38,7 @@ I looked away, embarrassed. “You’re managing fine by yourself. And Tim . . .
   
 We shivered, and listened to the crickets. After a long pause, I ventured: “What about Catherine Shanks, the great engineer? What about her story?”  
   
-“Stop with the feminism,” she said. “Let’s try to not freeze to death.”  
+“Stop [[with]] the feminism,” she said. “Let’s try to not freeze to death.”  
   
 The engineer joined our sleeping bags. They fit together well, too well. Under the same covers, I stared at the mesh door as she lay beside me, her shoulder touching my back. After some time, she nudged me.  
   
@@ -50,15 +50,15 @@ I turned around all the way, facing the profile of my friend’s wife, and held 
   
 “We drove each other nuts,” I reminded.  
   
-She shifted onto her side. I could scarcely see the Cat I knew in the engineer’s features, save for the freckles that danced on the bridge of her nose. The night was cold, but her breath on my chest chilled me like evening frost. “I was mean to you, but I liked seeing you at dinner parties. My parents didn’t let me play with many boys.”  
+She shifted onto her side. I could scarcely see the Cat I knew in the engineer’s features, save for the freckles that danced on the bridge of her nose. The night was cold, but her breath on my chest chilled me like evening frost. “I was mean to you, but I liked seeing you at dinner parties. My parents didn’t let me play [[with]] many boys.”  
   
-I tried to shuffle away, but the warm polyester fabric trapped me with her. “All this time, I thought you hated me. I was okay with it.”  
+I tried to shuffle away, but the warm polyester fabric trapped me [[with]] her. “All this time, I thought you hated me. I was okay [[with]] it.”  
   
 “Nonsense,” she said softly. “Hate is a sin.”  
   
 “I was never good enough,” I rued, playful as I tried to be. “Eroica has her schemes, you have your faith, Louise has her music. You three lost Ancra, and found me as a unworthy replacement. So many years later, best I can do is wordplay. ‘Worthless wanderer in Waterloo’ — alliteration.”  
   
-I thought the engineer would laugh politely, or chastise me with a smile. Instead, her tears came, and stopped not. No matter what I tried, lunar light glistened in the saline drops that pooled and flowed.  
+I thought the engineer would laugh politely, or chastise me [[with]] a smile. Instead, her tears came, and stopped not. No matter what I tried, lunar light glistened in the saline drops that pooled and flowed.  
   
 “What am I supposed to do,” I said, helpless.  
   

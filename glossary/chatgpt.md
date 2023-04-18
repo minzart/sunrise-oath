@@ -1,7 +1,7 @@
 I wrote [[an]] article using [[an]] OpenAI API. [WordPress](https://sunriseoath.org/2023/03/18/my-first-article-using-gpt/)
 
 * * *
-As your editor, my favorite part of The Wind at Dawn is the emotional journey of Gale as he struggles to find his voice and develop his writing, while being distracted by his obsession with Dawn. I particularly enjoy the way the art song by Elgar and Roberts is woven into the story, and how it reflects the themes and events of the novel.  
+As your editor, my favorite part of The Wind at Dawn is the emotional journey of Gale as he struggles to find his voice and develop his writing, while being distracted by his obsession [[with]] Dawn. I particularly enjoy the way the art song by Elgar and Roberts is woven into the story, and how it reflects the themes and events of the novel.  
   
 One of the weaknesses of The Wind at Dawn is the way that the characters of Gale's new friends in Montreal are not fully developed and feel somewhat stereotypical. The romance between Gale and Dawn is also not fully fleshed out, and the resolution of their relationship feels rushed and unsatisfying.  
   
@@ -9,15 +9,15 @@ To improve the novel, I would suggest expanding on the relationships and motivat
 - - - 
 (One of many dump files I am importing for archival purposes. [Google Doc](https://docs.google.com/document/d/1vTW0wOVMdFvypLAdq1NpLjEqIBSHjX-oHBydS_0w3y8))
 
-Gale moves from Waterloo to Montreal because he thinks he will get nowhere if he stays in the same place. To him, his hometown represents his old life, his former way of being. Montreal, meanwhile, is a new and exciting land of dreams, the place where he met Dawn and danced with her on the deck of a summer dinner cruise.
+Gale moves from Waterloo to Montreal because he thinks he will get nowhere if he stays in the same place. To him, his hometown represents his old life, his former way of being. Montreal, meanwhile, is a new and exciting land of dreams, the place where he met Dawn and danced [[with]] her on the deck of a summer dinner cruise.
 
-To Gale, the woman he danced with was the most beautiful person he ever met. He never learned her name, or even heard her voice. All he remembered about her was hazel eyes, light brown shoulder length hair, and a pale blue dress that looked almost white in the dim light of twilight. They danced to "Nothing Broken But My Heart" by Celine Dion, a remarkable fact as the dance occurred on August 2, 1992 while the song's official release was on August 3, 1992.
+To Gale, the woman he danced [[with]] was the most beautiful person he ever met. He never learned her name, or even heard her voice. All he remembered about her was hazel eyes, light brown shoulder length hair, and a pale blue dress that looked almost white in the dim light of twilight. They danced to "Nothing Broken But My Heart" by Celine Dion, a remarkable fact as the dance occurred on August 2, 1992 while the song's official release was on August 3, 1992.
 
-Gale's relationship with Dawn distracts him from his writing, though through the experiences he gains confidence as [[an]] artist. He lacked things to write about, and through his experiences with Dawn he developed his own voice and started to manifest his will in the world.
+Gale's relationship [[with]] Dawn distracts him from his writing, though through the experiences he gains confidence as [[an]] artist. He lacked things to write about, and through his experiences [[with]] Dawn he developed his own voice and started to manifest his will in the world.
 
 Most notably, he had a group of three female friends in Waterloo who fit the roles of goddesses in his life. Tara Robles the architect replaces Eroica Vici the lawyer as [[Athena]] (wisdom and war). Selene Bauman the curator replaces Catherine Clement the engineer as Hera (duty and wrath). Charlotte Gagnon the doctor replaces Louise Charpentier the pianist as Aphrodite (beauty and mercy).
 
-Gale's greatest challenge in Montreal is the pursuit of meaning. At first he pursues happiness via chasing the past (his fleeting relationship with Dawn), but meeting the architect at La Ronde kicked off a chain of events where he began questioning his own reasons for being in Montreal. Most notably, Tara's suggestion that he elope with her presents itself as [[an]] alternative to being with Dawn, as Gale and Tara were once high school sweethearts who broke up in their first year of engineering at the University of Waterloo.
+Gale's greatest challenge in Montreal is the pursuit of meaning. At first he pursues happiness via chasing the past (his fleeting relationship [[with]] Dawn), but meeting the architect at La Ronde kicked off a chain of events where he began questioning his own reasons for being in Montreal. Most notably, Tara's suggestion that he elope [[with]] her presents itself as [[an]] alternative to being with Dawn, as Gale and Tara were once high school sweethearts who broke up in their first year of engineering at the University of Waterloo.
 
 Gale's relationship with Tara makes him waver in his intentions toward Dawn. He was also suspicious of why Dawn never showed up at La Ronde on the day of their date; it was by fluke that he happened to run into Tara, who was in Montreal with her classmates from architecture school.
 

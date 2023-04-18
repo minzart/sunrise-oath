@@ -8,7 +8,7 @@ My fiancée and I rarely met alone in private. I stayed over at Louise's place o
   
 _We are so in love,_ she said that night, and pressed her naked [[body]] against me. _I pray tonight will not ruin it._  
   
-It was on Valentine's Day earlier that year. She had a shock earlier that evening, and wanted me by her side. That brush with death changed her, and made her so beautiful. She was loud, a sighing soprano seductress, and was more sensual than she ever was before.  
+It was on Valentine's Day earlier that year. She had a shock earlier that evening, and wanted me by her side. That brush [[with]] death changed her, and made her so beautiful. She was loud, a sighing soprano seductress, and was more sensual than she ever was before.  
   
 The beauty of her love filled my heart.  
   
@@ -22,7 +22,7 @@ Gale once told Charlotte that he was talking to Dawn at the table, and Charlotte
 (She lied to her husband that she miscarried. He wanted her husband to never be disappointed in her.)  
 Charlotte never told anyone she was married. It was their own personal thing.  
   
-Charlotte makes a "mix tape" of jazz standards she listened to with Gale and Selene.  
+Charlotte makes a "mix tape" of jazz standards she listened to [[with]] Gale and Selene.  
   
 What should I do, Charlotte?  
   

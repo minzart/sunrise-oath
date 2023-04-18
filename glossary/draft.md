@@ -12,11 +12,11 @@ Pause. "Mom died."
 
 * * *
 
-Social Game with Index Cards  
+Social Game [[with]] Index Cards  
   
-1000 Blank Cards, with set rules for play priority.  
+1000 Blank Cards, [[with]] set rules for play priority.  
   
-Cards are played by discarding cards and drawing them back. Players start with five cards. Any card may be played at any time, though players take turns holding priority in clockwise order. Stack is last in, first out. Cards go to discard unless they have persistent effects.  
+Cards are played by discarding cards and drawing them back. Players start [[with]] five cards. Any card may be played at any time, though players take turns holding priority in clockwise order. Stack is last in, first out. Cards go to discard unless they have persistent effects.  
   
 Cards that draw more cards are challenges. Cards that cost more cards affect other players in funny ways (and usually reward them).
 
@@ -26,7 +26,7 @@ Cards in both hands are face up.
   
 Each card is a piece, an action card (a move), and a commander.  
   
-- piece: played on the board where another friendly card can move, a card acts as a piece with a moveset. The cost of each piece is one matching legal move on the board or in hand for each legal move on the card (where the card has the same legal move). Cards in hand must be discarded if used to pay a cost.  
+- piece: played on the board where another friendly card can move, a card acts as a piece [[with]] a moveset. The cost of each piece is one matching legal move on the board or in hand for each legal move on the card (where the card has the same legal move). Cards in hand must be discarded if used to pay a cost.  
 (Each card pays for only one legal move.)  
   
 - action: a piece may use a move from a card in hand and discard it.  

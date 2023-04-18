@@ -1,6 +1,6 @@
 A knight of noble obligation. He feels a duty to protect those below his station.  
   
-Despite his arrogance and carnal knowledge, he is in love with the heiress of a family that his family despises, a tribe of low-birth magicians from a distant land. Her name is Thera.  
+Despite his arrogance and carnal knowledge, he is in love [[with]] the heiress of a family that his family despises, a tribe of low-birth magicians from a distant land. Her name is Thera.  
   
 Got sword from Uncle Farrow, who doted on him unlike the rest of his family.  
   

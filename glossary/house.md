@@ -1,1 +1,1 @@
-Ancra is well acquainted with Gale's father, the principal who knows of the magical boy's heritage. He calls it "their family religion".
+Ancra is well acquainted [[with]] Gale's father, the principal who knows of the magical boy's heritage. He calls it "their family religion".

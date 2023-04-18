@@ -1,6 +1,6 @@
 Hilbert 54  
   
-Game where the player goes up and down levels in a persistent magical "hotel" with cards. Guests regularly get moved up and down floors, represented by cards being added to the deck. When guests leave, all other guests are moved to fill in the gaps.  
+Game where the player goes up and down levels in a persistent magical "hotel" [[with]] cards. Guests regularly get moved up and down floors, represented by cards being added to the deck. When guests leave, all other guests are moved to fill in the gaps.  
   
 Win by having more points (cards of suit or rank matching initial).
 
@@ -8,9 +8,9 @@ Win by having more points (cards of suit or rank matching initial).
 
 How should a story start? A hidden truth, beyond the comprehension of a small mind like mine, may well be treated as a fairy tale.
 
-[[player|I]] find my way to a hotel with infinite floors. [[Every]] floor is a single room, [[every]] room is a strange land, and [[every]] visitor is a stranger to me. Yet, I seem to remember each one from a past life.
+[[player|I]] find my way to a hotel [[with]] infinite floors. [[Every]] floor is a single room, [[every]] room is a strange land, and [[every]] visitor is a stranger to me. Yet, I seem to remember each one from a past life.
 
-Entering the lobby, a concierge looks at me with severe eyes, blue regards that soften at my sight. “You’re here, mon gars.” So personal, yet so unfamiliar. “Come with me. I shall show you to the elevator.”
+Entering the lobby, a concierge looks at me [[with]] severe eyes, blue regards that soften at my sight. “You’re here, mon gars.” So personal, yet so unfamiliar. “Come [[with]] me. I shall show you to the elevator.”
 
 Once the doors are closed, he pulls out a bag of dice, producing a handful of d20 and a d6.
 
@@ -44,13 +44,13 @@ I read his neat handwriting:
 
 “Your lands untap upon arriving on a new floor,” he says, “as well as each time you wake up. ”
 
-“I have to fiddle with cards while I’m at the hotel?” I groan.
+“I have to fiddle [[with]] cards while I’m at the hotel?” I groan.
 
 “Do it in your head if you want, or on paper.” He shrugs. “The game state is what matters. Represent it however you wish.”
 
 “Game state,” I repeat. “So this is a game.”
 
-“Very much so,” he says. “This is a game of Magic, and you have two basic lands in play right now. You have mana of five types floating, each represented by a d20. The d6 have nothing to do with the game for now, unless you ever want to replace a die roll.”
+“Very much so,” he says. “This is a game of Magic, and you have two basic lands in play right now. You have mana of five types floating, each represented by a d20. The d6 have nothing to do [[with]] the game for now, unless you ever want to replace a die roll.”
 
 “Players roll dice in Magic?” I ask.
 
@@ -68,7 +68,7 @@ I gulp. “Who’s that?”
 
 “You‘ll see,” he says, and the elevator stops. I notice that the floor number is the exact same as the sum of all my d20 values, minus the lowest value of the d6 in my wallet. “Since this is a self-journaling [[adventure]], you will have to decide what happens next. Get your pen and paper ready! Remember: d20 are skill checks and mana, d6 are items and money.”
 
-> Proceed to the page with the next floor number.
+> Proceed to the page [[with]] the next floor number.
 
 - - - 
 Without having to worry about anyone else looking on, I proceed to room [[]]

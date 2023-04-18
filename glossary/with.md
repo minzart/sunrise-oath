@@ -1,1 +1,1 @@
-[[Joined]] [[in]] [[spirit]]. [[May]] [[I]] [[be]] [[with]] [[God]] [[forever]].
+[[Joined]] [[in]] [[spirit]]. [[May]] [[I]] [[be]] [[in]] [[God]] [[forever]].
