@@ -77,7 +77,7 @@ GRAPH_OPTIONS = """
 					avoidOverlap = 0.8,
 					theta = 0.7,
 					centralGravity = 0.5,
-				}
+				},
         		solver: "barnesHut",
 				maxVelocity: 100,
         	},
