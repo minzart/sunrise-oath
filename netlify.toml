@@ -60,7 +60,7 @@ GRAPH_OPTIONS = """
         	},
         	edges: {
         		color: { inherit: "both" },
-        		width: 0.6,
+        		width: 0.3,
         		smooth: {
         			type: "continuous",
         		},
@@ -72,7 +72,7 @@ GRAPH_OPTIONS = """
         	height: "100%",
         	width: "100%",
         	physics: {
-        		solver: "repulsion",
+        		solver: "barnesHut",
 				maxVelocity: 10,
         	},
         }
