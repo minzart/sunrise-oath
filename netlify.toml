@@ -73,7 +73,7 @@ GRAPH_OPTIONS = """
         	width: "100%",
         	physics: {
         		solver: "repulsion",
-				maxVelocity: "10",
+				maxVelocity: 10,
         	},
         }
         """
