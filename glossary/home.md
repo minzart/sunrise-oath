@@ -1,15 +1,15 @@
-Use the sidebar to pick apart my second [[brain]].
-Or, read about my [[mission]].
+[[Use]] [[the]] [[sidebar]] [[to]] [[pick]] [[apart]] [[my]] [[second]] [[brain]].
+[[Or]], [[read]] [[about]] [[my]] [[mission]].
 
-For [[info]] and [[external]] [[links]], check my [[wallet]].
+[[For]] [[info]] [[and]] [[external]] [[links]], [[check]] [[my]] [[wallet]].
 
-This [[site]] is a [[hypertext]] [[work]] in [[progress]]! 
-(Finally got a [[workflow]] I’m happy with.)
+[[This]] [[site]] [[is]] [[a]] [[hypertext]] [[work]] [[in]] [[progress]]! 
+([[Finally]] [[got]] [[a]] [[workflow]] [[I]] [[am]] [[happy]] [[with]].)
 
 * * *
 A drunk man will find his way home, but a drunk bird may get lost forever. — Shizuo Kakutani 
 
-Turn-based game (maybe ADV VN format). Board state is updated every turn. No true ending to the game, meant to be a place to go back to. Every turn, the player progresses the clock one hour. He befriends a bird in a cage, and eventually lets it out. It promises to come back, and from then on sporadic conversations with the bird are the main emotional thread.
+Turn-based [[game]] (maybe ADV VN format). Board state is updated every [[turn]]. No [[true]] [[ending]] to the game, meant to be a place to go back to. Every turn, the player progresses the clock one hour. He befriends a [[bird]] in a [[cage]], and eventually lets it out. It promises to come back, and from then on sporadic conversations with the bird are the main emotional thread.
 
 [Google Doc](https://docs.google.com/document/d/1BHqcTDLKla_fcFlUmrpV3iQhzGAVAGJUwrOW4CxQ53c?authuser=0)
 

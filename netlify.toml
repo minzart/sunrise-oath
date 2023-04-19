@@ -71,16 +71,21 @@ GRAPH_OPTIONS = """
         	},
         	height: "100%",
         	width: "100%",
+
         	physics: {
 				barnesHut: {
 					gravitationalConstant: -1000,
 					avoidOverlap: 0.8,
-					theta: 0.7,
-					centralGravity: 0.5,
+					theta: 0.45,
+					centralGravity: 0.4,
+					springConstant: 0.08,
+					damping: 0.08
 				},
-        		solver: "barnesHut",
-				maxVelocity: 40,
+        		solver: "repulsion",
+				maxVelocity: 10,
 				minVelocity: 0.2,
+				stabilization: true,
+				timestep: 0.2,
         	},
         }
         """

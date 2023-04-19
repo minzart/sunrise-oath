@@ -13,7 +13,7 @@
             "state": {
               "type": "markdown",
               "state": {
-                "file": "glossary/with.md",
+                "file": "journal/2023-04-02.md",
                 "mode": "source",
                 "backlinks": true,
                 "source": false
@@ -86,7 +86,7 @@
             "state": {
               "type": "backlink",
               "state": {
-                "file": "glossary/with.md",
+                "file": "journal/2023-04-02.md",
                 "collapseAll": true,
                 "extraContext": false,
                 "sortOrder": "alphabetical",
@@ -103,7 +103,7 @@
             "state": {
               "type": "outgoing-link",
               "state": {
-                "file": "glossary/with.md",
+                "file": "journal/2023-04-02.md",
                 "linksCollapsed": false,
                 "unlinkedCollapsed": true
               }
@@ -126,7 +126,7 @@
             "state": {
               "type": "outline",
               "state": {
-                "file": "glossary/with.md"
+                "file": "journal/2023-04-02.md"
               }
             }
           }
@@ -151,13 +151,20 @@
   },
   "active": "0cb08f050dc432bf",
   "lastOpenFiles": [
-    "glossary/law.md",
+    "journal/2023-04-19.md",
+    "glossary/home.md",
+    "glossary/christ.md",
+    "deck/Ks.md",
+    "glossary/tragedy.md",
+    "glossary/body.md",
+    "deck/3d.md",
+    "deck/Untitled.md",
     "glossary/with.md",
+    "glossary/law.md",
     "glossary/chatgpt.md",
     "glossary/campaign.md",
     "glossary/boardwalk.md",
     "journal/2023-03-11.md",
-    "glossary/body.md",
     "glossary/goddess.md",
     "glossary/pavi.md",
     "glossary/grace.md",
@@ -170,13 +177,6 @@
     "glossary/father.md",
     "glossary/trinity.md",
     "glossary/writer.md",
-    "glossary/dawn.md",
-    "glossary/number.md",
-    "glossary/eternity.md",
-    "glossary/forever.md",
-    "glossary/good.md",
-    "glossary/way.md",
-    "glossary/anathem.md",
     "journal/Untitled",
     "archive/hex_template_200_10.png",
     "archive/Pasted image 20230321140121.png",
