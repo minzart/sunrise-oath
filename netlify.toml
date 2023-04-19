@@ -79,7 +79,8 @@ GRAPH_OPTIONS = """
 					centralGravity: 0.5,
 				},
         		solver: "barnesHut",
-				maxVelocity: 100,
+				maxVelocity: 40,
+				minVelocity: 0.2,
         	},
         }
         """
