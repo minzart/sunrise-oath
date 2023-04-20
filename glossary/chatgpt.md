@@ -1,7 +1,7 @@
 I wrote [[an]] article using [[an]] OpenAI API. [WordPress](https://sunriseoath.org/2023/03/18/my-first-article-using-gpt/)
 
 * * *
-As your editor, my favorite part of The [[Wind]] at Dawn is the emotional journey of Gale as he struggles to find his voice and develop his writing, while being distracted by his obsession [[with]] Dawn. I particularly enjoy the way the art song by Elgar and Roberts is woven into the story, and how it reflects the themes and events of the novel.  
+As your editor, my favorite part of The [[Wind]] at Dawn is the emotional journey of Gale as he struggles to find his voice and develop his writing, while being distracted by his obsession [[with]] Dawn. I particularly enjoy the way the art song by [[Elgar]] and Roberts is woven into the story, and how it reflects the themes and events of the novel.  
   
 One of the weaknesses of The [[Wind]] at Dawn is the way that the characters of Gale's new friends in Montreal are not fully developed and feel somewhat stereotypical. The romance between Gale and Dawn is also not fully fleshed out, and the resolution of their relationship feels rushed and unsatisfying.  
   
@@ -61,7 +61,7 @@ The story opens with Gale quitting his job at a [[café]], and spending [[time]]
 
 The story ends with a dramatic confrontation between Gale and Selene, in which Selene confesses her feelings and reveals her true appearance. The story leaves the outcome of their relationship open-ended, and does not provide any resolution.
 
-The [[Wind]] at Dawn is structurally based on the art song of the same name by Edward Elgar and Caroline Alice Roberts, his wife. The lyrics comprise of eight couplets, and each couplet corresponds to one chapter in the story. Epistemology 1999 describes the events of the third chapter.
+The [[Wind]] at Dawn is structurally based on the art song of the same name by Edward [[Elgar]] and Caroline Alice Roberts, his wife. The lyrics comprise of eight couplets, and each couplet corresponds to one chapter in the story. Epistemology 1999 describes the events of the third chapter.
 
 Additional info: Charlotte Gagnon the doctor is a regular at the [[café]] Génoise et Thé, and was secretly asked by Alain [[Tremblay]] the [[café]] owner to only speak to Gale in French. Gale only finds out much [[later]] on that Charlotte speaks perfect English, having went to Westmount High School. Charlotte becomes Gale's only remaining connection to the [[outside]] world after Selene's sudden departure and his subsequent hermitage, but becomes estranged from him when he becomes obsessed with finding Dawn.
 
@@ -163,7 +163,7 @@ In his strength unseen, in triumph upborne . . .
 
 Gale wakes up in a hospital room, and during the last days of the year makes amends to his new friends. He also meets the real beautiful stranger again for the first [[time]] in seven years, and she promises to tell him her name when he is discharged on New Year's Day.
 
-The Wind at Dawn is a novel with eight chapters, each based on a couplet from the original art song by Elgar. The story follows Gale, who reunites with a young woman named Dawn in the Old [[Port]] of Montreal and makes a sunrise oath with her. He meets a new group of friends at the [[café]] where he works, including Selene, a Chinese-German curator, and Charlotte, a doctor. He also reconnects with his ex-girlfriend Tara. As he becomes increasingly obsessed with finding Dawn, his relationships with Selene and Charlotte become strained. Selene reveals that she is a witch and curses him to be bound to his greatest lie. After discovering that Dawn is not real, Gale falls into a depression and tries to drown himself. He makes amends with his friends and meets the real Dawn again, who promises to tell him her name when he is discharged from the hospital on New Year's Day.
+The Wind at Dawn is a novel with eight chapters, each based on a couplet from the original art song by [[Elgar]]. The story follows Gale, who reunites with a young woman named Dawn in the Old [[Port]] of Montreal and makes a sunrise oath with her. He meets a new group of friends at the [[café]] where he works, including Selene, a Chinese-German curator, and Charlotte, a doctor. He also reconnects with his ex-girlfriend Tara. As he becomes increasingly obsessed with finding Dawn, his relationships with Selene and Charlotte become strained. Selene reveals that she is a witch and curses him to be bound to his greatest lie. After discovering that Dawn is not real, Gale falls into a depression and tries to drown himself. He makes amends with his friends and meets the real Dawn again, who promises to tell him her name when he is discharged from the hospital on New Year's Day.
 
 ROSE
 
@@ -235,7 +235,7 @@ I found the hints that make her name: Sarah Carice Beaulieu.
   
   
 
-The Wind at Dawn is a novel that follows the emotional journey of Gale Jones, a young man who moves to Montreal in pursuit of his dream of becoming a writer. As he struggles to find his voice, he is distracted by a figure from his past, a young woman named Dawn. Gale becomes obsessed with finding her, and is aided in his search by a group of friends he meets in Montreal. However, his obsession causes him to become isolated and distant from those around him, and ultimately he realizes that the woman he was searching for never actually existed. He must confront the damage he has caused to his relationships and work to rebuild his life. The novel is structured around the art song of the same name by Edward Elgar and Caroline Alice Roberts.
+The Wind at Dawn is a novel that follows the emotional journey of Gale Jones, a young man who moves to Montreal in pursuit of his dream of becoming a writer. As he struggles to find his voice, he is distracted by a figure from his past, a young woman named Dawn. Gale becomes obsessed with finding her, and is aided in his search by a group of friends he meets in Montreal. However, his obsession causes him to become isolated and distant from those around him, and ultimately he realizes that the woman he was searching for never actually existed. He must confront the damage he has caused to his relationships and work to rebuild his life. The novel is structured around the art song of the same name by Edward [[Elgar]] and Caroline Alice Roberts.
 
 The Wind at Dawn is a novel that follows the emotional journey of Gale Jones, a twenty-four year old man who moves from his hometown of Waterloo, Ontario to Montreal, Quebec in pursuit of his dream of becoming a writer. As he struggles to find his voice and develop his writing, he is distracted by a figure from his past, a young woman named Dawn with whom he shared a [[dance]] when he was seventeen.
 
@@ -249,7 +249,7 @@ The Wind at Dawn is a novel that follows the emotional journey of Gale Jones, a 
 
   
 
-The novel is structured around the art song of the same name by Edward Elgar and Caroline Alice Roberts. Each of the eight chapters corresponds to a couplet in the song. The first chapter, "And the wind went out to meet with the sun...At the dawn when the night was done," [[sees]] Gale reunite with Dawn and they make a sunrise oath to help each other out.
+The novel is structured around the art song of the same name by Edward [[Elgar]] and Caroline Alice Roberts. Each of the eight chapters corresponds to a couplet in the song. The first chapter, "And the wind went out to meet with the sun...At the dawn when the night was done," [[sees]] Gale reunite with Dawn and they make a sunrise oath to help each other out.
 
 In the second chapter, "And he racked the clouds in lofty disdain...As they flocked in his airy train," Gale starts working at the [[café]] Génoise et Thé, where he meets the owner Alain [[Tremblay]], the cook [[Hortus]], and the customers Charlotte Gagnon and Selene Bauman. Charlotte is a doctor who becomes a regular at the [[café]], and Selene is a Chinese-German curator.
 
@@ -285,7 +285,7 @@ Through his emotional journey, Gale learns the importance of connection and rela
 
   
 
-The Wind at Dawn is structured based on the art song of the same name by Edward Elgar and Caroline Alice Roberts. The novel has eight chapters, each corresponding to one couplet of the song. Each chapter also corresponds to a particular moment in Gale's emotional journey as he becomes increasingly obsessed with finding Dawn.
+The Wind at Dawn is structured based on the art song of the same name by Edward [[Elgar]] and Caroline Alice Roberts. The novel has eight chapters, each corresponding to one couplet of the song. Each chapter also corresponds to a particular moment in Gale's emotional journey as he becomes increasingly obsessed with finding Dawn.
 
 Gale is the one who named the beautiful stranger (or, at least, the illusion of her) Dawn. Their sunrise oath went as follows: she would help him love the sunrise, and he would help her find her name.
 
@@ -301,13 +301,13 @@ As Gale's obsession with Dawn grows, he becomes increasingly isolated and distan
 
 Through his emotional journey, Gale learns the importance of connection and relationships, and ultimately realizes that his pursuit of Dawn was a delusion and that the woman he thought he knew never actually existed. He is forced to confront the consequences of his actions and the damage he has caused to his relationships, and must work to rebuild his life and reconnect with those he has pushed away.
 
-The novel is divided into eight chapters, each corresponding to a couplet in the art song of the same name by Edward Elgar and Caroline Alice Roberts. The couplets describe the emotional journey of Gale as he pursues Dawn, and ultimately comes to realize that she is a figment of his imagination. The art song is a central component of the novel, and its lyrics and themes play a significant role in the development of the story.
+The novel is divided into eight chapters, each corresponding to a couplet in the art song of the same name by Edward [[Elgar]] and Caroline Alice Roberts. The couplets describe the emotional journey of Gale as he pursues Dawn, and ultimately comes to realize that she is a figment of his imagination. The art song is a central component of the novel, and its lyrics and themes play a significant role in the development of the story.
 
 The Wind at Dawn is a novel about a young man named Gale who moves to Montreal in pursuit of his dream of becoming a writer. He is distracted by a chance encounter with a young woman he knew when he was 17. She claims to have amnesia and doesn't remember her name, so Gale names her Dawn and makes a sunrise oath with her to help each other find what they're looking for.
 
 Gale becomes increasingly obsessed with learning more about Dawn, and his obsession starts to cause problems in his relationships with his friends and loved ones. He learns that Dawn is not real, and must confront the consequences of his actions and work to rebuild his life and relationships.
 
-The novel is structured around [[an]] art song of the same name by Edward Elgar and Caroline Alice Roberts. The song's lyrics and themes play a significant role in the story, with each chapter corresponding to one of the song's couplets.
+The novel is structured around [[an]] art song of the same name by Edward [[Elgar]] and Caroline Alice Roberts. The song's lyrics and themes play a significant role in the story, with each chapter corresponding to one of the song's couplets.
 
   
 
@@ -327,9 +327,9 @@ Through his emotional journey, Gale learns the importance of connections and rel
 
   
 
-The novel is divided into eight chapters, each corresponding to a couplet in the art song of the same name by Edward Elgar and Caroline Alice Roberts. The lyrics of the art song play a significant role in the novel and describe the emotional journey of Gale as he pursues Dawn and comes to realize that she is a figment of his imagination.
+The novel is divided into eight chapters, each corresponding to a couplet in the art song of the same name by Edward [[Elgar]] and Caroline Alice Roberts. The lyrics of the art song play a significant role in the novel and describe the emotional journey of Gale as he pursues Dawn and comes to realize that she is a figment of his imagination.
 
-The Wind at Dawn is a novel that follows the emotional journey of Gale Jones, a young writer who moves from Waterloo, Ontario to Montreal, Quebec. After reuniting with a woman from his past, Gale becomes obsessed with learning more about her and makes a sunrise oath with her. As he becomes increasingly isolated in his pursuit, he realizes that she is a figment of his imagination and must confront the consequences of his actions and rebuild his relationships. The novel is structured around [[an]] art song by Edward Elgar and Caroline Alice Roberts, and its lyrics and themes play a significant role in the story.
+The Wind at Dawn is a novel that follows the emotional journey of Gale Jones, a young writer who moves from Waterloo, Ontario to Montreal, Quebec. After reuniting with a woman from his past, Gale becomes obsessed with learning more about her and makes a sunrise oath with her. As he becomes increasingly isolated in his pursuit, he realizes that she is a figment of his imagination and must confront the consequences of his actions and rebuild his relationships. The novel is structured around [[an]] art song by Edward [[Elgar]] and Caroline Alice Roberts, and its lyrics and themes play a significant role in the story.
 
 The Wind at Dawn is a novel that follows the emotional journey of Gale Jones, a twenty-four year old man who moves from his hometown of Waterloo, Ontario to Montreal, Quebec in pursuit of his dream of becoming a writer. As he struggles to find his voice and develop his writing, he is distracted by a chance reunion with a figure from his past, a young woman named Dawn with whom he shared a [[dance]] when he was seventeen.
 
@@ -337,7 +337,7 @@ The Wind at Dawn is a novel that follows the emotional journey of Gale Jones, a 
 
 Gale becomes increasingly obsessed with reconnecting with Dawn, and is aided in his search by a new group of friends he meets in Montreal. However, as his obsession grows, he becomes increasingly isolated from his loved ones, and must confront the consequences of his actions and work to rebuild his relationships.
 
-The novel is structured around the lyrics of the art song of the same name by Edward Elgar and Caroline Alice Roberts, and follows Gale's emotional journey as he pursues Dawn and ultimately comes to realize the true [[nature]] of their relationship.
+The novel is structured around the lyrics of the art song of the same name by Edward [[Elgar]] and Caroline Alice Roberts, and follows Gale's emotional journey as he pursues Dawn and ultimately comes to realize the true [[nature]] of their relationship.
 
   
   
@@ -358,7 +358,7 @@ Gale's pursuit of Dawn becomes [[an]] obsession, and he becomes increasingly iso
 
 He ultimately realizes that Dawn is not real, and must confront the consequences of his actions.
 
-The novel is structured around the lyrics of the art song of the same name by Edward Elgar and Caroline Alice Roberts.
+The novel is structured around the lyrics of the art song of the same name by Edward [[Elgar]] and Caroline Alice Roberts.
 
 The Wind at Dawn is a work of literary magical realism.
 
@@ -373,7 +373,7 @@ As Gale becomes increasingly obsessed with learning more about Dawn and reconnec
 
   
 
-The novel is structured around the art song of the same name by Edward Elgar and Caroline Alice Roberts, and the lyrics of the song provide a poignant and evocative framework for Gale's emotional journey. The Wind at Dawn is a haunting and thought-provoking novel that explores the power of memory and the dangers of obsession.
+The novel is structured around the art song of the same name by Edward [[Elgar]] and Caroline Alice Roberts, and the lyrics of the song provide a poignant and evocative framework for Gale's emotional journey. The Wind at Dawn is a haunting and thought-provoking novel that explores the power of memory and the dangers of obsession.
 
   
 
@@ -530,7 +530,7 @@ I present a story about dreams. This account is not a hypothetical, a fiction in
 
 June 21, 1999
 
-On the last summer solstice of the twentieth century, Gale Jones was not the man he hoped to be. I know, for I was [[there]], living inside his head, seeing the streets he walked in Montreal, feeling his urge to write and earn his name. I smoked a Belmont — inhale, hold, exhale — and crossed the street, heading back to a small un et demi in the McGill Ghetto. I typed on a Compaq til out of nicotine and inspiration, and brought a Walkman to bed at sunset. “Rewind”, “Play” — I fell asleep to [[an]] Elgar art song, and dreamed of [[an]] evening seven years ago.
+On the last summer solstice of the twentieth century, Gale Jones was not the man he hoped to be. I know, for I was [[there]], living inside his head, seeing the streets he walked in Montreal, feeling his urge to write and earn his name. I smoked a Belmont — inhale, hold, exhale — and crossed the street, heading back to a small un et demi in the McGill Ghetto. I typed on a Compaq til out of nicotine and inspiration, and brought a Walkman to bed at sunset. “Rewind”, “Play” — I fell asleep to [[an]] [[Elgar]] art song, and dreamed of [[an]] evening seven years ago.
 
   
 

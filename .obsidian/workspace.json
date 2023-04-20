@@ -39,7 +39,7 @@
             "state": {
               "type": "markdown",
               "state": {
-                "file": "glossary/hope.md",
+                "file": "glossary/elgar.md",
                 "mode": "source",
                 "backlinks": true,
                 "source": false
@@ -113,7 +113,7 @@
             "state": {
               "type": "backlink",
               "state": {
-                "file": "glossary/hope.md",
+                "file": "glossary/elgar.md",
                 "collapseAll": true,
                 "extraContext": false,
                 "sortOrder": "alphabetical",
@@ -130,7 +130,7 @@
             "state": {
               "type": "outgoing-link",
               "state": {
-                "file": "glossary/hope.md",
+                "file": "glossary/elgar.md",
                 "linksCollapsed": false,
                 "unlinkedCollapsed": true
               }
@@ -153,7 +153,7 @@
             "state": {
               "type": "outline",
               "state": {
-                "file": "glossary/hope.md"
+                "file": "glossary/elgar.md"
               }
             }
           }
@@ -178,8 +178,10 @@
   },
   "active": "63e5950b4619ae58",
   "lastOpenFiles": [
-    "glossary/charity.md",
+    "journal/2023-04-20.md",
+    "glossary/elgar.md",
     "glossary/hope.md",
+    "glossary/charity.md",
     "glossary/war.md",
     "deck/2h.md",
     "glossary/panpsychism.md",
@@ -202,8 +204,6 @@
     "glossary/sees.md",
     "glossary/white.md",
     "glossary/parting.md",
-    "glossary/thought.md",
-    "journal/2023-03-25.md",
     "journal/Untitled",
     "archive/hex_template_200_10.png",
     "archive/Pasted image 20230321140121.png",

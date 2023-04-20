@@ -17,7 +17,7 @@ Ancra fell in love with [[Louise]] while with his wife, and he got his wife preg
 Gale receives a call each [[chapter]], then receives another.  
   
 Eroica recorded Catherine and [[Louise]] performing The [[Wind]] at Dawn, because that was her violinist mother's favorite piece's [[sister]] piece.  
-It was also Catherine's favorite memory in concert as a married singer in love with her pianist, and [[Louise]]'s, whose mother was deeply obsessed with an Elgar song. Each has a mother who loved The [[Wind]] at Dawn.  
+It was also Catherine's favorite memory in concert as a married singer in love with her pianist, and [[Louise]]'s, whose mother was deeply obsessed with an [[Elgar]] song. Each has a mother who loved The [[Wind]] at Dawn.  
   
 Eroica saved up for a cassette player, Catherine performed it, [[Louise]] confronted it  
   
