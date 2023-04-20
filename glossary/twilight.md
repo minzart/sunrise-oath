@@ -1,1 +1,1 @@
-[[Dawn|dawn]] [[to]] [[sunrise]], [[sunset]] [[to]] [[dusk]].
+[[Dawn]] [[to]] [[sunrise]], [[sunset]] [[to]] [[dusk]].

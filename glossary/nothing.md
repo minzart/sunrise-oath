@@ -1,1 +1,1 @@
-Gale let his [[apartment]] get [[dirty]] after Selene and Charlotte [[left]].
+Gale let his [[apartment]] get [[dirty]] [[after]] Selene and Charlotte [[left]].

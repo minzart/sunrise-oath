@@ -1,0 +1,1 @@
+Ying mocks the prime minister at the dinner table, calling him Little Potato, a pun in Chinese.  

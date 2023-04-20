@@ -1,2 +1,4 @@
 [[a|A]] [[journey]] [[of]] [[ash]] [[to]] [[ash]], [[dust]] [[to]] [[dust]].
 Too short for [[work]], too long for [[play]].
+
+It was light itself, so bright and hot I never had a chance to steel my heart. Yet even metals tempered by the heat [[shall]] cook as offerings to the divine. The shifts in my thinking [[shall]] soon come and subsume the person I am at the current stroke.

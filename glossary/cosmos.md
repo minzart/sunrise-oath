@@ -1,0 +1,1 @@
+[[We]] grew up, and wept. The tomb moved not. Yet [[we]] knew, at the break of dawn, that [[there]] is eternal life. Heaven is [[there]] — at the point of breakage, in the shallows of the pond, in the drop of a tear, in the splash of [[inferno]] taking everything as sacrifice.

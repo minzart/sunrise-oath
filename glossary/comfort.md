@@ -1,0 +1,1 @@
+He is [[sensitive]] about his nose, and taps his foot incessantly.  

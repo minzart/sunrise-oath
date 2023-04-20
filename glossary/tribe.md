@@ -1,1 +1,1 @@
-a password can be a social code for an inner circle, like playing a piece of music.
+[[A]] [[password]] [[can]] [[be]] [[a]] [[social]] [[code]] [[for]] [[an]] [[inner]] [[circle]].

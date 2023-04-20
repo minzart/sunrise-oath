@@ -1,0 +1,1 @@
+[[Finds]] [[nonhumans]] [[fascinating]], [[poor]] [[in]] [[combat]] [[against]] [[them]].  

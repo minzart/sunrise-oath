@@ -1,0 +1,1 @@
+He is dimwitted, but limber and dextrous. Though graceful, he is slow in movement, like a dancer. 

@@ -1,1 +1,1 @@
-After making a move, the player moves a card from the top of their deck to their hand.
+[[After]] making a move, the player moves a card from the top of their deck to their hand.

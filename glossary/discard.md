@@ -1,1 +1,1 @@
-When a player uses a card in hand as an action or to pay a cost, it is placed in a graveyard. When a deck runs out of cards, its owner replaces cards from the graveyard into the deck in order (first card used on top).
+When a [[player]] uses a [[card]] in [[hand]] as an [[action]] or to [[pay]] a [[cost]], it is [[placed]] in a [[graveyard]]. When a [[deck]] runs out of cards, its owner replaces cards from the [[graveyard]] into the deck in order ([[first]] card used on [[top]]).

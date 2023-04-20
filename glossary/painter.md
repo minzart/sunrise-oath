@@ -1,11 +1,11 @@
-snow falling  
+[[snow]] [[falling]]  
   
-cabin  
+[[cabin]]  
   
-rabbit inside  
+[[rabbit]] [[inside]]  
   
   
-eat the rabbit?  
+[[eat]] [[the]] [[rabbit]]?  
   
   
 emergency broadcast: hitler won world war ii  

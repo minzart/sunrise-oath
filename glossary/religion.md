@@ -1,1 +1,1 @@
-The fireplace, the hearth of generations, replaced by screens.
+The fireplace, the [[hearth]] of generations, replaced by screens.

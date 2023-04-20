@@ -1,0 +1,1 @@
+The [[monk]] gains insight and enters the spirit realm at sundown. The collective experience has those around him directing him, aiding him [[with]] apparations they create. When he emerges, the vision has become reality; all former allies in the dream become foes. Angels come to aid in a [[fight]] against evil.

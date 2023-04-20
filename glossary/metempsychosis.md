@@ -1,1 +1,1 @@
-The [[soul]] travels after death, ending up somewhere else entirely.
+The [[soul]] travels [[after]] death, ending up somewhere else entirely.

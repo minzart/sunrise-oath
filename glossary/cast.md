@@ -1,0 +1,1 @@
+[[Chance]] [[has]] [[made]] [[us]] [[sorry]] [[fools]].

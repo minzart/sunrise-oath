@@ -1,9 +1,10 @@
 {
   "trashOption": "system",
-  "promptDelete": false,
+  "promptDelete": true,
   "alwaysUpdateLinks": false,
   "newFileLocation": "root",
   "newFileFolderPath": "glossary",
   "attachmentFolderPath": "archive",
-  "showInlineTitle": false
+  "showInlineTitle": false,
+  "strictLineBreaks": false
 }

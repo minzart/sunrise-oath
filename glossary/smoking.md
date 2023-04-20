@@ -1,0 +1,1 @@
+[[Hard]] [[to]] [[quantify]] [[the]] [[net]] [[benefit]] [[of]] [[focus]] [[if]] [[it]] [[often]] [[results]] [[in]] [[tangents]], [[albeit]] [[useful]] [[and]] [[spiritually]] [[productive]] [[ones]].

@@ -83,11 +83,11 @@ elon
   
 animated film  
 EVIL DAYS REDEEMED  
-white link  
+[[white]] link  
 kurisu  
   
 animated film  
-THE WIND AT DAWN  
+THE [[WIND]] AT DAWN  
 a1  
 gale  
   

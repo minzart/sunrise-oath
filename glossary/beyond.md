@@ -1,0 +1,1 @@
+Life is [[strange]]: the [[pianist]] should have stayed a [[stranger]], but [[became]] my [[fiancée]] [[with]] the [[engineer]]’s blessing. 

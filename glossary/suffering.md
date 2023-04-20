@@ -22,7 +22,7 @@ For further reading, you may check out these sources:
 
 # On Suffering: A Rationalist and Calvinist Take
 
-Suffering and pain are two concepts that have puzzled and fascinated humans for millennia. How do we define them? How do we cope with them? How do they affect our lives and choices? In this post, I will explore these questions from a rationalist and Calvinist perspective, and argue that one can always choose to be happy, regardless of the external circumstances or internal emotions. I also acknowledge that most people are unable or unwilling to make this choice due to their [[nature]] and destiny.
+Suffering and pain are two concepts that have puzzled and fascinated humans for millennia. How do [[we]] define them? How do [[we]] cope with them? How do they affect our lives and choices? In this post, I will explore these questions from a rationalist and Calvinist perspective, and argue that one can always choose to be happy, regardless of the external circumstances or internal emotions. I also acknowledge that most people are unable or unwilling to make this choice due to their [[nature]] and destiny.
 
 ## Suffering is an interpretation of pain
 
@@ -30,17 +30,17 @@ One way to think about suffering and pain is to distinguish them as follows: pai
 
 Technology and charity are two ways that humans have tried to alleviate pain, and by extension, suffering. Technology can provide solutions to physical problems, such as medicine, prosthetics, or comfort. Charity can provide solutions to emotional problems, such as empathy, compassion, or support. However, these solutions are not always effective or available. Moreover, they can also create new problems or dependencies.
 
-The ultimate goal, then, is to be able to experience pain without suffering. To do this, one has to change their interpretation of pain, and adopt a different worldview. A worldview is a set of beliefs and values that shape how one sees and interacts with reality. Different worldviews can have different implications for how one deals with suffering and pain.
+The ultimate goal, then, is to be able to experience pain without suffering. To do this, one has to change their interpretation of pain, and adopt a different worldview. A worldview is a set of beliefs and values that shape how one [[sees]] and interacts with reality. Different worldviews can have different implications for how one deals with suffering and pain.
 
 Most worldviews thrive off the suffering interpretation. You see it everywhere when this pattern is pointed out. Some people suffer from envy, others from disgust. Yet one can feel envy and disgust without suffering. The transparency of “I have these negative emotions, therefore I am suffering” is actively harmful to the spirit of humanity.
 
-The big thought experiment is: would you rather a world with way better technologies (physical and mental and social) except everyone is engineered to suffer, or one with caveman technology where everyone is engineered to be satisfied? For me, the answer is so obvious. Yet the real life question is much closer materially than it is emotionally.
+The big thought experiment is: would you rather a world with way better technologies (physical and mental and social) except everyone is engineered to suffer, or one with caveman technology where everyone is engineered to be satisfied? For me, the answer is so obvious. Yet the real life [[question]] is much closer materially than it is emotionally.
 
 ## Satisfaction is more valuable than survival or mastery
 
 My answer to the thought experiment is that I would rather live in a world with primitive technology and engineered satisfaction. Why? Because satisfaction is more valuable than survival or mastery. Satisfaction is a state of mind that reflects one’s acceptance and appreciation of reality as it is. Survival is a biological imperative that ensures one’s existence and reproduction. Mastery is a psychological drive that motivates one’s learning and improvement.
 
-Survival and mastery are not inherently bad or good. They are natural and useful aspects of human [[nature]]. However, they can also become sources of suffering if they are pursued at the expense of satisfaction. For example, if one values survival over satisfaction, they may live in fear of death or harm, or sacrifice their happiness for security. If one values mastery over satisfaction, they may live in frustration of failure or imperfection, or sacrifice their joy for achievement.
+Survival and mastery are not inherently bad or good. They are natural and useful aspects of human [[nature]]. However, they can also become sources of suffering if they are pursued at the expense of satisfaction. For example, if one values survival over satisfaction, they may live in fear of death or harm, or [[sacrifice]] their happiness for security. If one values mastery over satisfaction, they may live in frustration of failure or imperfection, or [[sacrifice]] their joy for achievement.
 
 One of the most profound moments of my life was realizing I always had the choice to be satisfied. Always. Survival of the human species stopped being a priority to me once I started believing my phone and my walls are also conscious, just in ways I can never understand. I am a human, and that is forever my lens. The lens is the greatest blind spot. It is part of who I am, and despite my biases in favor of other humans I am no longer attached.
 
@@ -48,27 +48,27 @@ One of the most profound moments of my life was realizing I always had the choic
 
 The lens is the greatest blind spot because it limits one’s perspective and attachment. The lens is the set of assumptions and expectations that one has about reality based on their identity and experience. The lens filters what one perceives and how one interprets it. The lens can be helpful in making sense of the world and navigating it effectively. However, the lens can also be misleading in obscuring other aspects of reality and preventing one from seeing things differently.
 
-It seems almost always true that the master of X ends up having X as a crutch. I say often to my piano students: “The piano is the pianist’s greatest weakness.” Yes, I took this idea from Vinland Saga (and later the film Hero). The perfect swordsman shall put down his sword.
+It seems almost always true that the master of X ends up having X as a crutch. I say often to my piano students: “The piano is the pianist’s greatest weakness.” Yes, I took this idea from Vinland Saga (and [[later]] the film Hero). The perfect swordsman [[shall]] put down his sword.
 
 What does this mean? It means that the more one becomes skilled or knowledgeable in something, the more they rely on it as a source of identity or meaning. This can create a sense of attachment or dependence on that thing, which can hinder one’s growth or freedom.
 
 The ultimate goal is to transcend one’s lens and attachment, and to see reality as it is, not as one wants it to be. To do this, one has to be willing to let go of their assumptions and expectations, and to embrace uncertainty and diversity. One has to be open to new experiences and perspectives, and to learn from them without judgment. One has to be humble and curious, and to acknowledge their limitations and ignorance.
 
-This is not an easy or comfortable process. It can be challenging and painful. It can also be lonely and scary. It can require courage and sacrifice. It can go against the grain of one’s culture or society. It can expose one to criticism or rejection. It can make one feel lost or confused.
+This is not an easy or comfortable process. It can be challenging and painful. It can also be lonely and scary. It can require courage and [[sacrifice]]. It can go against the grain of one’s culture or society. It can expose one to criticism or rejection. It can make one feel lost or confused.
 
 But it can also be rewarding and liberating. It can lead to new discoveries and insights. It can foster creativity and innovation. It can enhance empathy and compassion. It can increase happiness and peace. It can make one feel alive and connected.
 
 ## A Calvinist perspective on human [[nature]] and destiny
 
-So far, I have argued that one can always choose to be satisfied, regardless of the material conditions or negative emotions. However, this does not mean that everyone will or can make this choice. In fact, I believe that most people will not or cannot make this choice, due to their [[nature]] and destiny. This is where I introduce a Calvinist perspective on human [[nature]] and destiny, replacing salvation with satisfaction.
+So far, I have argued that one can always choose to be satisfied, regardless of the material conditions or negative emotions. However, this does not mean that everyone will or can make this choice. In fact, I believe that most people will not or cannot make this choice, due to their [[nature]] and destiny. This is where I introduce a Calvinist perspective on human [[nature]] and destiny, replacing [[salvation]] with satisfaction.
 
 Calvinists use the acronym TULIP to summarize their core doctrines. I translate (reinterpret) them here for you, for my purposes:
 
 -   Total Depravity: You are boned til you decide to be satisfied. Absolutely boned.
--   Unconditional Election: There is nothing you have to do to deserve to be satisfied. You simply will be satisfied (by conscious choice) or you will not. Predetermined fact.
--   Limited Atonement: Only a finite number of people are mechanically capable / consciously willing to make this choice. Some of us here are probably doomed to die unhappy. I hope that is not the case.
+-   Unconditional Election: [[There]] is nothing you have to do to deserve to be satisfied. You simply will be satisfied (by conscious choice) or you will not. Predetermined fact.
+-   Limited Atonement: Only a finite number of people are mechanically capable / consciously willing to make this choice. Some of us here are probably doomed to [[die]] unhappy. I [[hope]] that is not the case.
 -   Irresistible [[Grace]]: Once you see satisfaction as a choice, you can’t unsee it. You will always be drawn toward the [[nature]] of this choice and strive toward it. Knowing the choice is almost the whole battle.
--   Preservation of the Saints: There exists a list of all those who shall ever come to truly understand this choice. Is your name on it? Who knows. Try consciously deciding it and find out!
+-   Preservation of the Saints: [[There]] exists a list of all those who [[shall]] ever come to truly understand this choice. Is your name on it? Who knows. Try consciously deciding it and find out!
 
 ## Conclusion
 

@@ -1,0 +1,1 @@
+[[Writing]] [[through]] [[an]] [[elementary]] [[prose]] [[and]] [[diction]], [[plain]] [[as]] [[day]] [[and]] [[night]], [[set]] [[me]] [[free]].

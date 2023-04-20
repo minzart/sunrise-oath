@@ -6,9 +6,9 @@ The front was in the steppes but weeks ago. Horrors populated the warzone. Being
 
 The abomination walked by, indifferent to its surroundings. [[Time]] to strike! The veteran combatant leapt from behind, delivered a single blow, and [[stood]] over the still, vanquished [[body]].
 
-Just then, he heard the rustles of the enemy, the real opponents. Three [[vampires]], devout followers of their corrupt despot. The irony of his hatred was not lost on [[him]]—the crown he served was no less undeserving—yet seeing the blood on their chin and lips made him certain that there was something, anything at [[all]], that separated their cause with his. He looked upon the [[proud]] [[brow]] of an [[enemy]] [[officer]], who calmly [[drew]] and brandished his [[weapon]]. 
+Just then, he heard the rustles of the enemy, the real opponents. Three [[vampires]], devout followers of their corrupt despot. The irony of his hatred was not lost on [[him]]—the crown he served was no less undeserving—yet seeing the blood on their chin and lips made him certain that [[there]] was something, anything at [[all]], that separated their cause with his. He looked upon the [[proud]] [[brow]] of an [[enemy]] [[officer]], who calmly [[drew]] and brandished his [[weapon]]. 
 
-“[[Surrender]]. You shall be detained, and offered full [[protection]].”
+“[[Surrender]]. You [[shall]] be detained, and offered full [[protection]].”
 
 Protection? Was that what they called it? The stories he heard were gruesome, and chilled him then. Would the fate those tales described be his? No. He put his sword away, and raised his hands. Slowly. All the while, he cast the spell he learned some years ago, when he was yet an adventurer.
 

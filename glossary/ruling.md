@@ -1,0 +1,1 @@
+[[Little]] [[nobles]], [[spoiled]] [[royalty]], [[see]] themselves [[in]] [[the]] beggars and the cripples.  

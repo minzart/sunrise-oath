@@ -17,7 +17,7 @@ DeWitt - The Last Samurai
 House of Leaves  
 Toibin - The Heather Blazing  
 Findlay - The Value of Art  
-From the Towers of the Moon  
+From the Towers of the [[Moon]]  
 Cormac McCarthy - The Road  
 The God of Small Things  
 Dylan - The Philosophy of Modern Song  
@@ -31,7 +31,7 @@ Studies into Darkness (epub)
 Ted Chiang - The Evolution of Human Science (Stories of Your Life and Others)  
 Confidentially Yours  
 Eddie Izzard Great Expectations  
-When We Cease to Understand the World  
+When [[We]] Cease to Understand the World  
 My Broken Language  
 Rushmore  
 The Inspection  

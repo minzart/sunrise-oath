@@ -1,1 +1,1 @@
-There are many ways to play Duality [[with]] these cards. Go ahead, make new games!
+[[There]] are many ways to play Duality [[with]] these cards. Go ahead, make new games!

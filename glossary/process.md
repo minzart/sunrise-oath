@@ -2,4 +2,4 @@
   
 Ancra magic is foresight (future)  
   
-Never is there magic in the present. 
+Never is [[there]] magic in the present. 

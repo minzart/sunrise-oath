@@ -1,0 +1,1 @@
+[[SUFFER]] [[NOT]], [[MY]] [[DEAR]], [[AND]] [[LIVE]] [[FOREVER]].

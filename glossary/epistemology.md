@@ -2,15 +2,15 @@
 1. [[experiment|Experimented]], [[and]] [[create|created]]. 
 2. [[know|Know]] [[this]], [[you]] [[know]] [[who]] [[robs]] [[you]] [[of]] [[sight]].
 
-There once was [[an]] [[older]] [[girl]], a [[younger]] [[woman]], who [[saved]] [[me]].
+[[There]] once was [[an]] [[older]] [[girl]], a [[younger]] [[woman]], who [[saved]] [[me]].
 
-On her good advice, I quit my job. I gave my notice at summer’s end, and Alain set me free from Génoise et Thé. “You can’t be kept, _mon gars_.” He patted my shoulder, and we shook hands, a parting between men. Waiting outside, Selene took off her sunglasses and dabbed her eyes.
+On her good advice, I quit my job. I gave my notice at summer’s end, and Alain set me free from Génoise et Thé. “You can’t be kept, _mon gars_.” He patted my shoulder, and [[we]] shook hands, a parting between men. Waiting [[outside]], Selene took off her sunglasses and dabbed her eyes.
 
 ![](https://sunriseoath.files.wordpress.com/2023/01/bg-oldmtl-day.webp?w=1024)
 
-I cleaned my room, fussing over details she fixed sooner and better. The curator was a lovely guest, bringing gifts and Charlotte. We were in bright humor from the change in the season, the shift in the wind. I did well as a host, as a man. I shaved my face, brushed my teeth, wore my shirt, and owned my life.
+I cleaned my room, fussing over details she fixed sooner and better. The curator was a lovely guest, bringing gifts and Charlotte. [[We]] were in bright humor from the change in the season, the shift in the [[wind]]. I did well as a host, as a man. I shaved my face, brushed my teeth, wore my shirt, and owned my life.
 
-At the Old [[Port]], we sat on a bench. She spoke, and I learned. I asked, she asked further. We leaned into mystery, and tackled the snake, fang and venom, as it was. 
+At the Old [[Port]], [[we]] sat on a bench. She spoke, and I learned. I asked, she asked further. [[We]] leaned into mystery, and tackled the snake, fang and venom, as it was. 
 
 ![](https://sunriseoath.files.wordpress.com/2023/01/cg-bench.png?w=1024)
 
@@ -26,7 +26,7 @@ A day before she left, marking a sudden end, was the one [[time]] she stood us u
 
 ![](https://sunriseoath.files.wordpress.com/2023/01/bg-gnt-day-1.webp?w=1024)
 
-Later, the curator came in without knocking. Her tone commanded: “The place around the corner, my tab.”
+[[Later]], the curator came in without knocking. Her tone commanded: “The place around the corner, my tab.”
 
 She dressed the same, yet seemed not herself. I stood, and warned her to look away. I changed, and her sad eyes looked not away. Ah — they were a new color. 
 
@@ -44,7 +44,7 @@ I cleared my throat, and tried — failed — to pull away. “You’re acting o
 
 ![](https://sunriseoath.files.wordpress.com/2023/01/bg-durocher-night.webp?w=1024)
 
-I paid [[with]] her card, and the tall wanderer leaned on my shoulder. We hobbled to my _un et demi_, tidy as I left it. She twirled, and kicked off her Converse sneakers. “Home, Gale Jones. Let us be merry!” A cackle bubbled, escaping her beautiful wide mouth. “The night is young.”
+I paid [[with]] her card, and the tall wanderer leaned on my shoulder. [[We]] hobbled to my _un et demi_, tidy as I left it. She twirled, and kicked off her Converse sneakers. “Home, Gale Jones. Let us be merry!” A cackle bubbled, escaping her beautiful wide mouth. “The night is young.”
 
 I held her, inches from [[an]] edge. “Let’s [[calm]] down. Come, sit.”
 
@@ -66,13 +66,13 @@ A shy kiss, a brush.
 
 ![](https://sunriseoath.files.wordpress.com/2023/01/cg-6.png?w=1024)
 
-Is that how it was always meant to be? So halting, soft, and [[burning]]? Was that the perfect first I could not keep, the one I see anew in [[every]] dream? I looked away. “We should stop.”
+Is that how it was always meant to be? So halting, soft, and [[burning]]? Was that the perfect first I could not keep, the one I see anew in [[every]] dream? I looked away. “[[We]] should stop.”
 
-“Should we?” She sounded sure, yet her legs quivered as I thought of _Bambi_, of fawn and doe, of Louise. I was aroused, and awake.
+“Should [[we]]?” She sounded sure, yet her legs quivered as I thought of _Bambi_, of fawn and doe, of [[Louise]]. I was aroused, and awake.
 
 “I want to stop.”
 
-“Please.” Her smile, seductive and mature; her eyes, when were they ever so young? Those brown gems, free of color contacts, more than the false blue jewels I knew, revealed a maiden pure and innocent.
+“Please.” Her smile, seductive and mature; her eyes, when were they ever so young? Those brown gems, free of color contacts, more than the [[false]] blue jewels I knew, revealed a maiden pure and innocent.
 
 “Selene.” I pleaded, and knew not for what. But then, she threw up, cupped her mouth, and wept: 
 

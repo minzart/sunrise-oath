@@ -1,1 +1,1 @@
-Every member of the Jones generation is disowned by their parents, and supplants them.
+Every [[member]] of the [[Jones]] generation is distanced from their parents, and supplants them.

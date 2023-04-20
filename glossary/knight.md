@@ -1,0 +1,1 @@
+Got sword from Uncle Farrow, who doted on him unlike the rest of his family.  

@@ -1,0 +1,1 @@
+The creation of God [[shall]] never shame me. 

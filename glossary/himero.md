@@ -1,5 +1,5 @@
 
-[[366]] - pool of clean water
+[[366]] - [[pool]] of clean water
 [[396]] - iron shield
 [[419]] - locked chest
 [[420]] - dusty bed, smells of bear

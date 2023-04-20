@@ -1,0 +1,1 @@
+[[Meanwhile]], [[the]] [[wicked]] [[roam]] [[in]] [[darkness]], [[prowling]] [[a]] [[world]] [[before]] [[streetlamps]].

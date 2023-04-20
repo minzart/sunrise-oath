@@ -1,5 +1,5 @@
 Walkman is from Eroica  
-Piano recording is from Louise  
+Piano recording is from [[Louise]]  
 Song is from Catherine  
   
 CD player is from Tara  
@@ -27,6 +27,6 @@ Catherine's father's rosary
 Selene takes it on the day she leaves to get back at Catherine.  
 (replaced by her own Buddhist prayer beads)  
   
-Louise's father's ring  
-Charlotte takes it after hearing about Louise while Gale is high.  
+[[Louise]]'s father's ring  
+Charlotte takes it [[after]] hearing about [[Louise]] while Gale is high.  
 (replaced by her own wedding ring)

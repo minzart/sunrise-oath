@@ -12,7 +12,7 @@ Gale is ready to move on and enjoy a new life, but is stopped by a stumble. The 
   
 Chapter 4  
   
-Gale resolves to face the truth and seek it out. Through Selene's tutelage, he learns about the [[nature]] of truth and explores many subjects, reveling in the joy of knowledge, yet in the process is blind to the curator's lies. By the end of the chapter, he is forlorn and heartbroken by her delusion and betrayal.  
+Gale resolves to face the [[truth]] and seek it out. Through Selene's tutelage, he learns about the [[nature]] of [[truth]] and explores many subjects, reveling in the joy of knowledge, yet in the process is blind to the curator's lies. By the end of the chapter, he is forlorn and heartbroken by her delusion and betrayal.  
   
 Chapter 5  
   
@@ -20,7 +20,7 @@ Gale retreats from the world into his writing. His only connection with the worl
   
 Chapter 6  
   
-Gale commits to searching for that which is lost. Coming across Alain, the owner of the cafe, he is reprimanded for pushing aside those who want what is [[best]] for him. By the end of the chapter, he sees the truth for what it is but struggles alone.  
+Gale commits to searching for that which is lost. Coming across Alain, the owner of the cafe, he is reprimanded for pushing aside those who want what is [[best]] for him. By the end of the chapter, he [[sees]] the [[truth]] for what it is but struggles alone.  
   
 Chapter 7  
   
@@ -40,7 +40,7 @@ His reunion with Dawn.
   
 2  
 Timothy, Ancra, and Maximilian.  
-The scientist, the journalist, the politician.  
+The [[scientist]], the journalist, the politician.  
 Job at Genoise et The, meeting [[Hortus]].  
   
 3  
@@ -52,7 +52,7 @@ Catherine, the inventor.
 Selene, the curator.  
   
 5  
-Louise, the pianist.  
+[[Louise]], the pianist.  
 Charlotte, the doctor. Dawn's return.  
   
 6  
@@ -61,7 +61,7 @@ The search for Dawn.
   
 7  
 Funeral.  
-Louise's death.  
+[[Louise]]'s death.  
 Gale's fall into the river.  
 Hospital.  
 Alain's death.  

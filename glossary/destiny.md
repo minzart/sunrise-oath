@@ -1,1 +1,1 @@
-The Boardwalk is a short walk away.
+The [[Boardwalk]] is a short walk away.

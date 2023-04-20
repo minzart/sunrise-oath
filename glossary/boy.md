@@ -1,0 +1,1 @@
+[[He]] [[and]] [[she]] [[read]] [[in]] [[the]] [[library]], and think about new ideas.

@@ -1,1 +1,1 @@
-“I want to [[stop]].”
+“[[I]] [[want]] [[to]] [[stop]].”

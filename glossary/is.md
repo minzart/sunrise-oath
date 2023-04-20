@@ -1,0 +1,1 @@
+[[Being]] [[of]] [[the]] [[world]] [[as]] [[a]] [[mystery]], [[seeking]] [[divine]] [[truth]].

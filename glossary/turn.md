@@ -1,1 +1,1 @@
-After each move, the player draws a card. Play alternates between the players.
+[[After]] each move, the player draws a card. Play alternates between the players.

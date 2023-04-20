@@ -1,0 +1,1 @@
+Penguins live in the antarctic subzero urban area, the southern suburb.

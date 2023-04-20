@@ -1,1 +1,3 @@
-Alain sent me on my way [[with]] a box of fresh madeleines, a gift I shared [[with]] the beautiful stranger named Dawn upon our next meeting.
+
+[[Faith]] [[and]] [[hope]] [[are]] [[of]] [[this]] [[world]]. [[Love]] [[is]] [[forever]].  
+1 Corinthians 13

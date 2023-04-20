@@ -1,1 +1,2 @@
-Life is [[strange]]: the [[pianist]] should have stayed a [[stranger]], but [[became]] my [[fiancée]] [[with]] the [[engineer]]’s blessing.
+Selene explored the limits of rationality and went [[beyond]], finding newer and newer forms of knowledge, but ultimately is lost.
+

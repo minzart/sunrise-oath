@@ -1,0 +1,1 @@
+[[We]] [[have]] [[but]] [[left]] [[one]] [[story]], [[and]] [[entered]] [[another]]. 

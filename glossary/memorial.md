@@ -1,0 +1,1 @@
+[[Regina]] took me to First Choice Haircutters, and hesitated [[after]] seeing the [[results]]. 

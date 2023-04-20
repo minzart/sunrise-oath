@@ -1,0 +1,1 @@
+[[A]] [[deep]] [[form]] [[of]] [[knowledge]] [[that]] [[needs]] [[no]] [[external]] [[reference]] [[or]] [[appeal]].

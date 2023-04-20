@@ -1,0 +1,1 @@
+[[Catherine]] slowly begins to dabble in various [[occult]] and [[magical]] [[subjects]], incorporating them into her [[faith]], but ultimately is shaken.  

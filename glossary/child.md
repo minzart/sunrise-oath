@@ -2,7 +2,7 @@
 
 * * *
 In a rocking boat on the winding shore,  
-seven mages gave the world eternal life.  
+[[seven]] mages gave the world eternal life.  
   
 All the angry men in my native land  
 see upon my brow another foreign face.  
@@ -12,4 +12,4 @@ may be the Caesar's ecstasy.
   
 A fate is God’s. A choice is yours.
 
-[[grace|Grace]] by faith alone.
+[[grace|Grace]] by [[faith]] alone.

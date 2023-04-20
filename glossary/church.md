@@ -1,1 +1,1 @@
-No one should have to live in a [[house]] someone died in. No, that is an excuse. I simply wish not to sell it.
+My parents were Buddhist or atheist, often both, but signed me up to sing in the Saturday children's choir, driving me over [[after]] Mandarin lessons in the morning. [[After]] the last rehearsal of the school year, they learned of a free week of summer activities for children. A little Jesus never hurt anyone, they figured, and that was how on a hot Friday in August I ended up at a water park, sitting on blue tarmac [[with]] [[Jennifer]].  

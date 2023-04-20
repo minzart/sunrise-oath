@@ -1,1 +1,1 @@
-From the moment of abdication, the monarch is dead. To reclaim his throne is to be resurrected anew.
+[[From]] the [[moment]] of abdication, the [[monarch]] is [[dead]]. To [[reclaim]] his [[throne]] is to be [[resurrected]] [[anew]].

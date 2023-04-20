@@ -1,4 +1,4 @@
-Hera / Artemis  
-Peacock / quail  
+[[Hera]] / [[Artemis]]  
+[[Peacock]] / [[quail]]  
   
-(also, cow. make a joke)
+([[also]], [[cow]]. [[make]] [[a]] [[joke]])

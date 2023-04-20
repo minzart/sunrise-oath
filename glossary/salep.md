@@ -1,0 +1,1 @@
+[[Quiet]] [[streets]] [[past]] [[dusk]], [[illumined]] [[only]] [[by]] [[lanterns]] [[clutched]] [[in]] [[the]] [[hands]] [[of]] [[the]] [[good]]. 

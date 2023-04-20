@@ -1,3 +1,1 @@
-Romance of the House of Hawthorn
-
-Juniper / Catherine / Jason
+Romance of the House of [[Hawthorn]] 

@@ -1,0 +1,1 @@
+[[Luck]] [[is]] [[always]] [[on]] [[Corrin]]'s [[side]].  

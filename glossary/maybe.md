@@ -1,0 +1,1 @@
+[[It]] [[makes]] [[my]] [[brain]] [[faster]], [[but]] [[also]] [[makes]] [[me]] [[waste]] [[time]] [[on]] [[thinking]]. 

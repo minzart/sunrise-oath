@@ -1,1 +1,1 @@
-Trinity (3), Heptalogy (7), Commandments (10)
+[[Trinity]] (3), Heptalogy (7), Commandments (10)

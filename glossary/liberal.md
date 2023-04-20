@@ -1,4 +1,4 @@
-Seven Houses of the North  
+[[Seven]] Houses of the North  
   
 Trivium  
   

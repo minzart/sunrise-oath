@@ -6,11 +6,11 @@ Win by having more points (cards of suit or rank matching initial).
 
 * * *
 
-How should a story start? A hidden truth, beyond the comprehension of a small mind like mine, may well be treated as a fairy tale.
+How should a story [[start]]? A hidden [[truth]], beyond the comprehension of a small mind like mine, may well be treated as a fairy tale.
 
 [[player|I]] find my way to a hotel [[with]] infinite floors. [[Every]] floor is a single room, [[every]] room is a strange land, and [[every]] visitor is a stranger to me. Yet, I seem to remember each one from a past life.
 
-Entering the lobby, a concierge looks at me [[with]] severe eyes, blue regards that soften at my sight. “You’re here, mon gars.” So personal, yet so unfamiliar. “Come [[with]] me. I shall show you to the elevator.”
+Entering the lobby, a concierge looks at me [[with]] severe eyes, blue regards that soften at my [[sight]]. “You’re here, mon gars.” So personal, yet so unfamiliar. “Come [[with]] me. I [[shall]] show you to the elevator.”
 
 Once the doors are closed, he pulls out a bag of dice, producing a handful of d20 and a d6.
 
@@ -22,7 +22,7 @@ I look on, and see the numbers come up. “I have no idea what these mean.”
 
 I read his neat handwriting:
 
-> White / Plains (W): [d20]
+> [[White]] / Plains (W): [d20]
 > Blue / Island (U): [d20]
 > [[Black]] / Swamp (B): [d20]
 > Red / Mountain (R): [d20]
@@ -34,7 +34,7 @@ I read his neat handwriting:
 
 “Do I have my own room?” I ask.
 
-“On [[every]] floor,” he replies. “You shall have a bed, and amenities, and a roommate. Everyone is expecting you, and everyone has their advice on where you might explore next.” He reaches in his pocket again, and pulls out two basic lands. “Ever seen Magic cards?”
+“On [[every]] floor,” he replies. “You [[shall]] have a bed, and amenities, and a roommate. Everyone is expecting you, and everyone has their advice on where you might explore next.” He reaches in his pocket again, and pulls out two basic lands. “Ever seen Magic cards?”
 
 “No,” I answer, though I am not so sure. “What does it do?”
 
@@ -50,15 +50,15 @@ I read his neat handwriting:
 
 “Game state,” I repeat. “So this is a game.”
 
-“Very much so,” he says. “This is a game of Magic, and you have two basic lands in play right now. You have mana of five types floating, each represented by a d20. The d6 have nothing to do [[with]] the game for now, unless you ever want to replace a die roll.”
+“Very much so,” he says. “This is a game of Magic, and you have two basic lands in play right now. You have mana of five types floating, each represented by a d20. The d6 have nothing to do [[with]] the game for now, unless you ever want to replace a [[die]] roll.”
 
 “Players roll dice in Magic?” I ask.
 
-“The joke sets do everything these days,” he says. “Anyway, you have no cards in hand or library. Go ahead and add some if you want. But you may also proceed without them, and simply use [[an]] online database like Gatherer if you need to generate or find a card.”
+“The joke sets do everything these days,” he says. “Anyway, you have no cards in hand or library. Go ahead and add some if you want. But you may also proceed without them, and simply use [[an]] online database like Gatherer if you [[need]] to generate or find a card.”
 
 I nod, and do as I wish.
 
-“Remember one thing: your mana pool can only be depleted by giving it to another mage, by casting a spell, or by gaining mana past twenty.” He points at my basic lands. “Tap those, and your mana goes up. At twenty mana, adding one more mana puts you back at one mana.”
+“Remember one thing: your mana [[pool]] can only be depleted by giving it to another mage, by casting a spell, or by gaining mana past twenty.” He points at my basic lands. “Tap those, and your mana goes up. At twenty mana, adding one more mana puts you back at one mana.”
 
 “It loops around.”
 

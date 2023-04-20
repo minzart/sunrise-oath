@@ -1,1 +1,1 @@
-[[colette|Colette]] [[wrote]] [[that]] [[smoking]] [[adds]] [[idleness]] [[to]] [[the]] [[life]] [[of]] [[an]] [[artist]]. Was she right? Maybe. It makes my brain faster, but also makes me waste [[time]] on thinking. Hard to quantify the net benefit of focus if it often results in tangents, albeit useful and spiritually productive ones.
+[[Colette]] [[wrote]] [[that]] [[smoking]] [[adds]] [[idleness]] [[to]] [[the]] [[life]] [[of]] [[an]] [[artist]]. Was she right? [[Maybe]]. 

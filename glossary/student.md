@@ -1,0 +1,1 @@
+[[The]] [[wealth]] [[of]] [[a]] [[teacher]] [[is]] [[the]] [[passage]] [[of]] [[his]] [[wisdom]].

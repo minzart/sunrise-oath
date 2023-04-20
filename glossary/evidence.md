@@ -1,1 +1,1 @@
-Charlotte in chapter 1 is the first to mention a [[café]]. She notes that there is evidence that [[time]] has passed, pointing out the statue and the banners and Génoise et Thé.
+Charlotte in chapter 1 is the first to mention a [[café]]. She notes that [[there]] is evidence that [[time]] has passed, pointing out the statue and the banners and Génoise et Thé.
