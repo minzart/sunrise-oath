@@ -24,7 +24,7 @@ I read his neat handwriting:
 
 > White / Plains (W): [d20]
 > Blue / Island (U): [d20]
-> Black / Swamp (B): [d20]
+> [[Black]] / Swamp (B): [d20]
 > Red / Mountain (R): [d20]
 > Green / Forest (G): [d20]
 > Colorless / Waste (C): [d20]
@@ -42,7 +42,7 @@ I read his neat handwriting:
 
 > Gain a basic land of your highest and lowest rolls.
 
-“Your lands untap upon arriving on a new floor,” he says, “as well as each time you wake up. ”
+“Your lands untap upon arriving on a new floor,” he says, “as well as each [[time]] you wake up. ”
 
 “I have to fiddle [[with]] cards while I’m at the hotel?” I groan.
 

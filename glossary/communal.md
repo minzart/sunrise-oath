@@ -1,1 +1,1 @@
-Everyone works together, suffers together, sins together, dies together.
+[[Everyone]] [[works]], [[suffers]], [[sins]], [[dies]] [[together]].

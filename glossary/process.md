@@ -1,4 +1,4 @@
-Hortus magic is memory (past)  
+[[Hortus]] magic is memory (past)  
   
 Ancra magic is foresight (future)  
   

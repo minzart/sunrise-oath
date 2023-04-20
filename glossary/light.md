@@ -1,4 +1,4 @@
-They regret spending too little time outdoors in the warm months. Yet, no one remembers this lesson when winter is gone. New year, new gadgets, same primates.  
+They regret spending too little [[time]] outdoors in the warm months. Yet, no one remembers this lesson when winter is gone. New year, new gadgets, same primates.  
   
 How human: smart enough to seek [[truth]] and dumb enough to forget the lessons. Will we do better than the rest?  
   

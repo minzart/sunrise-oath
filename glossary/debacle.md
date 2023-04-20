@@ -2,6 +2,6 @@
   
 I stormed out.  
   
-"Wait, Gale." Hortus jogged up in a winter coat. "Walk and talk."  
+"Wait, Gale." [[Hortus]] jogged up in a winter coat. "Walk and talk."  
   
 I let him join me to the Old Port.

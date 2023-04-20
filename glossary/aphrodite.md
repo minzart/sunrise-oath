@@ -4,13 +4,13 @@
 Birds of Canada  
 Taverner  
   
-My fiancée and I rarely met alone in private. I stayed over at Louise's place only once, after having sex in her remodeled garage.  
+[[My]] fiancée and I rarely met alone in private. I stayed over at Louise's place only once, after having sex in her remodeled garage.  
   
 _We are so in love,_ she said that night, and pressed her naked [[body]] against me. _I pray tonight will not ruin it._  
   
-It was on Valentine's Day earlier that year. She had a shock earlier that evening, and wanted me by her side. That brush [[with]] death changed her, and made her so beautiful. She was loud, a sighing soprano seductress, and was more sensual than she ever was before.  
+It was on Valentine's Day earlier that year. She had a [[shock]] earlier that evening, and wanted me by her side. That brush [[with]] death changed her, and made her so beautiful. She was loud, a sighing soprano seductress, and was more sensual than she ever was before.  
   
-The beauty of her love filled my heart.  
+The beauty of her love filled [[my]] heart.  
   
   
 Charlotte skipped two grades and attended Westmount High School, then Vincent d'Indy. After a year, she changed over to becoming a doctor. She comes to marry her rival from her days as a cellist.  
@@ -26,8 +26,8 @@ Charlotte makes a "mix tape" of jazz standards she listened to [[with]] Gale and
   
 What should I do, Charlotte?  
   
-For now, sleep. That's the best thing you can do.  
+For now, sleep. That's the [[best]] thing you can do.  
   
 It's not enough.  
   
-Gale Jones. (She smiles.) If your best is not enough, then whatever can the rest of us do?
+Gale Jones. (She smiles.) If your [[best]] is not enough, then whatever can the rest of us do?

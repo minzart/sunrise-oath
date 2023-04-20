@@ -1,6 +1,6 @@
 [[First|first]] [[two]] [[cities]] [[burn]] [[to]] [[the]] [[ground]], [[then]] [[his]] [[wife]] [[is]] [[stuck]] [[in]] [[time]]. [[What|what]] [[a]] [[day]], [[and]] [[this]] [[is]] [[before]] [[his]] [[daughters]] [[get]] [[funny]] [[ideas]]. [[He|he]] [[went]] [[to]] [[the]] [[cave]], [[and]] [[wished]] [[the]] [[girls]] [[good]] [[night]].
 * * *
-Gale lived not a normal life. He lived the best of lives. He never appreciated his past life, because he was so happy he knew not even what there was to be thankful for. He felt unseen, but he was popular without knowing it. He realizes he threw his past life away with no regard for it.  
+Gale lived not a normal life. He lived the [[best]] of lives. He never appreciated his past life, because he was so happy he knew not even what there was to be thankful for. He felt unseen, but he was popular without knowing it. He realizes he threw his past life away with no regard for it.  
   
 Gale's father is the school principal, a former science teacher. Gale's mother is a writer and classicist. Eroica chooses Gale over his mother. Eroica schemed to get her and her friends closer to a popular kid, and the son of a famous writer. Catherine was rude to Gale out of jealousy, and Tara bullied her as revenge on Gale's behalf. Catherine saw that Gale was not like other popular people. Gale noticed not that Louise's English improved over the years, because he could afford to disregard people. Ancra thought of himself as Gale's sidekick. He tells Gale he could have protected Louise, and almost admitted the kiss.  
   
@@ -34,7 +34,7 @@ Thomas hurts Gale, so Gale denies Thomas.
   
 I took out my wallet and riffled through bills. In the end, I stuffed them all in his hands. "Will you manage?"  
 "I have to. Thanks." He took the money and spread it among his pockets. The eye of Elizabeth II stared through a hole. "Hey, can I use your shower? I'm kinda itchy."  
-"Maybe another time. Sorry."  
+"Maybe another [[time]]. Sorry."  
   
 (Gale gave Walking Eagle all the money he earned from Genoise et The and Selene.)  
   
@@ -42,7 +42,7 @@ November 12: A shadow follows Gale. He calls for Charlotte, Selene, Tara, Cather
   
 Gale calls Tara first, hanging up before she can explain anyyhing (she says Thank God as her first words to him), and then calls Louise. Only after talking to Catherine (who knew about the elopement situation with Tara at La Ronde and his love for Dawn, after Gale calls out both those names on November 12) does he learn the truth, that Louise died, and was planning on giving their child to her father.  
   
-Tara explains that Eroica was somewhat in shock that things went not according to plan, and suggests that Gale call Ancra. "Help her, so she'll help you. She always has a way with problems, you know that!"  
+Tara explains that Eroica was somewhat in [[shock]] that things went not according to plan, and suggests that Gale call Ancra. "Help her, so she'll help you. She always has a way with problems, you know that!"  
   
 Eroica is revealed to be the shadow from November 12, dispatched by Catherine to investigate. In Gale's nightmares, the shadow is Louise haunting him.  
   

@@ -20,7 +20,7 @@ Gale retreats from the world into his writing. His only connection with the worl
   
 Chapter 6  
   
-Gale commits to searching for that which is lost. Coming across Alain, the owner of the cafe, he is reprimanded for pushing aside those who want what is best for him. By the end of the chapter, he sees the truth for what it is but struggles alone.  
+Gale commits to searching for that which is lost. Coming across Alain, the owner of the cafe, he is reprimanded for pushing aside those who want what is [[best]] for him. By the end of the chapter, he sees the truth for what it is but struggles alone.  
   
 Chapter 7  
   
@@ -28,7 +28,7 @@ Gale tries to move on from his self-delusion, but falters due to his first setba
   
 Chapter 8  
   
-Gale endures hardships in the years to come, incl. the death of Alain, but has given up his love for art. His friendships reward him, but cannot assuage the pain of the past he lost. By the end of the chapter, he is rewarded by the chance to meet his granddaughter for the first time.
+Gale endures hardships in the years to come, incl. the death of Alain, but has given up his love for art. His friendships reward him, but cannot assuage the pain of the past he lost. By the end of the chapter, he is rewarded by the chance to meet his granddaughter for the first [[time]].
 
 * * * 
 
@@ -41,7 +41,7 @@ His reunion with Dawn.
 2  
 Timothy, Ancra, and Maximilian.  
 The scientist, the journalist, the politician.  
-Job at Genoise et The, meeting Hortus.  
+Job at Genoise et The, meeting [[Hortus]].  
   
 3  
 Eroica, the lawyer.  

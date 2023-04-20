@@ -1,0 +1,1 @@
+[[I]] [[saw]] [[the]] [[truth]] [[of]] [[life]] [[and]] [[art]] [[from]] [[taking]] [[matters]] [[in]] [[my]] [[own]] [[two]] [[hands]]. [[That]] [[month]], [[under]] [[the]] [[light]] [[of]] [[the]] [[sun]], [[I]] [[found]] [[God]].

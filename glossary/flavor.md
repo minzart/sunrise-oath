@@ -1,1 +1,1 @@
-A card may have text on it for esthetic purposes. Tell a story, or write a quote.
+[[A]] [[card]] [[may]] [[have]] [[text]] [[for]] [[esthetic]] [[purposes]]. [[Tell]] [[a]] [[story]], [[or]] [[write]] [[a]] [[quote]].

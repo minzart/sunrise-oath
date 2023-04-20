@@ -18,7 +18,7 @@ Our older daughter tapped my shoulder from behind the driver's seat. “Let’s 
 
 Eilish closed her book, and smiled innocently. “Nice try. You just don’t want to mess up in front of Tara.”
 
-Her older sister clicked her tongue. “Selene and Charlotte taught you bad habits.”
+Her older [[sister]] clicked her tongue. “Selene and Charlotte taught you bad habits.”
 
 Looking in the rear view mirror, the sight of my two treasures brought me joy. The blushing young woman, so much like her mother; the astute little girl with glasses, clever as I like to think I was. They were the children I had with the love of my dreams, the ones raised by the circle of friends I made my life and mission. That night, we would all be together.
 

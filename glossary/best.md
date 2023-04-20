@@ -1,0 +1,1 @@
+[[Whatever]] [[you]] [[think]] [[this]] [[is]], [[it]] [[is]] [[your]] [[God]].

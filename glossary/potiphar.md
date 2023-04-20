@@ -1,0 +1,1 @@
+[[The]] [[pastor]] [[mused]] [[on]] [[the]] [[Egyptian]], [[the]] [[man]] [[who]] [[saw]] [[the]] [[glory]] [[of]] [[Yahweh]] [[in]] [[Joseph]]. “Perhaps he had mercy on the Hebrew,” [[Jerry]] said. “I mean not to read too much into scripture. But I like to think that as he turned his slave in to the king's prison, he told the warden: ‘This is a good man. He can be trusted.’”

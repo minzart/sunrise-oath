@@ -15,23 +15,23 @@ To Gale, the woman he danced [[with]] was the most beautiful person he ever met.
 
 Gale's relationship [[with]] Dawn distracts him from his writing, though through the experiences he gains confidence as [[an]] artist. He lacked things to write about, and through his experiences [[with]] Dawn he developed his own voice and started to manifest his will in the world.
 
-Most notably, he had a group of three female friends in Waterloo who fit the roles of goddesses in his life. Tara Robles the architect replaces Eroica Vici the lawyer as [[Athena]] (wisdom and war). Selene Bauman the curator replaces Catherine Clement the engineer as Hera (duty and wrath). Charlotte Gagnon the doctor replaces Louise Charpentier the pianist as Aphrodite (beauty and mercy).
+Most notably, he had a group of three female friends in Waterloo who [[fit]] the roles of goddesses in his life. Tara Robles the architect replaces Eroica Vici the lawyer as [[Athena]] (wisdom and war). Selene Bauman the curator replaces Catherine Clement the engineer as Hera (duty and wrath). Charlotte Gagnon the doctor replaces Louise Charpentier the pianist as Aphrodite (beauty and mercy).
 
 Gale's greatest challenge in Montreal is the pursuit of meaning. At first he pursues happiness via chasing the past (his fleeting relationship [[with]] Dawn), but meeting the architect at La Ronde kicked off a chain of events where he began questioning his own reasons for being in Montreal. Most notably, Tara's suggestion that he elope [[with]] her presents itself as [[an]] alternative to being with Dawn, as Gale and Tara were once high school sweethearts who broke up in their first year of engineering at the University of Waterloo.
 
 Gale's relationship with Tara makes him waver in his intentions toward Dawn. He was also suspicious of why Dawn never showed up at La Ronde on the day of their date; it was by fluke that he happened to run into Tara, who was in Montreal with her classmates from architecture school.
 
-Gale's pursuit of meaning manifests in his writing by beginning to reflect his own life more explicitly. The very text the reader is looking at is ostensibly Gale's own autobiography / [[journal]] / memoir. What ultimately helps him find meaning is realizing the subjectivity of all experience, notably through the realization that the Dawn he reunited with never existed except as a figment of his imagination. All that time, he simply imagined a girl who looked exactly like the one who he did meet seven years ago.
+Gale's pursuit of meaning manifests in his writing by beginning to reflect his own life more explicitly. The very text the reader is looking at is ostensibly Gale's own autobiography / [[journal]] / memoir. What ultimately helps him find meaning is realizing the subjectivity of all experience, notably through the realization that the Dawn he reunited with never existed except as a figment of his imagination. All that [[time]], he simply imagined a girl who looked exactly like the one who he did meet seven years ago.
 
-Gale's new friends in Montreal fit the same archetypes as his friends in Waterloo. Gale's friends in Montreal are generally more nuanced or jaded versions of the archetypes from Waterloo. As [[an]] example: Tara is Eroica's cousin, and Eroica was the more dominant and crafty of the two. However, Tara has a special talent for never missing the mark, whether in shooting games, carnival ball tosses, or clever remarks. She also is the one who often foils Eroica's plans, through exercising her own will.
+Gale's new friends in Montreal [[fit]] the same archetypes as his friends in Waterloo. Gale's friends in Montreal are generally more nuanced or jaded versions of the archetypes from Waterloo. As [[an]] example: Tara is Eroica's cousin, and Eroica was the more dominant and crafty of the two. However, Tara has a special talent for never missing the mark, whether in shooting games, carnival ball tosses, or clever remarks. She also is the one who often foils Eroica's plans, through exercising her own will.
 
 After Gale realizes that Dawn never existed, he had a period of idleness where both his friendships and his writing floundered. After finding out that Louise had died in a car accident on her way to the airport with the newborn child she had while Gale was gone, he is distraught by the loss of his fiancee and daughter. He drinks heavily, and accidentally falls into the water at [[Alexandra]] Basin in the Old [[Port]] of Montreal, the very place where he last saw the beautiful stranger seven years before when the ship docked back at the pier. Miraculously, the real version of Dawn, Sarah Carice Beaulieu, happened to be there when he well into the water, and saved his life.
 
 Gale's relationship with Sarah ends in marriage. They have two children: Caroline Alice Jones, and Marie Eilish Jones. ([[Trivia]]: the latter grows up to become Ishmael, one of the leaders of a resistance movement in [[an]] alt-history future of Canada.)
 
-Louise and the unborn child fit into the story via being [[an]] element of foreshadowing that Gale's actions have more consequences than he would like to admit. He thinks he can leave Waterloo and go back whenever he is done with his business in Montreal, but in reality there were many people who depended on him. He let down the original trio, and is denied the chance to truly make amends. All he can do is salvage the relationships he has with the new trio.
+Louise and the unborn child [[fit]] into the story via being [[an]] element of foreshadowing that Gale's actions have more consequences than he would like to admit. He thinks he can leave Waterloo and go back whenever he is done with his business in Montreal, but in reality there were many people who depended on him. He let down the original trio, and is denied the chance to truly make amends. All he can do is salvage the relationships he has with the new trio.
 
-Gale imagines Dawn as a figment of his own imagination as a sort of self-delusion that gives him hope. He feels that his life is boring, and that he has never truly wanted for anything material. For him, the beautiful stranger he met seven years ago was a perfect enigma to carry with him forever. The fake version of Dawn first appeared after Canada Day; during a thunderstorm in the early morning of July 2, 1999, he said that he would finally go back to the Old [[Port]] of Montreal if the rain stopped before sunrise. It did, and so he went and gave himself hope in the way he knew best: lying to himself.
+Gale imagines Dawn as a figment of his own imagination as a sort of self-delusion that gives him hope. He feels that his life is boring, and that he has never truly wanted for anything material. For him, the beautiful stranger he met seven years ago was a perfect enigma to carry with him forever. The fake version of Dawn first appeared after Canada Day; during a thunderstorm in the early morning of July 2, 1999, he said that he would finally go back to the Old [[Port]] of Montreal if the rain stopped before sunrise. It did, and so he went and gave himself hope in the way he knew [[best]]: lying to himself.
 
 Montreal is used as a setting in which Gale is a stranger, and where he can make new connections and start anew. In reality, he is the same person no matter where he goes, and he himself realizes the parallels between the old trio and the new trio. He salvages the latter friendships only after the first three completely forsake him; Eroica and Catherine mourn the death of their dear friend Louise, and Louise the pianist is forever lost to death.
 
@@ -57,7 +57,7 @@ The second of the new friends is Selene Bauman, a Chinese-German curator. She is
 
 Epistemology 1999 is a short story set in the same universe as The Wind at Dawn. It is written in the first person, and follows the experiences of a young man named Gale Jones who is dating Selene Bauman, a Chinese-German curator. The story takes place in the fall of 1999, and focuses on the deepening relationship between Gale and Selene.
 
-The story opens with Gale quitting his job at a [[café]], and spending time with Selene. They have conversations about various topics, and Selene's insights and questions inspire Gale to think more deeply about life and his own experiences. However, Selene's behavior becomes increasingly erratic, and she reveals to Gale that she is struggling with feelings of despair and hopelessness.
+The story opens with Gale quitting his job at a [[café]], and spending [[time]] with Selene. They have conversations about various topics, and Selene's insights and questions inspire Gale to think more deeply about life and his own experiences. However, Selene's behavior becomes increasingly erratic, and she reveals to Gale that she is struggling with feelings of despair and hopelessness.
 
 The story ends with a dramatic confrontation between Gale and Selene, in which Selene confesses her feelings and reveals her true appearance. The story leaves the outcome of their relationship open-ended, and does not provide any resolution.
 
@@ -85,13 +85,13 @@ Ultimately, Gale realizes that his pursuit of Dawn was a delusion, and that the 
 
 Exactly where he last saw her, struggling new writer Gale Jones once again encounters the girl of his dreams. Or, rather, the beautiful stranger who haunts his restless slumber. She dons the same blue dress that she did on the fateful dinner cruise seven summers ago, when they shared a dance on the deck of the ship. The scent of her vanilla perfume and of her strawberry perfume is exactly as he recalls from when he held her close for six short minutes. Her smile, the precious sight granted to him mere moments before she disappeared into the night, is once more his alone to behold.
 
-But she has apparently forgotten about that magical evening back in August 1992. Since the last time he came to the city, she lost all memories of her past. Now as listless as she is nameless, the young woman reveals little of her current life except that she always comes to the Old [[Port]] of Montreal at daybreak. And so there on early mornings Gale meets with his new friend “Dawn” to make good on their new promise: she will help him fall in love with the sunrise, and he will help her find her name. 
+But she has apparently forgotten about that magical evening back in August 1992. Since the last [[time]] he came to the city, she lost all memories of her past. Now as listless as she is nameless, the young woman reveals little of her current life except that she always comes to the Old [[Port]] of Montreal at daybreak. And so there on early mornings Gale meets with his new friend “Dawn” to make good on their new promise: she will help him fall in love with the sunrise, and he will help her find her name. 
 
 Madeleine biscuits with masala chai, classical music on cassettes and vinyls, fireworks during the festive summer months of the bilingual metropolis — from Canada Day to the New Year, the last six months of the old millennium mark their last chance to live in the hazy past. 
 
 The Wind at Dawn is a work of literary magical realism that adopts the quaint nostalgia and yearning of Haruki Murakami’s South of the Border, West of the Sun and the heartfelt experimentation in form and medium of Keinart Lobre's One Thousand Lies.
 
-The novel follows Gale as he navigates his relationship with Dawn and the challenges he faces in his personal and professional life. As he spends more time with her, he becomes increasingly obsessed with finding out her true identity and reconnecting with her. This pursuit becomes all-consuming, causing him to neglect his friendships and writing.
+The novel follows Gale as he navigates his relationship with Dawn and the challenges he faces in his personal and professional life. As he spends more [[time]] with her, he becomes increasingly obsessed with finding out her true identity and reconnecting with her. This pursuit becomes all-consuming, causing him to neglect his friendships and writing.
 
 As his relationship with Selene becomes strained, she eventually leaves Montreal without warning. Charlotte becomes his only remaining connection to the outside world, but she becomes estranged from him when he becomes too focused on finding Dawn.
 
@@ -113,7 +113,7 @@ And he racked the clouds in lofty disdain . . .
 
 . . . As they flocked in his airy train.
 
-Gale starts working at the [[café]], meeting Alain, Hortus, Charlotte, and Selene.
+Gale starts working at the [[café]], meeting Alain, [[Hortus]], Charlotte, and Selene.
 
 CHAPTER THREE
 
@@ -145,7 +145,7 @@ And the [[sea]] streamed red from the kiss of his brow . . .
 
 . . . There was glory and light enow.
 
-Gale's search for Dawn puts off Alain, but earns the sympathy of Hortus. Selene is angry at Gale's treatment of Charlotte, and reveals she is a witch. She curses him to be bound to his greatest lie, though he knows not yet what it is.
+Gale's search for Dawn puts off Alain, but earns the sympathy of [[Hortus]]. Selene is angry at Gale's treatment of Charlotte, and reveals she is a witch. She curses him to be bound to his greatest lie, though he knows not yet what it is.
 
 CHAPTER SEVEN
 
@@ -161,7 +161,7 @@ In his strength unseen, in triumph upborne . . .
 
 . . . Rode he out to meet with the morn!
 
-Gale wakes up in a hospital room, and during the last days of the year makes amends to his new friends. He also meets the real beautiful stranger again for the first time in seven years, and she promises to tell him her name when he is discharged on New Year's Day.
+Gale wakes up in a hospital room, and during the last days of the year makes amends to his new friends. He also meets the real beautiful stranger again for the first [[time]] in seven years, and she promises to tell him her name when he is discharged on New Year's Day.
 
 The Wind at Dawn is a novel with eight chapters, each based on a couplet from the original art song by Elgar. The story follows Gale, who reunites with a young woman named Dawn in the Old [[Port]] of Montreal and makes a sunrise oath with her. He meets a new group of friends at the [[café]] where he works, including Selene, a Chinese-German curator, and Charlotte, a doctor. He also reconnects with his ex-girlfriend Tara. As he becomes increasingly obsessed with finding Dawn, his relationships with Selene and Charlotte become strained. Selene reveals that she is a witch and curses him to be bound to his greatest lie. After discovering that Dawn is not real, Gale falls into a depression and tries to drown himself. He makes amends with his friends and meets the real Dawn again, who promises to tell him her name when he is discharged from the hospital on New Year's Day.
 
@@ -251,7 +251,7 @@ The Wind at Dawn is a novel that follows the emotional journey of Gale Jones, a 
 
 The novel is structured around the art song of the same name by Edward Elgar and Caroline Alice Roberts. Each of the eight chapters corresponds to a couplet in the song. The first chapter, "And the wind went out to meet with the sun...At the dawn when the night was done," sees Gale reunite with Dawn and they make a sunrise oath to help each other out.
 
-In the second chapter, "And he racked the clouds in lofty disdain...As they flocked in his airy train," Gale starts working at the [[café]] Génoise et Thé, where he meets the owner Alain [[Tremblay]], the cook Hortus, and the customers Charlotte Gagnon and Selene Bauman. Charlotte is a doctor who becomes a regular at the [[café]], and Selene is a Chinese-German curator.
+In the second chapter, "And he racked the clouds in lofty disdain...As they flocked in his airy train," Gale starts working at the [[café]] Génoise et Thé, where he meets the owner Alain [[Tremblay]], the cook [[Hortus]], and the customers Charlotte Gagnon and Selene Bauman. Charlotte is a doctor who becomes a regular at the [[café]], and Selene is a Chinese-German curator.
 
   
 
@@ -267,7 +267,7 @@ In the fifth chapter, "Then the sun upleapt in might and in power...And the worl
 
   
 
-In the sixth chapter, "And the [[sea]] streamed red from the kiss of his brow...There was glory and light enow," Gale's search for Dawn puts off Alain, but earns the sympathy of Hortus. Selene reveals that she is a witch and curses Gale to be bound to his greatest lie, though he does not yet know what it is.
+In the sixth chapter, "And the [[sea]] streamed red from the kiss of his brow...There was glory and light enow," Gale's search for Dawn puts off Alain, but earns the sympathy of [[Hortus]]. Selene reveals that she is a witch and curses Gale to be bound to his greatest lie, though he does not yet know what it is.
 
   
 
@@ -393,17 +393,17 @@ The Wind at Dawn is a novel that follows the emotional journey of Gale Jones, a 
 
   
 
-In the sequel to The Wind at Dawn, Evil Days Redeemed, new characters and details are introduced. Quinine Clement, the daughter of Louise Charpentier and Gale Jones, is secretly raised by Catherine Clement. It is revealed that it was Catherine's child who died in the car crash, and she saw this as a command from God to take care of her best friend's child. Eroica is forced to help in Catherine's deception.
+In the sequel to The Wind at Dawn, Evil Days Redeemed, new characters and details are introduced. Quinine Clement, the daughter of Louise Charpentier and Gale Jones, is secretly raised by Catherine Clement. It is revealed that it was Catherine's child who died in the car crash, and she saw this as a command from God to take care of her [[best]] friend's child. Eroica is forced to help in Catherine's deception.
 
   
 
-Hortus opens a [[café]] in Evil Days Redeemed called Génoise et Thé, named after the original [[café]] in Montreal. Alain [[Tremblay]] has passed away, and Hortus has strayed from the right path for a while.
+[[Hortus]] opens a [[café]] in Evil Days Redeemed called Génoise et Thé, named after the original [[café]] in Montreal. Alain [[Tremblay]] has passed away, and [[Hortus]] has strayed from the right path for a while.
 
   
   
   
 
-Gale lived not a normal life. He lived the best of lives. He never appreciated his past life, because he was so happy he knew not even what there was to be thankful for. He felt unseen, but he was popular without knowing it. He realizes he threw his past life away with no regard for it.
+Gale lived not a normal life. He lived the [[best]] of lives. He never appreciated his past life, because he was so happy he knew not even what there was to be thankful for. He felt unseen, but he was popular without knowing it. He realizes he threw his past life away with no regard for it.
 
   
 
@@ -470,7 +470,7 @@ I took out my wallet and riffled through bills. In the end, I stuffed them all i
 
 "I have to. Thanks." He took the money and spread it among his pockets. The eye of Elizabeth II stared through a hole. "Hey, can I use your shower? I'm kinda itchy."
 
-"Maybe another time. Sorry."
+"Maybe another [[time]]. Sorry."
 
   
 
@@ -486,7 +486,7 @@ Gale calls Tara first, hanging up before she can explain anything (she says Than
 
   
 
-Tara explains that Eroica was somewhat in shock that things went not according to plan, and suggests that Gale call Ancra. "Help her, so she'll help you. She always has a way with problems, you know that!"
+Tara explains that Eroica was somewhat in [[shock]] that things went not according to plan, and suggests that Gale call Ancra. "Help her, so she'll help you. She always has a way with problems, you know that!"
 
   
 
@@ -556,17 +556,17 @@ On Sunday, I was hired at a [[café]], the one I saw in Old Montreal. The next d
 
 “Is that so,” she said, not looking up from the scribbles in my old [[journal]].
 
-“I’d come here anyway, is what I’m saying. The Old [[Port]] is the best place for reading before work.”
+“I’d come here anyway, is what I’m saying. The Old [[Port]] is the [[best]] place for reading before work.”
 
 “Hard to read with your eyes staring up at me,” she replied with a smile. “Still on that page?”
 
-My ears feeling hot, I went back to Le Silence de la mer. The next time I looked up, all there was next to me on the bench was my [[journal]], its pages flapping in the wind. Dawn was gone, and was not mine to find til the next day. When the time came, I left to go to work.
+My ears feeling hot, I went back to Le Silence de la mer. The next [[time]] I looked up, all there was next to me on the bench was my [[journal]], its pages flapping in the wind. Dawn was gone, and was not mine to find til the next day. When the [[time]] came, I left to go to work.
 
-Our mornings passed one by one, six days a week. Sunday, the reminder of the lie I told Dawn, was a day of reflection and industry. I had less time to write than in the three months before, but the Word documents never looked better. The lawyer, sharp as ever, asked on the phone if something happened. I said everything was normal, and she pursued not the issue.
+Our mornings passed one by one, six days a week. Sunday, the reminder of the lie I told Dawn, was a day of reflection and industry. I had less [[time]] to write than in the three months before, but the Word documents never looked better. The lawyer, sharp as ever, asked on the phone if something happened. I said everything was normal, and she pursued not the issue.
 
 After three weeks of meetings at the Old [[Port]] and long days at the [[café]], I was no closer to fulfilling the promise between me and the beautiful stranger: she knew not her name, and I loved not the sunrise. Yet our sunrise oath persisted, fruitless as it was, coloring my mornings in the pale blue of the dress of the love of my dreams.
 
-The fourth Friday of that July was the first time I broke our sunrise oath. As the laws of the universe dictated, everything spiraled out of control from the smallest disturbance.
+The fourth Friday of that July was the first [[time]] I broke our sunrise oath. As the laws of the universe dictated, everything spiraled out of control from the smallest disturbance.
 
 Gale Jones works at Génoise et Thé. He only becomes a patron there when he becomes closer to Selene.
 

@@ -1,0 +1,1 @@
+[[Left]], [[gauche]], [[sinister]], [[wrong]].

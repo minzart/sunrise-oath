@@ -1,1 +1,1 @@
-What is love? Baby don't hurt me, baby don't hurt me no more.
+[[What]] [[is]] [[love]]? [[Baby]] don't [[hurt]] [[me]], [[baby]] don't [[hurt]] [[me]] [[no]] [[more]].

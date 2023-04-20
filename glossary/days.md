@@ -1,4 +1,4 @@
-For four months in [[montreal|Montreal]], I had the same [[dream]]. [[Seven|seven]] [[years]] [[ago]], [[on]] [[the]] [[saint|Saint]] [[lawrence|Lawrence]] [[river|River]], I danced to Celine Dion's ‘Nothing Broken But My Heart’ [[with]] [[an]] [[older]] [[teen]], a [[girl]] in a [[blue]] [[dress]] that [[seemed]] [[white]] in the [[dim]] of [[twilight]]. What I know best of the deck of the ship is the smell of [[strawberry]] [[shampoo]], of [[vanilla]] [[perfume]]. I held her close as the [[wind]] picked up.
+For four months in [[montreal|Montreal]], I had the same [[dream]]. [[Seven|seven]] [[years]] [[ago]], [[on]] [[the]] [[saint|Saint]] [[lawrence|Lawrence]] [[river|River]], I danced to Celine Dion's ‘Nothing Broken But My Heart’ [[with]] [[an]] [[older]] [[teen]], a [[girl]] in a [[blue]] [[dress]] that [[seemed]] [[white]] in the [[dim]] of [[twilight]]. What I know [[best]] of the deck of the ship is the smell of [[strawberry]] [[shampoo]], of [[vanilla]] [[perfume]]. I held her close as the [[wind]] picked up.
 
 ***
 
@@ -14,7 +14,7 @@ At the playground by the Catholic school, Sol Maris was there. She looked up fro
 
 “One . . .” I took a second to understand. “You finally asked.”
 
-“Long time coming,” she said. “Give me yours right now, before I change my mind.”
+“Long [[time]] coming,” she said. “Give me yours right now, before I change my mind.”
 
 I gave her the dart, and watched her take her first inhale, hold [[with]] a grimace, and exhale smoothly, as if she were a veteran. “You didn’t cough,” I said, impressed.
 

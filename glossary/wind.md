@@ -1,6 +1,6 @@
 A [[wisp]], a [[breeze]], a [[gale]].
 
-Once upon a time, I fell in love.  
+Once upon a [[time]], I fell in love.  
   
 August 2, 1992. She was around my [[age]], a year older or younger than seventeen. Thirty years ago, on the last night of a midsummer trip to Montreal, I saw her on a ship.  
   

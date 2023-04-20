@@ -17,7 +17,7 @@ HOME
 
 “A drunk man will find his way home, but a drunk bird may get lost forever.” — Shizuo Kakutani 
 
-< You live with a man and a bird. To pass the time, you write in a journal. > 
+< You live with a man and a bird. To pass the [[time]], you write in a journal. > 
 
 A story-rich journaling game about random walks and chance encounters. 
 
@@ -26,7 +26,7 @@ The man spends his days wandering around drunk.
 When he is back, he has one-sided conversations with the player. 
 
 The bird is in a cage, and tries to get the player to let it out.
-Once released, it flies away and shows up from time to time, til one day it never comes back. 
+Once released, it flies away and shows up from [[time]] to [[time]], til one day it never comes back. 
 (Random flight in an array-simulated 3D space.) 
 
 There will be a last meeting between the player and the bird. They never know when it will be, or if it has been.

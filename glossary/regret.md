@@ -1,4 +1,4 @@
-Once upon a time, long ere the dawn that formed the sunrise oath, my sweetheart set a curse on my soul.  
+Once upon a [[time]], long ere the dawn that formed the sunrise oath, my sweetheart set a curse on my soul.  
   
 She opened the door, and let me in. Across her family's dining table, I handed everything she left behind, and took back the sweater that she liked to wear. Tara watched me put it on, and laughed. < It bore your scent. Now, it bears mine. >  
   

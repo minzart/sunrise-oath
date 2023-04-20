@@ -12,7 +12,7 @@ compatible with
 
 At the start of the match, choose a player to become the emperor. The emperor goes last in the turn order when a game begins and may play mandates from the command zone.
 
-When you become the emperor, draw a mandate and gain control of all mandates.
+When you become the emperor, [[draw]] a mandate and gain control of all mandates.
   
 {T}: At the beginning of your next end step, target opponent becomes the emperor.
 

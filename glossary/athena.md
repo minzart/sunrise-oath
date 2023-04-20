@@ -11,13 +11,13 @@ because she trusted him to listen.
 David says that he and Tara will support me from afar.  
   
 Eroica was the first kiss, and Tara was the first everything.  
-Eroica was shining. The beauty of war filled my heart.  
+Eroica was shining. The beauty of war filled [[my]] heart.  
 Kepler wrote about birth in De Stella Nova, but the star was a supernova.  
   
 Athena likes sewing, embroidery, knitting, etc.  
   
 The lawyer hatched a plan to set us up.  
-She created a test of my love,  
+She created a test of [[my]] love,  
 one guaranteeing our union. Tara ruined it,  
 and so Eroica severed the link between us.  
   
@@ -78,7 +78,7 @@ after she started architecture school
 and lived outside of Waterloo.  
   
 Eroica supported Gale's departure.  
-She was most disappointed in how he wasted time.  
+She was most disappointed in how he wasted [[time]].  
 Her hopes for him were dashed, and misplaced.  
   
 Henceforth, the lawyer left the writer's life.  
@@ -98,8 +98,8 @@ She first told Gale and Tara of the stars.
   
 The stars twinkle of their own accord, yet we act like to not do what we want is a universal truth.  
   
-When I lost you to Louise, I realized something. The universe won't care about what I want. I'm the only advocate for my mind. I'm the only one who can make my dreams come true.  
+When I lost you to Louise, I realized something. The universe won't care about what I want. I'm the only advocate for [[my]] mind. I'm the only one who can make [[my]] dreams come true.  
   
-I'll make all my wildest dreams come true. What about you, Gale Jones?  
+I'll make all [[my]] wildest dreams come true. What about you, Gale Jones?  
   
 Be anything but quite.

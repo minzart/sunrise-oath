@@ -13,7 +13,7 @@ Her hand reached for mine. “Did I ever tell you? Arab astrologers called Deneb
 
 “I was there when Eroica said it,” I said, silently focused on the architect’s cold fingertips. “There are so many stories told about these stars. At the [[café]], a curator told me a Chinese legend about a cowherd and a weaver.”  
 
-“Each time we learn something new, we take a step away from who we were,” Tara said. “We grew up. It’s great that you have a new life out here.” 
+“Each [[time]] we learn something new, we take a step away from who we were,” Tara said. “We grew up. It’s great that you have a new life out here.” 
 
 “Your life sounds better,” I said. “David, new friends, new career. I can’t imagine what kinds of things you’ve learned since we last spoke.”  
 

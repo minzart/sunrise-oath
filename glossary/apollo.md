@@ -1,1 +1,1 @@
-Hortus Brisbois.
+[[Hortus]] Brisbois.

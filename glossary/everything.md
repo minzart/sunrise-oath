@@ -15,17 +15,17 @@ Catherine
   
 FILM / FASHION  
   
-Eroica - best recommendations  
-Catherine - best interpretations  
-Louise - best reviews  
+Eroica - [[best]] recommendations  
+Catherine - [[best]] interpretations  
+Louise - [[best]] reviews  
   
 DANCE / MUSIC  
-Eroica - best technique  
-Catherine - best aesthetic  
-Louise - best rhythm  
+Eroica - [[best]] technique  
+Catherine - [[best]] aesthetic  
+Louise - [[best]] rhythm  
   
 STUDYING / READING  
   
-Eroica - best strategy  
-Catherine - best knowledge  
-Louise - best literacy
+Eroica - [[best]] strategy  
+Catherine - [[best]] knowledge  
+Louise - [[best]] literacy

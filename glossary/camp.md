@@ -40,23 +40,23 @@ We shivered, and listened to the crickets. After a long pause, I ventured: “Wh
   
 “Stop [[with]] the feminism,” she said. “Let’s try to not freeze to death.”  
   
-The engineer joined our sleeping bags. They fit together well, too well. Under the same covers, I stared at the mesh door as she lay beside me, her shoulder touching my back. After some time, she nudged me.  
+The engineer joined our sleeping bags. They [[fit]] together well, too well. Under the same covers, I stared at the mesh door as she lay beside me, her shoulder touching my back. After some [[time]], she nudged me.  
   
 “Look up, Gale. Otherwise, why leave the roof open?”  
   
 I turned around all the way, facing the profile of my friend’s wife, and held my breath at the sight of her lashes, unadorned by the mascara she always wore. “Weird to think we’d be this close,” I hushed.  
   
-“Is it?” she asked, more surprised than I thought. “You’re one of my best friends.”  
+“Is it?” she asked, more surprised than I thought. “You’re one of my [[best]] friends.”  
   
 “We drove each other nuts,” I reminded.  
   
 She shifted onto her side. I could scarcely see the Cat I knew in the engineer’s features, save for the freckles that danced on the bridge of her nose. The night was cold, but her breath on my chest chilled me like evening frost. “I was mean to you, but I liked seeing you at dinner parties. My parents didn’t let me play [[with]] many boys.”  
   
-I tried to shuffle away, but the warm polyester fabric trapped me [[with]] her. “All this time, I thought you hated me. I was okay [[with]] it.”  
+I tried to shuffle away, but the warm polyester fabric trapped me [[with]] her. “All this [[time]], I thought you hated me. I was okay [[with]] it.”  
   
 “Nonsense,” she said softly. “Hate is a sin.”  
   
-“I was never good enough,” I rued, playful as I tried to be. “Eroica has her schemes, you have your faith, Louise has her music. You three lost Ancra, and found me as a unworthy replacement. So many years later, best I can do is wordplay. ‘Worthless wanderer in Waterloo’ — alliteration.”  
+“I was never good enough,” I rued, playful as I tried to be. “Eroica has her schemes, you have your faith, Louise has her music. You three lost Ancra, and found me as a unworthy replacement. So many years later, [[best]] I can do is wordplay. ‘Worthless wanderer in Waterloo’ — alliteration.”  
   
 I thought the engineer would laugh politely, or chastise me [[with]] a smile. Instead, her tears came, and stopped not. No matter what I tried, lunar light glistened in the saline drops that pooled and flowed.  
   

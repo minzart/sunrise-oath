@@ -49,6 +49,7 @@ GRAPH_OPTIONS = """
         		color: isDark() ? "#8c8e91" : "#dee2e6",
         		font: {
         			face: "Inter",
+					size: 10,
         			color: isDark() ? "#c9cdd1" : "#616469",
         			strokeColor: isDark() ? "#c9cdd1" : "#616469",
         		},
@@ -74,14 +75,14 @@ GRAPH_OPTIONS = """
 
         	physics: {
 				barnesHut: {
-					gravitationalConstant: -1000,
-					avoidOverlap: 0.8,
+					gravitationalConstant: -5000,
+					avoidOverlap: 1.0,
 					theta: 0.45,
 					centralGravity: 0.4,
 					springConstant: 0.08,
-					damping: 0.08
+					damping: 0.08,
 				},
-        		solver: "repulsion",
+        		solver: "barnesHut",
 				maxVelocity: 10,
 				minVelocity: 0.2,
 				stabilization: true,

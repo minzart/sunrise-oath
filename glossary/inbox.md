@@ -17,7 +17,7 @@ Passing Tones in Parallel
 A letter from Ancra to Eroica, a violinist's daughter.  
 - - -
 Accented Neighbors  
-Amy (Emile Schreiner) is Gale Jones. Amy (playwright) is fictional version of Selene Bauman, older sister of Diana Liu who left her family behind for art.  
+Amy (Emile Schreiner) is Gale Jones. Amy (playwright) is fictional version of Selene Bauman, older [[sister]] of Diana Liu who left her family behind for art.  
 - - -
 Pygmalion / Cupid / Aeneas / Paris  
 Endymion / Jason / Achilles  
@@ -27,13 +27,13 @@ Catherine thought of herself as a killer and put the blame on Gale to save her o
 - - -
 Louise is Venus, the girl from the high school story.  
 Charlotte erased Gale's memories by his request.  
-He was a patron at the [[café]], and was set up in his delusion by Charlotte and Alain by his request, before Hortus came back for the summer. He went back to the Old [[Port]] on the first day, April Fools Day, and fell in love with the doctor. The doctor had to watch Gale, the man ahe started [[an]] affair with, first meet his old girlfriend then get closer to Selene. Selene was angry that Gale never remembered Charlotte, after finding out about the situation.  
+He was a patron at the [[café]], and was set up in his delusion by Charlotte and Alain by his request, before [[Hortus]] came back for the summer. He went back to the Old [[Port]] on the first day, April Fools Day, and fell in love with the doctor. The doctor had to watch Gale, the man ahe started [[an]] affair with, first meet his old girlfriend then get closer to Selene. Selene was angry that Gale never remembered Charlotte, after finding out about the situation.  
 The doctor acted as Aphrodite, making Dawn real.  
-Gale left the [[café]] after seeing Alain, who revealed he and Charlotte were lying to him the entire time. This is what causes Gale to turn away Charlotte.  
+Gale left the [[café]] after seeing Alain, who revealed he and Charlotte were lying to him the entire [[time]]. This is what causes Gale to turn away Charlotte.  
 - - -
-Alain was not angry at Gale, but tried to convince him to stop his act for both Charlotte's and Louise's sakes. He loves his daughter-in-law, wife of Sarah Beaulieu's older brother (and Hortus's adoptive brother). Louise is Gale's father's "favorite customer".  
+Alain was not angry at Gale, but tried to convince him to stop his act for both Charlotte's and Louise's sakes. He loves his daughter-in-law, wife of Sarah Beaulieu's older brother (and [[Hortus]]'s adoptive brother). Louise is Gale's father's "favorite customer".  
 - - -
-Catherine's family is paying for his un et demi. They stopped paying. His disappearance from the map is what Catherine sees as the greatest betrayal. She told him ahead of time that Louise would return to her father.  
+Catherine's family is paying for his un et demi. They stopped paying. His disappearance from the map is what Catherine sees as the greatest betrayal. She told him ahead of [[time]] that Louise would return to her father.  
 - - -
 Evil Days Redeemed  
 Aurora chasing Collis across timelines, as a love story.
@@ -44,4 +44,4 @@ I am living the privileged life of [[an]] aristocrat. I barely "work", outside m
 - If not, why am I thinking it?
 - Be efficient with your brain.
 -  - -
-The ceiling traps the wisps that yearns for sky and open air. A cigarette, yet [[burning]], bid the lips seek, the lungs take, the throat sigh. Humming, whether from the computer or the lights or the writer, drowns the chatter of the night, the endless noise outside the un et demi. Contract forbid his smoking, and so what? Not like the landlord ever came to check, nor had the will to stop the way he chose to live. Gale Jones was without duty, and vice versa; neither had stock in the other in the time and place that trapped them in their places.
+The ceiling traps the wisps that yearns for sky and open air. A cigarette, yet [[burning]], bid the lips seek, the lungs take, the throat sigh. Humming, whether from the computer or the lights or the writer, drowns the chatter of the night, the endless noise outside the un et demi. Contract forbid his smoking, and so what? Not like the landlord ever came to check, nor had the will to stop the way he chose to live. Gale Jones was without duty, and vice versa; neither had stock in the other in the [[time]] and place that trapped them in their places.

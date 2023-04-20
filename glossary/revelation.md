@@ -1,1 +1,1 @@
-Tara sees the rosary and the ring, and laughs. She says she always had a feeling.
+[[Tara]] [[sees]] [[the]] [[rosary]] [[and]] [[the]] [[ring]], [[and]] [[laughs]]. [[She]] [[says]] [[she]] [[always]] [[had]] [[a]] [[feeling]].

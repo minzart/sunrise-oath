@@ -1,4 +1,4 @@
-What eyes have my eyes met in limpid passing, finding the flickering font of foreign fact and fiction in the soul of another, seeking from the outside what I lost within, yet gleaning no more than my image on the iris of the other I, the worldly wanderer in wilderness that I may never hope to see, trapped also in the prison of the mind in monolog, in endless back-and-forth between its parts, the hell of the soul in dialog, repeating one mantra til the end of time?  
+What eyes have my eyes met in limpid passing, finding the flickering font of foreign fact and fiction in the soul of another, seeking from the outside what I lost within, yet gleaning no more than my image on the iris of the other I, the worldly wanderer in wilderness that I may never hope to see, trapped also in the prison of the mind in monolog, in endless back-and-forth between its parts, the hell of the soul in dialog, repeating one mantra til the end of [[time]]?  
   
 Alone is the self, and selfish are the lone.  
   
