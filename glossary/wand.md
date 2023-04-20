@@ -1,3 +1,3 @@
-gun, ruler, baton  
-knife, flashlight, lighter  
-club, pen, cello bow
+[[gun]], [[ruler]], [[baton]]  
+[[knife]], [[flashlight]], [[lighter]]  
+[[club]], [[pen]], [[cello]] [[bow]]

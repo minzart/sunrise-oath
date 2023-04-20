@@ -21,7 +21,7 @@ Juliet prays to God.
   
 All cards are meant to be read aloud, forming a group performance of Romeo and Juliet in priority of player.  
 
-Format is singleton. [[There]] are four versions of each effect.  
+Format is [[singleton]]. [[There]] are four versions of each effect.  
   
 The cards in the set are read over and over. The only way to win the match, regardless of gameplay, is to successfully use an artifact, an artifact creature, or an artfact enchantment creature to win the game.  
   

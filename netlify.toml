@@ -65,7 +65,7 @@ GRAPH_OPTIONS = """
         		smooth: {
         			type: "continuous",
         		},
-        		hoverWidth: 4,
+        		hoverWidth: 1.5,
         	},
         	interaction: {
         		hover: true,
@@ -75,10 +75,10 @@ GRAPH_OPTIONS = """
 
         	physics: {
 				barnesHut: {
-					gravitationalConstant: -5000,
+					gravitationalConstant: -2000,
 					avoidOverlap: 1.0,
 					theta: 0.45,
-					centralGravity: 0.4,
+					centralGravity: 0.2,
 					springConstant: 0.08,
 					damping: 0.08,
 				},

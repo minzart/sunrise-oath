@@ -8,46 +8,14 @@
         "type": "tabs",
         "children": [
           {
-            "id": "b5c498914af23470",
-            "type": "leaf",
-            "state": {
-              "type": "markdown",
-              "state": {
-                "file": "glossary/salvation.md",
-                "mode": "source",
-                "backlinks": true,
-                "source": false
-              }
-            }
-          },
-          {
-            "id": "570677201be4a14b",
-            "type": "leaf",
-            "state": {
-              "type": "markdown",
-              "state": {
-                "file": "glossary/nonhumans.md",
-                "mode": "source",
-                "backlinks": true,
-                "source": false
-              }
-            }
-          },
-          {
             "id": "69aaf6655dac6868",
             "type": "leaf",
             "state": {
-              "type": "markdown",
-              "state": {
-                "file": "glossary/elgar.md",
-                "mode": "source",
-                "backlinks": true,
-                "source": false
-              }
+              "type": "graph",
+              "state": {}
             }
           }
-        ],
-        "currentTab": 2
+        ]
       }
     ],
     "direction": "vertical"
@@ -113,7 +81,6 @@
             "state": {
               "type": "backlink",
               "state": {
-                "file": "glossary/elgar.md",
                 "collapseAll": true,
                 "extraContext": false,
                 "sortOrder": "alphabetical",
@@ -130,7 +97,6 @@
             "state": {
               "type": "outgoing-link",
               "state": {
-                "file": "glossary/elgar.md",
                 "linksCollapsed": false,
                 "unlinkedCollapsed": true
               }
@@ -152,9 +118,7 @@
             "type": "leaf",
             "state": {
               "type": "outline",
-              "state": {
-                "file": "glossary/elgar.md"
-              }
+              "state": {}
             }
           }
         ],
@@ -176,10 +140,15 @@
       "random-note:Open random note": false
     }
   },
-  "active": "63e5950b4619ae58",
+  "active": "69aaf6655dac6868",
   "lastOpenFiles": [
-    "journal/2023-04-20.md",
+    "glossary/convention.md",
+    "glossary/peeks.md",
+    "glossary/singleton.md",
+    "glossary/reach.md",
+    "glossary/wand.md",
     "glossary/elgar.md",
+    "journal/2023-04-20.md",
     "glossary/hope.md",
     "glossary/charity.md",
     "glossary/war.md",
@@ -199,11 +168,6 @@
     "glossary/question.md",
     "glossary/rationalist.md",
     "glossary/thursdays.md",
-    "glossary/vow.md",
-    "glossary/king.md",
-    "glossary/sees.md",
-    "glossary/white.md",
-    "glossary/parting.md",
     "journal/Untitled",
     "archive/hex_template_200_10.png",
     "archive/Pasted image 20230321140121.png",
