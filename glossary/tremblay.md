@@ -1,4 +1,4 @@
-[[Hortus]] makes Gale a masala chai for the first [[time]] on the day when he was tired.  
+[[Hortus]] makes Gale a masala chai for the [[first]] [[time]] on the day when he was tired.  
   
 Sarah Carice's dream is to understand one thing, The [[Wind]] at Dawn, better than anyone else. Sarah Carice never liked her name, though she learns to appreciate it [[after]] her mother passes away and she spends [[time]] away from home. She learns from Selene and/or Ancra the connection between The [[Wind]] at Dawn and her name, or that someone is waiting for her in Montreal.  
   

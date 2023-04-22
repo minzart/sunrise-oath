@@ -1,0 +1,1 @@
+[[I]] [[still]] [[remember]] [[where]] [[it]] [[all]] [[started]], [[but]] [[now]] [[know]] [[not]] [[if]] [[it]] [[was]] [[all]] [[heresy]] [[and]] [[illusion]].

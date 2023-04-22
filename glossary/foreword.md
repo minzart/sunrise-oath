@@ -1,7 +1,7 @@
   metafiction blockbuster documentary game show  
   
-characters in film know they are acting out a play  
-but find out more about the play as they act in it  
+characters in film know [[they]] are acting out a play  
+but find out more about the play as [[they]] act in it  
 the emotions are real  
   
 law treatise  

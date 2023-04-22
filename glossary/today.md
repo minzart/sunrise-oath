@@ -1,1 +1,1 @@
-All is perfection. Nothing [[outside]] the canvas of God [[shall]] be known to me, and for that truth I revel in my humility, the new [[life]] I found at the end of the tunnel I call my oath. 
+All is perfection. Nothing [[outside]] the canvas of God [[shall]] be known to me, and for that truth I [[revel]] in my humility, the new [[life]] I found at the end of the tunnel I call my [[oath]]. 

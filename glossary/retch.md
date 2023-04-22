@@ -1,0 +1,1 @@
+[[When]] [[her]] [[stomach]] [[was]] [[empty]], [[I]] [[laid]] [[her]] [[on]] [[her]] [[side]].

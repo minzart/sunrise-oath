@@ -1,1 +1,1 @@
-“Clear as starlight, yet a light not from the heavens.”
+“Clear as starlight, yet a [[light]] not from the heavens.”

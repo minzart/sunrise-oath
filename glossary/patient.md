@@ -1,0 +1,1 @@
+[[One]] [[day]] [[he]] [[will]] [[speak]] [[to]] [[me]], [[I]] [[thought]]. [[No]] [[father]] [[ever]] [[fails]] [[to]] [[love]] [[his]] [[son]]. 

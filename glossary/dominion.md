@@ -1,0 +1,1 @@
+[[Organelles]], [[plastic]] [[and]] [[silicon]], [[serve]] [[their]] [[lord]], yielding to his [[conquest]] or [[decadence]]. 

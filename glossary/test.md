@@ -1,1 +1,1 @@
-I would never see things as I do, were I not the student of the forbidden fruit.
+[[I]] [[would]] [[never]] [[see]] [[things]] [[as]] [[I]] [[do]], [[were]] [[I]] [[not]] [[the]] [[student]] [[of]] [[the]] [[forbidden]] [[fruit]].

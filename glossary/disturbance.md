@@ -1,0 +1,1 @@
+Gale Jones works at Génoise et Thé. He only becomes a patron [[there]] when he becomes closer to Selene.

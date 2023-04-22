@@ -1,1 +1,1 @@
-[[We]] dream in order to forget.
+[[We]] [[dream]] [[in]] [[order]] [[to]] [[forget]].

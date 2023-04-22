@@ -1,0 +1,1 @@
+The [[paper]] is a [[canvas]] like [[any]] [[other]]. Care with all materials is the [[mark]] of [[artistry]].

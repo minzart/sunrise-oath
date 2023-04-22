@@ -1,0 +1,1 @@
+[[a|A]] [[journey]] [[of]] [[ash]] [[to]] [[ash]], [[dust]] [[to]] [[dust]].

@@ -1,1 +1,1 @@
-[[There]] [[was]] [[a]] [[time]] [[before]] [[worry]] [[and]] [[sin]], a state of completeness and simplicity, left behind. 
+[[There]] [[was]] [[a]] [[time]] [[before]] [[worry]] [[and]] [[sin]], a state of completeness and simplicity, [[left]] behind. 

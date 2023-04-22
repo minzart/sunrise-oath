@@ -1,0 +1,1 @@
+[[If]] [[my]] [[vocabulary]] [[is]] [[any]] [[good]], [[I]] [[should]] [[never]] [[hit]] [[a]] [[wall]].

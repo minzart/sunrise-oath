@@ -10,7 +10,7 @@ Song is from Selene
 
 I touch the ears of Beethoven, the eyes of Homer.  
   
-The light of the chandeliers is pale and permeating.
+The [[light]] of the chandeliers is pale and permeating.
 
 * * *
 

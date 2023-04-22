@@ -1,4 +1,4 @@
-Chapter 1 - Dawn / Sarah, Tremblay's daughter "Lin" (Carice likes using fake names, and pretends to be an adopted Chinese girl whose father dislikes talking about her.) Gale thinks Dawn was calling, but it was Sarah. Dreams and sleep are themes. Gale and "Lin" call before sleep. ("Lynn is how I prefer to spell it.")  
+Chapter 1 - Dawn / Sarah, Tremblay's daughter "Lin" (Carice likes using fake names, and pretends to be an adopted Chinese girl whose father dislikes talking about her.) Gale thinks Dawn was calling, but it was Sarah. [[Dreams]] and sleep are themes. Gale and "Lin" call before sleep. ("Lynn is how I prefer to spell it.")  
   
 Chapter 2 - Ancra / [[Hortus]], Gale mistakes Ancra's call for [[Hortus]]'s.  
   
@@ -8,7 +8,7 @@ Eroica asked Catherine to [[sacrifice]] her cousin David.
 [[Louise]] is sinply an observer who sings.  
   
 Chapter 4 - Catherine / Selene, voicemail / social call  
-Gale and Catherine cheated when they danced. [[Louise]] knew, so when Gale left she fucked Ancra. Eroica's and Catherine's and [[Louise]]'s children's fathers are Gale.  
+Gale and Catherine cheated when [[they]] danced. [[Louise]] knew, so when Gale [[left]] she fucked Ancra. Eroica's and Catherine's and [[Louise]]'s children's fathers are Gale.  
 All along, their children were cousins.  
 Timothy died in denial that his daughter is not his.  
 Only Juniper is his. Quinine, both fake and real, are Gale's.  

@@ -1,0 +1,1 @@
+[[The]] [[space]] [[around]] [[a]] [[mind]] [[is]] [[what]] [[he]] [[truly]] [[is]]. He [[is]] the nucleus, issuing [[command]] and stating [[dominion]]. 

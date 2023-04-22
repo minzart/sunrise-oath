@@ -1,1 +1,1 @@
-“The northern blasts scathe the gentle rose,” she cried in [[an]] [[unfamiliar]] accent, and brought her knees to her chest.
+“The northern blasts scathe the [[gentle]] rose,” she cried in [[an]] [[unfamiliar]] accent, and brought her knees to her chest.

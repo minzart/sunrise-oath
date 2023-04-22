@@ -1,0 +1,1 @@
+[[They]] [[stopped]] [[talking]] [[after]] [[Tara]] [[heard]] [[of]] [[Gale]] [[talking]] [[to]] [[Louise]], [[as]] [[Tara]] [[wanted]] [[Gale]] [[to]] [[move]] [[on]] [[with]] [[someone]] [[who]] [[he]] [[will]] [[see]] [[and]] [[love]]. 

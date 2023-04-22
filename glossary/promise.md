@@ -1,0 +1,1 @@
+[[Yet]] [[our]] [[sunrise]] [[oath]] [[persisted]], [[fruitless]] [[as]] [[it]] [[was]], [[coloring]] [[my]] [[mornings]] [[in]] [[the]] [[pale]] [[blue]] [[of]] [[the]] [[dress]] [[of]] [[the]] [[love]] [[of]] [[my]] [[dreams]].

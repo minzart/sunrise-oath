@@ -1,1 +1,1 @@
-She could not be consoled. I carried her to the bathroom, and let her retch over the [[toilet]] while I cleaned her [[mess]]. When her [[stomach]] was [[empty]], I laid her on her side.
+She could not be consoled. I carried her to the bathroom, and let her [[retch]] over the [[toilet]] while I cleaned her [[mess]]. 

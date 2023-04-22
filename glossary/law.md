@@ -49,7 +49,7 @@ Players eats food as everyone needs.
 
 #### Set
 
-Sessions must pause at night til rise.
+Sessions must [[pause]] at night til rise.
 
 #### Night
 
@@ -83,7 +83,7 @@ I hereby swear to live, and watch the sunrise.
 
 #### Sign
 
-Right on heart, left palm exposed.
+Right on [[heart]], [[left]] palm exposed.
 
 #### Way
 
@@ -97,7 +97,7 @@ https://www.reddit.com/r/mtgcube/comments/10pnn8y/ideas_for_cube_league_that_use
 
 #### Rules
 
-***Magic: the Gathering*: Arena** is a free-to-learn online educational tool. Events are Casual and are not associated [[with]] Wizards of the Coast or Duelists' Convocation International.
+***Magic: the Gathering*: Arena** is a free-to-[[learn]] online educational tool. Events are Casual and are not associated [[with]] Wizards of the Coast or Duelists' Convocation International.
 
 ### Enter
 
@@ -134,7 +134,7 @@ The draft is conducted at the [[start]] of [[an]] event. One card at a [[time]],
 
 Players may vote to retire cards from the cube. If the draft has over three hundred and sixty cards (the number of cards in a cube), no cards may be added. 
 
-Players retain only up to thirty cards in their [[pool]] at the end of [[an]] event. The rest of the cards are placed in a draft for the next event. Players must sign in their pools.
+Players retain only up to thirty cards in their [[pool]] at the end of [[an]] event. The rest of the cards are [[placed]] in a draft for the next event. Players must sign in their pools.
 
 ### Lifetime Win
 

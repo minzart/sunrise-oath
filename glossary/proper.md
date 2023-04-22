@@ -1,0 +1,1 @@
+[[My]] [[take]]? [[Any]] [[atomic]] [[semantic]] [[unit]] [[is]] [[a]] [[word]].

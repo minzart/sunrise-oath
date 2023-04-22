@@ -1,0 +1,1 @@
+[[Saint]] [[Lawrence]] [[spoke]] [[not]] [[through]] [[word]] [[alone]], [[but]] [[through]] [[action]].

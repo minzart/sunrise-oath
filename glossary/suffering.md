@@ -1,4 +1,4 @@
--   Introduction: Introduce the topic of suffering and pain, and how they relate to technology, charity, worldview, and choice. Provide some examples of how different worldviews thrive off the suffering interpretation. State the main thesis: one can always choose to be satisfied, regardless of the material conditions or negative emotions.
+-   Introduction: Introduce the topic of suffering and pain, and how they relate to technology, charity, worldview, and choice. Provide some examples of how different worldviews thrive [[off]] the suffering interpretation. State the main thesis: one can always choose to be satisfied, regardless of the material conditions or negative emotions.
 -   [[Body]]:
     -   Explain the thought experiment of choosing between a world with advanced technology and engineered suffering, or a world with primitive technology and engineered satisfaction. Argue that satisfaction is more valuable than survival or mastery.
     -   Discuss the idea of the lens as the greatest blind spot, and how it limits one’s perspective and attachment. Use the analogy of the piano and the sword to illustrate the point. Suggest that the ultimate goal is to transcend one’s lens and attachment.
@@ -32,7 +32,7 @@ Technology and charity are two ways that humans have tried to alleviate pain, an
 
 The ultimate goal, then, is to be able to experience pain without suffering. To do this, one has to change their interpretation of pain, and adopt a different worldview. A worldview is a set of beliefs and values that shape how one [[sees]] and interacts with reality. Different worldviews can have different implications for how one deals with suffering and pain.
 
-Most worldviews thrive off the suffering interpretation. You see it everywhere when this pattern is pointed out. Some people suffer from envy, others from disgust. Yet one can feel envy and disgust without suffering. The transparency of “I have these negative emotions, therefore I am suffering” is actively harmful to the spirit of humanity.
+Most worldviews thrive [[off]] the suffering interpretation. You see it everywhere when this pattern is pointed out. Some people suffer from envy, others from disgust. Yet one can feel envy and disgust without suffering. The transparency of “I have these negative emotions, therefore I am suffering” is actively harmful to the spirit of humanity.
 
 The big thought experiment is: would you rather a world with way better technologies (physical and mental and social) except everyone is engineered to suffer, or one with caveman technology where everyone is engineered to be satisfied? For me, the answer is so obvious. Yet the real life [[question]] is much closer materially than it is emotionally.
 
@@ -52,7 +52,7 @@ It seems almost always true that the master of X ends up having X as a crutch. I
 
 What does this mean? It means that the more one becomes skilled or knowledgeable in something, the more they rely on it as a source of identity or meaning. This can create a sense of attachment or dependence on that thing, which can hinder one’s growth or freedom.
 
-The ultimate goal is to transcend one’s lens and attachment, and to see reality as it is, not as one wants it to be. To do this, one has to be willing to let go of their assumptions and expectations, and to embrace uncertainty and diversity. One has to be open to new experiences and perspectives, and to learn from them without judgment. One has to be humble and curious, and to acknowledge their limitations and ignorance.
+The ultimate goal is to transcend one’s lens and attachment, and to see reality as it is, not as one wants it to be. To do this, one has to be willing to let go of their assumptions and expectations, and to embrace uncertainty and diversity. One has to be open to new experiences and perspectives, and to [[learn]] from them without judgment. One has to be humble and curious, and to acknowledge their limitations and ignorance.
 
 This is not an easy or comfortable process. It can be challenging and painful. It can also be lonely and scary. It can require courage and [[sacrifice]]. It can go against the grain of one’s culture or society. It can expose one to criticism or rejection. It can make one feel lost or confused.
 
@@ -68,7 +68,7 @@ Calvinists use the acronym TULIP to summarize their core doctrines. I translate 
 -   Unconditional Election: [[There]] is nothing you have to do to deserve to be satisfied. You simply will be satisfied (by conscious choice) or you will not. Predetermined fact.
 -   Limited Atonement: Only a finite number of people are mechanically capable / consciously willing to make this choice. Some of us here are probably doomed to [[die]] unhappy. I [[hope]] that is not the case.
 -   Irresistible [[Grace]]: Once you see satisfaction as a choice, you can’t unsee it. You will always be drawn toward the [[nature]] of this choice and strive toward it. Knowing the choice is almost the whole battle.
--   Preservation of the Saints: [[There]] exists a list of all those who [[shall]] ever come to truly understand this choice. Is your name on it? Who knows. Try consciously deciding it and find out!
+-   Preservation of the Saints: [[There]] exists a [[list]] of all those who [[shall]] ever come to truly understand this choice. Is your name on it? Who knows. Try consciously deciding it and find out!
 
 ## Conclusion
 

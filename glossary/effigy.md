@@ -1,0 +1,1 @@
+“[[Why]] are you [[mad]]?” she whispered as [[an]] [[oath]]. “[[When]] will you think I’m good [[enough]]?’”  

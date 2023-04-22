@@ -1,2 +1,1 @@
-Two types of dreams. First, aspiration; second, apparation.  
-Setting out from my un et demi half an hour ere sunrise...
+[[Two]] [[types]] [[of]] [[dreams]]. 

@@ -30,7 +30,7 @@ Laxness - Salka Valka
 Studies into Darkness (epub)  
 Ted Chiang - The Evolution of Human Science (Stories of Your Life and Others)  
 Confidentially Yours  
-Eddie Izzard Great Expectations  
+Eddie Izzard [[Great]] Expectations  
 When [[We]] Cease to Understand the World  
 My Broken Language  
 Rushmore  
@@ -39,11 +39,11 @@ Peaky Blinders
 Ladivine  
 Love Actually  
 Vikram Seth - The Golden Gate  
-Seduced By Story  
+Seduced By [[Story]]  
 Rainer Maria Rilke  
 A Separation  
 Foucault - Les mots et les choses  
-The Great Wall of China - Kafka  
+The [[Great]] Wall of China - Kafka  
 Cervantes - Galatea  
 Claire Denis - Both Sides of the Blade  
 David Ye - lady in the red dress  

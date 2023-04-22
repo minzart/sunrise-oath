@@ -1,1 +1,1 @@
-Dove and goose for Aphrodite.
+[[Dove]] [[and]] [[goose]] [[for]] [[Aphrodite]], [[prophet]] [[on]] [[piano]].

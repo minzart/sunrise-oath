@@ -1,0 +1,1 @@
+I kept my silence, as I always did. [[There]] was no thought I had not spared, and so to speak is to encourage her and all her ways of [[subterfuge]].  

@@ -8,11 +8,16 @@
         "type": "tabs",
         "children": [
           {
-            "id": "69aaf6655dac6868",
+            "id": "3a8c854319aaab6e",
             "type": "leaf",
             "state": {
-              "type": "graph",
-              "state": {}
+              "type": "markdown",
+              "state": {
+                "file": "glossary/mess.md",
+                "mode": "source",
+                "backlinks": true,
+                "source": false
+              }
             }
           }
         ]
@@ -44,7 +49,7 @@
             "state": {
               "type": "search",
               "state": {
-                "query": "",
+                "query": "vow",
                 "matchingCase": false,
                 "explainSearch": false,
                 "collapseAll": false,
@@ -81,6 +86,7 @@
             "state": {
               "type": "backlink",
               "state": {
+                "file": "glossary/mess.md",
                 "collapseAll": true,
                 "extraContext": false,
                 "sortOrder": "alphabetical",
@@ -97,6 +103,7 @@
             "state": {
               "type": "outgoing-link",
               "state": {
+                "file": "glossary/mess.md",
                 "linksCollapsed": false,
                 "unlinkedCollapsed": true
               }
@@ -118,7 +125,9 @@
             "type": "leaf",
             "state": {
               "type": "outline",
-              "state": {}
+              "state": {
+                "file": "glossary/mess.md"
+              }
             }
           }
         ],
@@ -136,38 +145,38 @@
       "templates:Insert template": false,
       "command-palette:Open command palette": false,
       "audio-recorder:Start/stop recording": false,
-      "periodic-notes:Open today": false,
-      "random-note:Open random note": false
+      "random-note:Open random note": false,
+      "periodic-notes:Open today": false
     }
   },
-  "active": "69aaf6655dac6868",
+  "active": "3a8c854319aaab6e",
   "lastOpenFiles": [
-    "glossary/convention.md",
-    "glossary/peeks.md",
-    "glossary/singleton.md",
-    "glossary/reach.md",
-    "glossary/wand.md",
-    "glossary/elgar.md",
-    "journal/2023-04-20.md",
-    "glossary/hope.md",
-    "glossary/charity.md",
-    "glossary/war.md",
-    "deck/2h.md",
-    "glossary/panpsychism.md",
-    "glossary/nonhumans.md",
-    "glossary/sensitive.md",
     "glossary/flow.md",
-    "glossary/salvation.md",
-    "journal/2023-04-15.md",
-    "journal/2023-03-23.md",
-    "glossary/genetics.md",
-    "glossary/genetic.md",
-    "glossary/lock.md",
-    "glossary/tomb.md",
-    "glossary/offering.md",
-    "glossary/question.md",
-    "glossary/rationalist.md",
-    "glossary/thursdays.md",
+    "glossary/noires.md",
+    "glossary/evict.md",
+    "glossary/successfully.md",
+    "journal/2023-03-21.md",
+    "glossary/rambling.md",
+    "glossary/heart.md",
+    "glossary/law.md",
+    "glossary/tumbled.md",
+    "glossary/learn.md",
+    "glossary/triangle.md",
+    "glossary/天.md",
+    "glossary/aspiration.md",
+    "glossary/today.md",
+    "glossary/matricide.md",
+    "glossary/conquest.md",
+    "glossary/dominion.md",
+    "glossary/myself.md",
+    "glossary/analogy.md",
+    "glossary/left.md",
+    "glossary/placed.md",
+    "glossary/summon.md",
+    "glossary/story.md",
+    "glossary/rope.md",
+    "glossary/fluffy.md",
+    "glossary/adult.md",
     "journal/Untitled",
     "archive/hex_template_200_10.png",
     "archive/Pasted image 20230321140121.png",

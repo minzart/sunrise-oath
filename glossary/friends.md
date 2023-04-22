@@ -1,0 +1,1 @@
+[[She]] [[made]] [[Louise]] [[promise]] [[to]] [[be]] [[Gale]]'s [[number]] [[one]] [[fan]] [[on]] [[Tara]]'s [[own]] [[behalf]].

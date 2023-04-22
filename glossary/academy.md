@@ -1,1 +1,1 @@
-Magic school that [[convenes]] in the world of dreams.
+Magic school that [[convenes]] in the world of [[dreams]].

@@ -1,26 +1,10 @@
-Card game where each card is a game piece on a grid. Drop chess meets Onitama meets MtG.
+Card [[game]] where each card is a [[game]] piece on a grid. [[Drop]] chess meets Onitama meets MtG.
 
 ***
 
-Flash Fiction  
-  
-A friend tells another three stories over the phone. The last is that their mom died. 
 
-"What's three?" he asks.  
-  
-Pause. "Mom died."
 
 * * *
-
-Social Game [[with]] Index Cards  
-  
-1000 Blank Cards, [[with]] set rules for play priority.  
-  
-Cards are played by discarding cards and drawing them back. Players [[start]] [[with]] five cards. Any card may be played at any [[time]], though players take turns holding priority in clockwise order. Stack is last in, first out. Cards go to [[discard]] unless they have persistent effects.  
-  
-Cards that [[draw]] more cards are challenges. Cards that cost more cards affect other players in funny ways (and usually reward them).
-
-***
 
 Cards in both hands are face up.  
   
@@ -43,6 +27,6 @@ Pieces are not captured. When a piece stands on another piece, the piece below i
 Win when opponent passes twice in a row.  
 Lose when opponent passes twice in a row in their self map spot.  
   
-Cards have three orientations: left, straight, right.  
+Cards have three orientations: [[left]], straight, right.  
   
 Maximum one copy of card per deck (in Constructed).

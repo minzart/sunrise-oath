@@ -1,0 +1,1 @@
+After three weeks of meetings at the Old [[Port]] and long days at the [[café]], I was no closer to fulfilling the [[promise]] between me and the beautiful stranger: she knew not her name, and I loved [[not]] the sunrise. 

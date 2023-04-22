@@ -1,1 +1,1 @@
-[[the|The]] [[water]] [[opened]] [[up]], [[and]] [[swallowed]] [[me]] [[whole]].
+[[The]] [[water]] [[opened]] [[up]], [[and]] [[swallowed]] [[me]] [[whole]].

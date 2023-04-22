@@ -6,7 +6,7 @@ Win by having more points (cards of suit or rank matching initial).
 
 * * *
 
-How should a story [[start]]? A hidden [[truth]], beyond the comprehension of a small mind like mine, may well be treated as a fairy tale.
+How should a [[story]] [[start]]? A hidden [[truth]], beyond the comprehension of a small mind like mine, may well be treated as a fairy tale.
 
 [[player|I]] find my way to a hotel [[with]] infinite floors. [[Every]] floor is a single room, [[every]] room is a strange land, and [[every]] visitor is a stranger to me. Yet, I seem to remember each one from a past life.
 

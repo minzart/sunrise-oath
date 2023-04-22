@@ -1,1 +1,1 @@
-[[One|one]] [[year]] [[after]] [[Watergate|watergate]], [[i|I]] [[came]] [[into]] [[this]] [[world]].
+[[One]] [[year]] [[after]] [[Watergate|watergate]], [[i|I]] [[came]] [[into]] [[this]] [[world]].

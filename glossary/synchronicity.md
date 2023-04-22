@@ -1,4 +1,4 @@
-In 1992, Gale met Dawn on the day of the feast of Nicodemus. In 1999, he dreams of the car accident with [[Louise]] right [[after]] he finds out of her death. 
+In 1992, Gale met Dawn on the day of the feast of Nicodemus. In 1999, he [[dreams]] of the car accident with [[Louise]] right [[after]] he finds out of her death. 
 
 * * *
 Aladdin (1992)  

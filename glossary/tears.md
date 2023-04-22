@@ -2,9 +2,9 @@
   
 “No thanks,” I replied quickly.  
   
-“Worth a try.” She giggled, and gave me the [[gift]]. “Next [[time]] you watch the sunrise, listen to the first track on side two.”  
+“Worth a try.” She giggled, and gave me the [[gift]]. “Next [[time]] you watch the sunrise, listen to the [[first]] track on side two.”  
   
-“Thank you.” I accepted the offering, staring at the [[four]] Beatles, thinking about how music brought so many people together. “I was wondering. What’s your favorite song by John Pizzarelli?”  
+“Thank you.” I accepted the offering, staring at the [[four]] Beatles, thinking about how music brought so [[many]] people together. “I was wondering. What’s your favorite song by John Pizzarelli?”  
   
 “Incroyable,” she marveled. “You ask me a big [[question]] like that, when you don’t even know my name yet?”  
   
@@ -20,7 +20,7 @@ I saw she was right. “Let’s [[start]] from [[there]]. What’s your name?”
   
 “[[Best]] to get some rest,” she agreed. “I’ll tell you what you missed in the morning, when [[we]] pick you up.”  
   
-As her silhouette left me behind, I grew anxious. “Wait!” I cried as she stepped out. “Without a name, what part of you belongs to me?”  
+As her silhouette [[left]] me behind, I grew anxious. “Wait!” I cried as she stepped out. “Without a name, what part of you belongs to me?”  
   
 Her hand rested on the handle. “Tomorrow, you’ll know everything about me. Til then, think of me as a beautiful stranger, as . . .” She hid her blushing face. “. . . Roslyn.”  
   
@@ -30,11 +30,11 @@ Dawn smiled, as I knew she would. Her fingers brushed the hair from my forehead,
   
 I nodded, and wept. “Life is so long.”  
   
-“[[Time]] flies when you’re having fun.” She shed her own tears, beads of light illumining the dark hospital room. “The rest of your days [[start]] in the morning. For now, let me watch you sleep.”  
+“[[Time]] flies when you’re having fun.” She shed her own tears, beads of [[light]] illumining the dark hospital room. “The rest of your days [[start]] in the morning. For now, let me watch you sleep.”  
   
-I lay on the pillow, and let Dawn tuck me in. Dozing off, I saw nothing but the glowing phantom of the summer dinner cruise, the fair ghost of my past. “What was the meaning of all this?” I muttered.  
+I lay on the pillow, and let Dawn tuck me in. Dozing [[off]], I saw nothing but the glowing phantom of the summer dinner cruise, the fair ghost of my past. “What was the meaning of all this?” I muttered.  
   
-“Beautiful stories. Perfect lies.” As the fireworks started, the love of my dreams faded away with the last night of the millenium. “[[We]] won’t forget, Gale Jones.”  
+“Beautiful stories. Perfect lies.” As the fireworks started, the love of my [[dreams]] faded away with the last night of the millenium. “[[We]] won’t forget, Gale Jones.”  
   
 Indeed, [[we]] never forgot.  
   

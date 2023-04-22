@@ -1,0 +1,1 @@
+[[Now]], [[we]] [[are]] [[adults]] [[who]] [[act]] [[as]] [[God]].

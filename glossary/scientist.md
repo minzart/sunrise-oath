@@ -1,1 +1,1 @@
-[[Timothy|timothy]] [[and]] [[I|i]] [[met]] [[in]] [[our]] [[first]] [[homeroom]] [[of]] [[high]] [[school]].
+[[I]] [[met]] [[Timothy]] [[in]] [[our]] [[first]] [[homeroom]] [[of]] [[high]] [[school]].

@@ -4,7 +4,7 @@ Gale lived not a normal life. He lived the [[best]] of lives. He never appreciat
   
 Gale's father is the school principal, a former science teacher. Gale's mother is a writer and classicist. Eroica chooses Gale over his mother. Eroica schemed to get her and her friends closer to a popular kid, and the son of a famous writer. Catherine was rude to Gale out of jealousy, and Tara bullied her as revenge on Gale's behalf. Catherine saw that Gale was not like other popular people. Gale noticed not that [[Louise]]'s English improved over the years, because he could afford to disregard people. Ancra thought of himself as Gale's sidekick. He tells Gale he could have protected [[Louise]], and almost admitted the kiss.  
   
-Tara remade her image so they would be socially compatible. Before, she was not aware of popular people because she was so shut in. If he told her to, she would've stayed with him forever. She wanted to feel like she meant enough that he would stop her from leaving. He lived too well to realize how deeply someone can love.  
+Tara remade her image so [[they]] would be socially compatible. Before, she was not aware of popular people because she was so shut in. If he told her to, she would've stayed with him forever. She wanted to feel like she meant enough that he would stop her from leaving. He lived too well to realize how deeply someone can love.  
   
 Catherine tells Gale to not tell [[Louise]] that Tara used to bully her in freshman year. She wanted not to bring up the past, or pit [[Louise]] against Tara.  
   
@@ -40,11 +40,9 @@ I took out my wallet and riffled through bills. In the end, I stuffed them all i
   
 November 12: A [[shadow]] follows Gale. He calls for Charlotte, Selene, Tara, Catherine, [[Louise]], and Dawn.  
   
-Gale calls Tara first, hanging up before she can explain anyyhing (she says Thank God as her first words to him), and then calls [[Louise]]. Only [[after]] talking to Catherine (who knew about the elopement situation with Tara at La Ronde and his love for Dawn, [[after]] Gale calls out both those names on November 12) does he learn the [[truth]], that [[Louise]] died, and was planning on giving their child to her father.  
+Gale calls Tara [[first]], hanging up before she can explain anyyhing (she says Thank God as her [[first]] words to him), and then calls [[Louise]]. Only [[after]] talking to Catherine (who knew about the elopement situation with Tara at La Ronde and his love for Dawn, [[after]] Gale calls out both those names on November 12) does he [[learn]] the [[truth]], that [[Louise]] died, and was planning on giving their child to her father.  
   
 Tara explains that Eroica was somewhat in [[shock]] that things went not according to plan, and suggests that Gale call Ancra. "Help her, so she'll help you. She always has a way with problems, you know that!"  
   
-Eroica is revealed to be the [[shadow]] from November 12, dispatched by Catherine to investigate. In Gale's nightmares, the [[shadow]] is [[Louise]] haunting him.  
+Eroica is revealed to be the [[shadow]] from November 12, dispatched by Catherine to investigate. In Gale's nightmares, the [[shadow]] is [[Louise]] [[haunting]] him.  
   
-He used up his once in a lifetime lie, so the lie he wanted --- that he is meant to be a great writer --- cannot be brought about. All he can write about is Dawn.  
-He never wrote anything of his full potential until he began to write about Dawn, about the painful memory of the ghost he loved.

@@ -17,6 +17,6 @@ Jones ^ Beaulieu -> Eilish
 Surry ^ Vici -> Rachel  
   
   
-Three Vici [[sisters]] -> mothers of Eroica (Elaine), Tara (Elena), and Rachel (Eleanor).  
+Three Vici [[sisters]] -> mothers of Eroica (Elaine), Tara ([[Elena]]), and Rachel (Eleanor).  
   
 Eroica was raised without a father, and took her mother's surname.

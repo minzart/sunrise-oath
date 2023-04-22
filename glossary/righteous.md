@@ -1,0 +1,1 @@
+[[The]] [[great]] [[epoch]] [[of]] [[mind]] [[is]] [[seeing]] [[the]] [[Way]].

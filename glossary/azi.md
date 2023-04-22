@@ -1,0 +1,1 @@
+[[Monk]] [[on]] [[a]] [[mission]].

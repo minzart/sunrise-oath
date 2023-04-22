@@ -10,7 +10,7 @@ _[[We]] are so in love,_ she said that night, and pressed her naked [[body]] aga
   
 It was on Valentine's Day earlier that year. She had a [[shock]] earlier that evening, and wanted me by her side. That brush [[with]] death changed her, and made her so beautiful. She was loud, a sighing soprano seductress, and was more sensual than she ever was before.  
   
-The beauty of her love filled [[my]] heart.  
+The beauty of her love filled [[my]] [[heart]].  
   
   
 Charlotte skipped two grades and attended Westmount High School, then Vincent d'Indy. [[After]] a year, she changed over to becoming a doctor. She comes to marry her rival from her days as a cellist.  
@@ -19,8 +19,8 @@ Charlotte skipped two grades and attended Westmount High School, then Vincent d'
   
 Gale once told Charlotte that he was talking to Dawn at the table, and Charlotte does a double take. She only puts it together herself [[after]] she cannot ignore it anymore. [[After]] Selene's lies, Charlotte becomes tormented by their very existence.  
   
-(She lied to her husband that she miscarried. He wanted her husband to never be disappointed in her.)  
-Charlotte never told anyone she was married. It was their own personal thing.  
+(She lied to her husband that she miscarried. He wanted her husband to [[never]] be disappointed in her.)  
+Charlotte [[never]] told anyone she was married. It was their own personal thing.  
   
 Charlotte makes a "mix tape" of jazz standards she listened to [[with]] Gale and Selene.  
   

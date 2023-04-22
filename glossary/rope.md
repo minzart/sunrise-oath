@@ -1,1 +1,1 @@
-[[time|Time and time again.]]
+[[Time]] [[and]] [[time]] [[again]].

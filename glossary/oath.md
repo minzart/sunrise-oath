@@ -19,7 +19,7 @@ CATHERINE
 No more doubts. Everything is clear as day.
 
 
-I know that I will never forget her tears under the light of the [[moon]]. But for two minutes, I put the thought aside and watch the sunrise with the engineer. [[After]] a restless night, the rays stung my eyes.
+I know that I will never forget her tears under the [[light]] of the [[moon]]. But for two minutes, I put the thought aside and watch the sunrise with the engineer. [[After]] a restless night, the rays stung my eyes.
 
 ~In other words, I love you.
 
@@ -27,4 +27,4 @@ I know that I will never forget her tears under the light of the [[moon]]. But f
 
 Gale Jones was supposed to return to Waterloo on Canada Day, and was not allowed to go to the Old Port.  
   
-He broke his promise, and for that he was punished by the gods.
+He broke his [[promise]], and for that he was punished by the gods.

@@ -20,4 +20,4 @@ I saw her as an [[angel]] once. An icon of the world I sought to take, a symbol 
   
 “Why are you mad?” she whispered as an oath. “When will you think I’m good enough?’”  
   
-Alone, reflecting on that simple [[question]], I saw that [[there]] was nothing left. When she got back from dining with her parents, I told her [[we]] were done. Like that, it died.
+Alone, reflecting on that simple [[question]], I saw that [[there]] was nothing [[left]]. When she got back from dining with her parents, I told her [[we]] were done. Like that, it died.

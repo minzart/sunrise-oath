@@ -1,0 +1,1 @@
+In a field, she meets a group of pagan cultists, who challenge the righteousness of her Lord. Insulted, she engages them in combat. In a close fight, she defeats the heathens and learns of a [[scroll]] that holds [[sacred]] [[truth]], hidden in a [[lost]] [[domain]] of [[earthly]] [[wealth]]. 

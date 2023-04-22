@@ -11,5 +11,5 @@ Quadrivium
   
 Prose - Beaulieu  
 Lyric - Hawthorn  
-Poetry - Stroganov  
+[[Poetry]] - Stroganov  
 History - Vici

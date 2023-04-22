@@ -1,1 +1,1 @@
-[[We|we]] [[were]] [[all]] [[children]] [[pretending]] [[to]] [[be]] [[adults]]. [[Now|now]], [[we]] [[are]] [[adults]] [[who]] [[act]] [[as]] [[God|god]].
+[[We]] [[were]] [[all]] [[children]] [[pretending]] [[to]] [[be]] [[adults]]. 

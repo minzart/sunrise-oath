@@ -1,0 +1,1 @@
+Alone, reflecting on that simple [[question]], I saw that [[there]] was nothing [[left]]. When she got back from dining with her parents, I told her [[we]] were done. Like that, it died.

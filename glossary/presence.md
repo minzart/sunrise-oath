@@ -1,0 +1,1 @@
+I [[speak]] no [[longer]] to the [[damned]], and [[look]] [[toward]] [[the]] [[rest]] of [[you]] for [[that]]. [[My]] [[words]] [[shall]] [[cause]] [[but]] [[hot]] [[reaction]], a [[cycl]]e of [[more]] [[suffering]].

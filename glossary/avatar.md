@@ -1,1 +1,1 @@
-The starting piece for a deck defines its strategy. Each of its strengths as [[white]] [[is]] a weakness as [[black]], and vice versa. How will you balance between light and [[shadow]]?
+The starting piece for a deck defines its [[strategy]]. 
