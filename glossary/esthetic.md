@@ -1,0 +1,1 @@
+[[Tell]] [[a]] [[story]], [[or]] [[write]] [[a]] [[quote]].

@@ -1,0 +1,1 @@
+(Gale gave [[Walking]] [[Eagle]] all the money he earned from Genoise et The and Selene.)

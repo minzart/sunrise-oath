@@ -1,1 +1,1 @@
-She was on top, [[captivating]] me with frost and fire. 
+She was on top, [[captivating]] [[me]] with frost and fire. 

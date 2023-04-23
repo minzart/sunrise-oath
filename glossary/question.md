@@ -1,1 +1,1 @@
-Tara knows about Gale's amnesia? Wants to [[test]] it?
+Tara knows about Gale's [[amnesia]]? Wants to [[test]] it?

@@ -1,0 +1,1 @@
+I cleared [[my]] throat, and tried — failed — to pull away. “You’re [[acting]] [[off]].”

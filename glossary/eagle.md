@@ -1,1 +1,1 @@
-Tara gets super into the Battle of Waterloo TCG ([[after]] trying Vampire). Her decks are fully gilded out. She knows the game will lose out to Magic: the Gathering, but doesn't care.
+Tara gets super into the Battle of Waterloo TCG ([[after]] trying Vampire). Her decks are fully gilded out. She knows the [[game]] will lose out to Magic: the Gathering, but doesn't care.

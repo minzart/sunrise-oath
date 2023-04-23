@@ -1,0 +1,1 @@
+She opened the door, and let [[me]] in. Across her family's dining table, I handed everything she [[left]] behind, and took back the sweater that she liked to wear. Tara watched [[me]] put it on, and laughed. < It bore your [[scent]]. Now, it bears mine. >  

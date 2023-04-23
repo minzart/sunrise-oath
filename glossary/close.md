@@ -1,0 +1,1 @@
+In [[senior]] year [[after]] the Montreal exchange, I was Linda’s gym partner at the YMCA near my house, and Catherine’s boyfriend til halfway through the [[first]] semester of university. 

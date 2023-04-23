@@ -1,2 +1,2 @@
 aristotle  
-master of those who know
+master of those who [[know]]

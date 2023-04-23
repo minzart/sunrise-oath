@@ -1,4 +1,4 @@
-All by [[myself]], yet [[never]] alone. 
+All by [[myself]], yet [[never]] [[alone]]. 
   
 [[Tara]] [[is]] [[Ontario]].  
 [[Charlotte]] [[is]] [[Quebec]].  

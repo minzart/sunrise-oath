@@ -1,1 +1,1 @@
-The Magus failed to return on the third day.
+[[The]] [[Magus]] [[failed]] [[to]] [[return]] [[on]] [[the]] [[third]] [[day]].

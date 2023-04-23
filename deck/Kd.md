@@ -1,1 +1,1 @@
-[[The]] [[rich]] [[man]]'s [[burden]] is too [[great]] for [[me]] to ever [[keep]]. Only compassion and [[mercy]] have [[cured]] me of the ills of the [[flesh]].
+[[The]] [[rich]] [[man]]'s [[burden]] is too [[great]] for [[me]] to ever [[keep]]. Only compassion and [[mercy]] [[have]] [[cured]] [[me]] of the ills of the [[flesh]].

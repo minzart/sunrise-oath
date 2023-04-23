@@ -1,0 +1,1 @@
+[[Art]] [[is]] [[monetized]] [[meditation]], [[performed]] [[prayer]].

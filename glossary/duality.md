@@ -1,1 +1,1 @@
-[[DUELITY]] is a tactical [[tabletop]] [[board]] [[game]] [[that]] [[by]] [[tradition]] uses poker-sized cards and a hexagon grid. In development! Read [this](https://docs.google.com/document/d/17ZoM5G9BEJ9gVdC0gZOftIpXbNqCE92L7wTPHNgJlec/edit?usp=sharing) Google Doc for [[an]] [[overview]].
+[[DUELITY]] is a tactical [[tabletop]] [[board]] [[game]] [[that]] [[by]] [[tradition]] uses poker-sized cards and a hexagon grid. In [[development]]!

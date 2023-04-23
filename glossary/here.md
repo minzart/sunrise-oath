@@ -1,1 +1,1 @@
-She rested where I sat for lessons, and listened through a Chopin polonaise. My playing, void of all my joy, received a warm [[reception]] from the lady.  
+She rested where I sat for lessons, and listened through a Chopin polonaise. My playing, void of all my [[joy]], received a warm [[reception]] from the lady.  

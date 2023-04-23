@@ -1,1 +1,1 @@
-A group of people in Waterloo created Hell, then went to Montreal to make Heaven under the word of Gale Jones.
+A group of people in Waterloo created Hell, then went to Montreal to make Heaven under the [[word]] of Gale [[Jones]].

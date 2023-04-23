@@ -1,1 +1,1 @@
-[[Six]] [[thousand]] [[years]] [[ago]], two naked primates in [[an]] outdoor garden chose agency and gave away the so-called gift of immortality.
+[[Six]] [[thousand]] [[years]] [[ago]], two naked primates in [[an]] outdoor [[garden]] chose [[agency]]. 

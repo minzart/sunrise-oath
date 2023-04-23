@@ -1,1 +1,1 @@
-[[bedtime|Bedtime]].
+[[Bedtime]].

@@ -2,7 +2,7 @@
 Their perfect [[lot]] in life.
   
 Gale  
-Ancra  
+[[Ancra]]  
 David  
 Timothy  
 Maximilian  

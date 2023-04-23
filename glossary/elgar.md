@@ -22,5 +22,3 @@
 
 [[In]] [[his]] [[strength]] [[unseen]], [[in]] [[triumph]] [[upborne]],
 [[Rode]] [[he]] [[out]] [[to]] [[meet]] [[with]] [[the]] [[morn]]!
-
-[Wikipedia](https://en.wikipedia.org/wiki/The_Wind_at_Dawn)

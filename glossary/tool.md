@@ -1,3 +1,2 @@
-Mechanism for entering another realm of existence. A portal from a lesser place to a higher one.
+Place not faith in the [[wand]], but in the [[mage]].
 
-Evolution.

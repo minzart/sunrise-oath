@@ -1,0 +1,1 @@
+[[Only]] [[God]] shall [[judge]] [[me]]. [[Only]] [[money]] shall make [[me]].

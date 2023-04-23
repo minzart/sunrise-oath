@@ -1,0 +1,1 @@
+She continues her studies under the [[Church]] elder, despite the [[seeds]] of doubt that [[have]] sprouted in her [[heart]].

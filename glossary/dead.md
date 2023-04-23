@@ -1,0 +1,1 @@
+[[All]] [[short]] [[of]] [[eternity]] [[perish]] [[in]] [[the]] [[fire]] [[of]] [[hell]].

@@ -1,0 +1,1 @@
+Gale [[is]] famous as the son of a [[painter]] who [[committed]] suicide. He was running away from more than he let on. His mother killed herself [[after]] the death of her father.  

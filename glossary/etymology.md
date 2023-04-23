@@ -1,1 +1,1 @@
-“Spirit” is the conventional/modern translation of רוח (ruaḥ), as in “team spirit,” but literally רוח means “[[wind]]” and refers to the pervasive animating force. נשמה (neshamah) refers to the more individuated “soul” and shares the root of “breath” [[with]] “spirit,” so I like it.
+“[[Spirit]]” is the conventional/modern translation of רוח (ruaḥ), as in “team [[spirit]],” but literally רוח means “[[wind]]” and refers to the pervasive animating force. נשמה (neshamah) refers to the more individuated “soul” and shares the root of “breath” [[with]] “[[spirit]],” so I like it.

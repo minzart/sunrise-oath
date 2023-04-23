@@ -1,1 +1,1 @@
-“[[Your]] [[life]] [[sounds]] [[better]],” [[I]] [[said]]. “[[David]], [[new]] friends, new career. I can’t imagine what kinds of things you’ve learned [[since]] [[we]] [[last]] [[spoke]].”  
+“[[Your]] [[life]] [[sounds]] [[better]],” [[I]] [[said]]. “[[David]], [[new]] friends, new career. I can’t [[imagine]] what kinds of things you’ve learned [[since]] [[we]] [[last]] [[spoke]].”  

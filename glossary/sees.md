@@ -1,1 +1,1 @@
-[[No]] more [[pretending]] that a notebook is [[sacred]]! I [[shall]] write as I please, and let the chips fall where they may. I have been in [[need]] of a place to do my solo journaling, anyway.
+[[No]] more [[pretending]] that a notebook is [[sacred]]! I [[shall]] write as I please, and let the chips fall where they may. I [[have]] been in [[need]] of a place to do my [[solo]] journaling, anyway.

@@ -1,1 +1,1 @@
-Terminating as one and the same. [[flesh|Flesh]], [[word]], and [[spirit]].
+Terminating as [[one]] and the same. [[flesh|Flesh]], [[word]], and [[spirit]].

@@ -1,0 +1,1 @@
+“Your fingers,” she said, looking at [[my]] alternating movements. “You're [[thinking]] about the music.”

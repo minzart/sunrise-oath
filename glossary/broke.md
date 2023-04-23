@@ -1,0 +1,1 @@
+As the laws of the [[universe]] dictated, everything spiraled out of control from the smallest [[disturbance]].

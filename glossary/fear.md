@@ -1,0 +1,1 @@
+After all, [[God]] is [[truth]].

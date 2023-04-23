@@ -1,0 +1,1 @@
+[[Money]] [[as]] [[God]] [[for]] [[you]]. [[God]] [[as]] [[money]] [[for]] [[me]].

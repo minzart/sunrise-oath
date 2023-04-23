@@ -14,13 +14,13 @@ Francis Bacon died in 1992
 International Space Station 1999 assembly  
 Peter, Paul, Mary - Vocal Group Hall of Fame 1999  
 Beautiful People (1999 film)  
-One More [[Time]] (1999)  
+[[One]] More [[Time]] (1999)  
 My Neighbors the Yamadas (1999)  
   
-American Beauty conceived in 1992 during the Amy Fisher trial, released in 1999 when she was released.  
-Amy Fisher was seventeen when she shot someone out of love.  
-Parallels to Gale Jones.  
+American Beauty conceived in 1992 during the Amy Fisher trial, [[released]] in 1999 when she was [[released]].  
+Amy Fisher was seventeen when she shot [[someone]] out of love.  
+Parallels to Gale [[Jones]].  
   
 American Beauty  
 South of the Border, West of the Sun  
-Bill Nye, the Science Guy.
+Bill Nye, the [[Science]] Guy.

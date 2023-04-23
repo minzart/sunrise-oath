@@ -1,1 +1,1 @@
-Olivia / [[Louise]] / Alacrity
+[[Olivia]] / [[Louise]] / [[Alacrity]]

@@ -1,0 +1,1 @@
+Tara remade her image so they would be socially [[compatible]]. Before, she was not aware of popular people because she was so shut in. If he told her to, she would've stayed with him forever. She wanted to feel like she meant enough that he would stop her from leaving. He lived too well to realize how deeply [[someone]] can love. 

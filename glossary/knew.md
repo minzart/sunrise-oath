@@ -1,1 +1,1 @@
-I [know]] not what the [[world]] was in the [[distant]] [[past]], the [[place]] I [[put]] [[away]] and [[left]] to [[die]].
+I [[[know]]]] not what the [[world]] was in the [[distant]] [[past]], the [[place]] I [[put]] [[away]] and [[left]] to [[die]].

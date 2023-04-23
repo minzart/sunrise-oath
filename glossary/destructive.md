@@ -1,0 +1,1 @@
+[[Ultimately]], Gale's relationship with Sarah Carice Beaulieu, the real [[version]] of Dawn, leads to marriage and the [[birth]] of their two children: Caroline Alice [[Jones]], and Marie Eilish [[Jones]]. The latter grows up to become Ishmael, [[one]] of the leaders of a resistance movement in [[an]] alt-history future of Canada.

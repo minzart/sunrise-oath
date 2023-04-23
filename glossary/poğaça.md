@@ -1,1 +1,1 @@
-I ain’t typing that g every goddamn [[time]]. Luckily, I don’t have to.
+I ain’t [[typing]] that g every goddamn [[time]]. Luckily, I don’t [[have]] to.

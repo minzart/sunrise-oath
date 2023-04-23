@@ -1,0 +1,1 @@
+[Her] [[birthright]] [[as]] [[a]] [[knight]], [as] [[a]] [[conqueror]] [[of]] [[evildoers]], was [taken] [[from]] [her].

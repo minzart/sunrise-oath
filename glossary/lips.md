@@ -1,1 +1,1 @@
-[[I]] [[could]] [[not]] [[read]] [[the]] [[words]] [[she]] [[formed]], [[but]] [[knew]] [[the]] [[meaning]]: [[God]] [[made]] [[you]], [[too]].
+A [[shy]] [[kiss]], a [[brush]].

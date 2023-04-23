@@ -1,0 +1,1 @@
+Idea of the painting replaced with actual city.

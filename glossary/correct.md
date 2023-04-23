@@ -1,0 +1,1 @@
+When I play piano, everything starts as nothing and ends as nothing. I [[have]] ultimate control over the keys. The audience is under the spell cast by my fingers. I control [[time]], I control mood, I control the [[message]]. [[Absolute]] control. [[Something]] [[achievable]] in everyday life.

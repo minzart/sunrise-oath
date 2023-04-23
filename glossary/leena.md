@@ -1,1 +1,1 @@
-[For [[Light]] Was Made](https://www.newgrounds.com/audio/listen/1087794)
+[[For]] [[light]] [[was]] [[made]].

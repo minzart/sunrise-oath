@@ -1,0 +1,1 @@
+[[Chapter]] [[One]] [[Gale]] tries to name [[Dawn]] [[Aurora]].  

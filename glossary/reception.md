@@ -1,1 +1,1 @@
-“Why are you [[clapping]]?” I spat out.  
+“[[Why]] are you [[clapping]]?” I spat out.  

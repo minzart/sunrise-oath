@@ -1,0 +1,1 @@
+[[Duality]] [[may]] [[be]] [[played]] [[from]] [[a]] [[randomized]] [[common]] [[deck]].

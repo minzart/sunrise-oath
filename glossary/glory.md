@@ -1,1 +1,1 @@
-Hands are art, and artists. The life I always wanted, I now have. No person, friend or foe, [[shall]] have my soul. I have learned it from God the Father, sworn it to God the Son, lived it through God the Spirit.
+Hands are art, and artists. The life I always wanted, I now [[have]]. No person, friend or foe, [[shall]] [[have]] my soul. I [[have]] learned it from God the Father, sworn it to God the Son, lived it through God the [[Spirit]].

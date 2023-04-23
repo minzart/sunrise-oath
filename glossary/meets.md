@@ -1,0 +1,1 @@
+[[One]] of these new friends is Tara Robles, [[an]] [[architect]] who builds a new neighborhood in [[Waterloo]]. She was once [[an]] ex-girlfriend of Gale's, and they reunite in Montreal. Tara is pregnant with her husband David's child, and she names Gale as the godfather of their son, Solomon.

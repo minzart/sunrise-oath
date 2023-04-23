@@ -1,1 +1,1 @@
-Lea awakes to the sounds of church bells. She is in a small town by a river. She hears a child crying. She looks at the ground and [[sees]] a bloody sword. She continues her studies under the Church elder, despite the [[seeds]] of doubt that have sprouted in her [[heart]].
+Lea awakes to the sounds of [[church]] bells. She is in a small town by a river. She hears a child crying. She looks at the ground and [[sees]] a bloody [[sword]]. 

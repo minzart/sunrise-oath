@@ -1,1 +1,1 @@
-The [[genealogy]] of [[love]] is one of [[good]] and [[evil]].
+The [[genealogy]] of [[love]] [[is]] [[one]] of [[good]] and [[evil]].

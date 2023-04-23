@@ -1,0 +1,1 @@
+Each has a [[goal]] and an [[end]]. Which to [[choose]]?

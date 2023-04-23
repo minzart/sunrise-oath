@@ -5,7 +5,7 @@ A genius is the zenith of his strokes.
 Pencil and Paper / 1000 Cards  
 Magic  
 Chess  
-Prismata  
+[[Prismata]]  
 Keyforge  
 Onitama  
 Dungeons and Dragons  

@@ -1,0 +1,1 @@
+Hey look, [[execution]] luck has a role! You [[have]] to not only [[know]] what to do, but also do it [[right]]. I think everyone has screwed up at least once in their life.

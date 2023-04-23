@@ -1,0 +1,2 @@
+
+Gale withdraws all his money, his [[personal]] savings, to give to Alain. Gale finds out he was hallucinating Dawn, and gives his money to [[Walking]] [[Eagle]]. [[Walking]] [[Eagle]] makes sure that the people from the [[café]] [[got]] the money, then disappeared. Him giving the [[Tremblay]] family Gale's money is what [[triggers]] the events of Christmas 1999.

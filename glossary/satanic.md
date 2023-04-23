@@ -1,0 +1,1 @@
+On 12 [[August]] [[2022]], Rushdie was attacked onstage [[while]] speaking [[at]] [[an]] [[event]] [[of]] the Chautauqua Institution.

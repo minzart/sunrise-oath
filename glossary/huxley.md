@@ -1,1 +1,1 @@
-The blood of Aldous, and of other minds.
+The blood of Aldous, and of [[other]] minds.

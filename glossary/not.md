@@ -1,1 +1,1 @@
-Devilish little [[word]], this one. To speak of [[something]] as the things [[without]] is to [[define]] it as its [[nemesis]].
+Devilish little [[word]], this [[one]]. To [[speak]] of [[something]] as the things [[without]] is to [[define]] it as its [[nemesis]].

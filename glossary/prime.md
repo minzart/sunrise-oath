@@ -1,0 +1,1 @@
+For the sake of this post, I will also consider piano a "pure strategy [[game]]". My justification for this is that musical shaping is very "strategic" by [[nature]]. The key in music is contrast. Planning out your [[execution]] for the entirety of a piece requires [[quite]] a bit of foresight, just like in [[other]] "pure strategy [[games]]".

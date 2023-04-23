@@ -1,0 +1,1 @@
+I think talking about [[prayer]] ("thoughts and prayers to you") [[is]] immoral. I think [[reason]] [[is]] lacking in native Christians. I think that the [[message]] of God was corrupted from the [[false]] binary of literalism and analogy. [[Analogy]] [[IS]] [[reality]]. [[Science]] itself [[is]] analogy.

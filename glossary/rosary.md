@@ -1,1 +1,1 @@
-The [[message]] I transmit is not inspired by anything or anyone, except [[cosmos]] itself. You and I are destined to share this [[truth]] unlifted, unedited, uncut. [[Bare]], [[raw]], [[whole]].
+The [[message]] I transmit is not inspired by anything or [[anyone]], except [[cosmos]] itself. You and I are destined to share this [[truth]] unlifted, unedited, uncut. [[Bare]], [[raw]], [[whole]].

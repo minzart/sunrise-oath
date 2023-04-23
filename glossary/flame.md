@@ -1,0 +1,1 @@
+[[Prometheus]], O [[bearer]] of [[light]], grant us [[strength]] and [[insight]].

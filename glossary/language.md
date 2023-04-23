@@ -1,1 +1,1 @@
-Ancra in French is ''' will anchor '''.
+[[Ancra]] in French is ''' will anchor '''.

@@ -1,4 +1,2 @@
-A superlative artist and thinker.
-
-[Justonky](https://justonky.com/)
+A [[superlative]] [[artist]] and [[thinker]].
 

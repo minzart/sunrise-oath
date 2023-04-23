@@ -1,0 +1,1 @@
+Though the novel’s connection to the namesake song by Edward [[Elgar]] proves to be a chore, a weighty [[promise]] made when I was young, I [[have]] maintained its place inside the [[story]]. I found “The [[Wind]] at Dawn” by [[chance]], while researching the piano [[output]] of Edward [[Elgar]]. 

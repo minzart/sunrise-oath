@@ -1,0 +1,1 @@
+Your [[brain]] doesn't immediately start assessing [[every]] [[detail]] of a [[scene]], it captures a few prominent details and then just assumes the [[rest]]. The fact that you draw the main details in the foreground lets your [[brain]] fill in the "[[gaps]]" in the background.

@@ -1,0 +1,1 @@
+For [[games]] like Call of [[Duty]], [[there]] are [[many]] [[many]] factors [[outside]] of strategy. [[Execution]] luck is [[one]] such [[factor]]. For piano, [[there]] is a similar [[aspect]], but muscle memory is much more controlled and straightforward in piano than in Call of [[Duty]]. 

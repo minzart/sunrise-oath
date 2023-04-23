@@ -2,4 +2,4 @@ Yolanda Clement was hired by Sam from a career fair, but was unofficially promot
   
 (This all makes Yolanda feel guilt over Sam's ultimate death and subsequent upload.)  
   
-Josh treats them all as children. What [[is]] a huge power struggle within the deep state amounts to nothing.
+Josh treats them all as children. What [[is]] a huge power struggle within the [[deep]] state amounts to nothing.

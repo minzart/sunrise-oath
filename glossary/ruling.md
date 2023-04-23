@@ -1,1 +1,2 @@
-[[Little]] [[nobles]], [[spoiled]] [[royalty]], [[see]] themselves [[in]] [[the]] beggars and the cripples.  
+As those who inherit the past, we [[have]] become arrogant and [[blind]].
+

@@ -1,1 +1,1 @@
-Dream of being stuck in strange wonderland where I am a village idiot living on a farm. Strange worm-like creatures exit my pores.
+Dream of [[being]] stuck in strange wonderland where I am a village idiot living on a farm. Strange worm-like creatures exit my pores.

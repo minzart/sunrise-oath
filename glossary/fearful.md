@@ -1,0 +1,1 @@
+[[Profane]] [[acts]] [[betray]] the motives of the [[church]].

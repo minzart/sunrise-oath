@@ -4,7 +4,7 @@ Trivium
   
 Logic - Atlas  
 Grammar - Clement  
-Rhetoric - Jones  
+Rhetoric - [[Jones]]  
   
   
 Quadrivium  
@@ -12,4 +12,4 @@ Quadrivium
 Prose - Beaulieu  
 Lyric - Hawthorn  
 [[Poetry]] - Stroganov  
-History - Vici
+History - [[Vici]]

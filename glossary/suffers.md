@@ -1,0 +1,1 @@
+Satan, the [[Great]] Accuser, is the prosecutor of [[humanity]]’s [[sin]], entraping us with his wiles. Yet [[Christ]] insists on clemency.

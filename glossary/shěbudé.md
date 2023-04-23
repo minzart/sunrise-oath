@@ -1,0 +1,1 @@
+I smiled. “[[Mandarin]], right? What does it mean?”  

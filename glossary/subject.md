@@ -1,0 +1,1 @@
+[[Epistemology]] 1999 is a [[short]] story set in the same [[universe]] as The [[Wind]] at Dawn. It is [[written]] in the [[first]] person, and follows the experiences of a young man [[named]] Gale [[Jones]] who is dating Selene Bauman, a Chinese-German curator. The story takes place in the fall of 1999, and focuses on the deepening relationship between Gale and Selene.

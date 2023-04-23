@@ -1,0 +1,1 @@
+“Once you [[know]], you [[never]] forget.” She put her hand over mine, silencing the [[muse]] of [[my]] twitching muscles. “That which [[is]] [[gone]] was [[never]] yours at all.”

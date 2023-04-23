@@ -1,0 +1,1 @@
+I am [[alone]], and may do as I please. [[God]] is the game master, and I am the [[dutiful]] player who wishes to see the end of [[history]].

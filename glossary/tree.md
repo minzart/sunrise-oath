@@ -1,1 +1,1 @@
-Rachel is Aurora's aunt, too. They were fairly close, but Aurora was less in [[need]]. They joked about the aunt relationship, esp. as Rachel was younger, but never took it seriously.
+Rachel is Aurora's aunt, too. They were fairly [[close]], but Aurora was less in [[need]]. They joked about the aunt relationship, esp. as Rachel was younger, but never took it seriously.

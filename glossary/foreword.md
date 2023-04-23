@@ -1,13 +1,13 @@
-  metafiction blockbuster documentary game show  
+  metafiction blockbuster documentary [[game]] show  
   
-characters in film know [[they]] are acting out a play  
+characters in film [[know]] [[they]] are [[acting]] out a play  
 but find out more about the play as [[they]] act in it  
 the emotions are real  
   
 law treatise  
 WAY  
 eroica  
-ancra  
+[[ancra]]  
   
 scripture  
 DAO  
@@ -83,7 +83,7 @@ elon
   
 animated film  
 EVIL DAYS REDEEMED  
-[[white]] link  
+[[white]] [[link]]  
 kurisu  
   
 animated film  
@@ -92,13 +92,13 @@ a1
 gale  
   
 animated film  
-ONE THOUSAND LIES  
+[[ONE]] THOUSAND LIES  
 ufotable  
 abrams  
   
 animated film  
 PYGMALION  
 ghibli  
-miyazaki_ai  
+miyazaki_[[ai]]  
   
 }

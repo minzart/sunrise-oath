@@ -1,0 +1,1 @@
+She was on top, [[captivating]] [[me]] [[with]] frost and fire. She [[held]] her ponytail in [[disdain]], narrowing her eyes.

@@ -1,0 +1,1 @@
+My [[conception]] of [[fairness]] has changed much over the years, and now has become but a fiction to [[reflect]] on.

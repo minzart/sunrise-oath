@@ -1,1 +1,1 @@
-[[The]] [[adaptation]] [[for]] [[magic]] also makes one [[loathe]] to be [[remembered]].
+[[The]] [[adaptation]] [[for]] [[magic]] also makes [[one]] [[loathe]] to be [[remembered]].

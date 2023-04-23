@@ -1,1 +1,1 @@
-“J’ai baisé ta bouche.” She hummed, opened her eyes, and let a [[drop]] fall. “So it is bitter, the taste of [[love]].”
+“J’[[ai]] baisé ta bouche.” She hummed, opened her eyes, and let a [[drop]] fall. “So it is bitter, the taste of [[love]].”

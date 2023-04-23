@@ -1,6 +1,6 @@
 ### Appearance
 
-You are _Drelil Sunderman_, formerly an herbalist.  You have a rugged physique, tattooed skin, oily hair, and a soft face. You speak in a booming manner and wear soiled clothing. You are rude yet disciplined, and are generally regarded as an entertainer. You have had the misfortune of being addicted (plus side: [[somatic]] [[resonance]]?). You are **30** years old.
+You are _Drelil Sunderman_, formerly an herbalist.  You [[have]] a rugged physique, tattooed skin, oily hair, and a soft face. You [[speak]] in a booming manner and wear soiled clothing. You are rude yet disciplined, and are generally regarded as an entertainer. You [[have]] had the misfortune of [[being]] addicted (plus side: [[somatic]] [[resonance]]?). You are **30** years old.
 
 ### Attributes
 
@@ -19,6 +19,3 @@ WIL: 11
 -   **Starting supplies:** 11 gold, a torch, and three days' rations.
 -   **Inventory:** using **8** out of **10** available slots.
   
-**Notes:**  
-If an item "stacks" it uses up the same slot as another item!  
-If your inventory is full, you are reduced to 0 HP.

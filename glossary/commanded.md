@@ -1,0 +1,1 @@
+She dressed the same, yet seemed not herself. I stood, and warned her to look away. I changed, and her sad eyes [[looked]] not away. Ah — [[they]] were a new [[color]]. 

@@ -1,0 +1,1 @@
+[[Her]] greatest [[strength]], the [[Word]], was [[lost]] to [[her]] in the [[lake]]. [[She]] [[could]] no [[longer]] [[speak]]. 

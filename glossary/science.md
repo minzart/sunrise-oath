@@ -1,0 +1,1 @@
+[[Knowledge]], [[true]] or [[false]] as it may be, is never but a [[tool]]. 

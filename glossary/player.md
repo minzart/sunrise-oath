@@ -5,7 +5,7 @@ R: 18
 G: 15
 C: 9
 
-Wallet: [1, 1, 1, 3, 5, 6]
+[[Wallet]]: [1, 1, 1, 3, 5, 6]
 
 Battlefield:
 

@@ -1,1 +1,1 @@
-La raconte de l'histoire soutient les coeurs des sauvages savants, des savants sauvauges. Toujours, c'est l'histoire. Personne ne réalise la vie maintenant comme les annales du futur, mais encore les philistines parlent des jours rosés.
+[[La]] raconte de l'histoire soutient les coeurs des sauvages savants, des savants sauvauges. Toujours, c'est l'histoire. Personne ne réalise la vie maintenant comme les annales du futur, mais encore les [[philistines]] parlent des jours rosés.

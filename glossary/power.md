@@ -1,1 +1,1 @@
-Figure out the strengths and weaknesses of each card, and upgrade your dualist through experience and theorycrafting. This game has no creep or pay-to-win, except for knowledge.
+Figure out the strengths and weaknesses of each card, and upgrade your dualist through experience and theorycrafting. This [[game]] has no creep or pay-to-win, except for knowledge.

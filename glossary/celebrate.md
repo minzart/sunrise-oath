@@ -1,0 +1,1 @@
+[[Blank]] [[slates]] and new beginnings—a baptism of the past. This is the [[wisdom]] of feasts and festivals.

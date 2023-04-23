@@ -1,0 +1,1 @@
+[[Born]] [[to]] [[me]] [[by]] inspiration, each idea I have is a precious crying [[child]]. 

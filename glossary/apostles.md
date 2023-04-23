@@ -1,0 +1,1 @@
+[[Story]] [[where]] [[AI]] [[prays]] [[and]] [[the]] [[player]] [[answers]].

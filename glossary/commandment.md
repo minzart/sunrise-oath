@@ -10,4 +10,4 @@ For free and unsolicited, I outline ten:
 7. Order 
 8. Trust 
 9. [[Truth]] 
-10. Joy
+10. [[Joy]]

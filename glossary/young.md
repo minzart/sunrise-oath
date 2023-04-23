@@ -1,1 +1,1 @@
-Lea is terrified, but she tries to slash at the snake man. The sword cuts right through his chest, right through the [[heart]]. The snake man is not dead. She strikes him over and over til she [[wakes]] up.
+Lea is terrified, but she tries to slash at the snake man. The [[sword]] cuts right through his chest, right through the [[heart]]. The snake man is not [[dead]]. She strikes him over and over til she [[wakes]] up.

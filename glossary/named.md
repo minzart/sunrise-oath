@@ -1,0 +1,1 @@
+Dawn ostensibly had [[amnesia]]. In [[reality]], Dawn is lying to him. This [[represents]] that Gale is lying to himself, as Dawn is a part of him.

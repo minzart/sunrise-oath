@@ -1,0 +1,1 @@
+I nodded, replying: “I [[want]] to [[keep]] it in [[my]] [[memory]].”

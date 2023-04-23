@@ -1,4 +1,4 @@
-Science fiction, clean, philosophy, nihilism, androids, cliffhanger
+[[Science]] fiction, clean, philosophy, nihilism, androids, cliffhanger
 
 
 Mundane Tragedy

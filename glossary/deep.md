@@ -1,0 +1,1 @@
+[[Nothing]] annoys me quite as much as when [[someone]] slowrolls a thought they believe to be clever, but is indeed trite and undercooked.
