@@ -4,5 +4,5 @@ Sarah is the [[dawn]] / [[hope]].
 Eroica / Tara is the [[earth]] / [[reality]].  
 Catherine / Selene is the [[moon]] / [[mystery]].  
 [[Louise]] / Charlotte is the [[sun]] / [[creation]].  
-Jacob / Alain is the [[sea]] / [[struggle]].
+Jacob / [[Alain]] is the [[sea]] / [[struggle]].
 

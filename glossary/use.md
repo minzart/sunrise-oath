@@ -1,0 +1,1 @@
+[[At]] [[the]] very least, it [[is]] training data for [[AI]] Tim. That [[is]] [[a]] serious application.

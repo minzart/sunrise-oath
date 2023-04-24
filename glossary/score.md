@@ -1,1 +1,1 @@
-Together on the couch, [[we]] watched a movie. I [[forgot]] what it was, but she was warm. Our [[young]] bodies were filled [[with]] dull life, a humming sense of [[being]], of existing only at that [[moment]].
+Together on the couch, [[we]] watched a movie. I [[forgot]] what it was, but she was warm. [[Our]] [[young]] bodies were filled [[with]] dull life, a humming sense of [[being]], of existing [[only]] at that [[moment]].

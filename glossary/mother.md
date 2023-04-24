@@ -1,2 +1,2 @@
-My mother saw the woman in the video, and hummed approvingly. “That outfit totally brings out my emerald eyes,” she said, tapping the bridge of her nose with a smirk.  
-“They’re green,” I said flatly, and pushed her away. Kneeling on the couch, Tara Robles looked [[even]] smaller than the screen suggested. A [[mess]] of strawberry blonde hair, as Gale wrote in The [[Wind]] at Dawn.
+My mother saw the woman in the video, and hummed approvingly. “That outfit totally brings out my emerald eyes,” she [[said]], tapping the bridge of her nose with a smirk.  
+“They’re green,” I [[said]] flatly, and pushed her away. Kneeling on the couch, Tara Robles looked [[even]] smaller than the screen suggested. A [[mess]] of strawberry blonde hair, as Gale wrote in The [[Wind]] at Dawn.

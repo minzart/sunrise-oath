@@ -1,0 +1,1 @@
+This reminded [[me]] [[of]] [[someone]] else, but [[as]] [[I]] tried [[to]] [[speak]] [[the]] [[curator]] [[pulled]] [[me]] out [[of]] [[the]] [[way]] [[of]] [[a]] passerby. 

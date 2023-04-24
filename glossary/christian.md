@@ -1,1 +1,1 @@
-I think [[Jesus]] literally resurrected, and it has cold nothing to do [[with]] [[biology]]. [[Jesus]] the ego died, and his followers literally saw [[Jesus]] the superego come to [[being]] and ascend to heaven. 
+I think [[Jesus]] literally [[resurrected]], and it has cold nothing to do [[with]] [[biology]]. [[Jesus]] the ego died, and his followers literally saw [[Jesus]] the superego come to [[being]] and ascend to heaven. 

@@ -1,1 +1,1 @@
-[[Sight]] [[as]] [[it]] [[is]].
+This [[is]] [[pertinent]] when speaking about dysphoria or [[dysmorphia]].  

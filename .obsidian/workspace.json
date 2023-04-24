@@ -4,33 +4,15 @@
     "type": "split",
     "children": [
       {
-        "id": "b1d70cf1324641ca",
+        "id": "352462397fd0a39c",
         "type": "tabs",
         "children": [
           {
-            "id": "c694df7992a63897",
+            "id": "dd8e25b6811aa83c",
             "type": "leaf",
             "state": {
-              "type": "markdown",
-              "state": {
-                "file": "glossary/first.md",
-                "mode": "source",
-                "backlinks": true,
-                "source": false
-              }
-            }
-          },
-          {
-            "id": "ddfe0aa35200d834",
-            "type": "leaf",
-            "state": {
-              "type": "markdown",
-              "state": {
-                "file": "glossary/james.md",
-                "mode": "source",
-                "backlinks": true,
-                "source": false
-              }
+              "type": "empty",
+              "state": {}
             }
           }
         ]
@@ -99,7 +81,6 @@
             "state": {
               "type": "backlink",
               "state": {
-                "file": "glossary/first.md",
                 "collapseAll": true,
                 "extraContext": false,
                 "sortOrder": "alphabetical",
@@ -116,9 +97,8 @@
             "state": {
               "type": "outgoing-link",
               "state": {
-                "file": "glossary/first.md",
-                "linksCollapsed": false,
-                "unlinkedCollapsed": true
+                "linksCollapsed": true,
+                "unlinkedCollapsed": false
               }
             }
           },
@@ -138,9 +118,7 @@
             "type": "leaf",
             "state": {
               "type": "outline",
-              "state": {
-                "file": "glossary/first.md"
-              }
+              "state": {}
             }
           }
         ],
@@ -161,34 +139,34 @@
       "periodic-notes:Open today": false
     }
   },
-  "active": "63e5950b4619ae58",
+  "active": "dd8e25b6811aa83c",
   "lastOpenFiles": [
-    "glossary/my.md",
-    "journal/2023-03-11.md",
-    "glossary/resist.md",
-    "glossary/james.md",
-    "glossary/science.md",
-    "glossary/released.md",
-    "glossary/time.md",
-    "glossary/lord.md",
-    "glossary/heresy.md",
-    "glossary/god.md",
-    "glossary/fear.md",
-    "glossary/darwin.md",
-    "glossary/evolution.md",
-    "glossary/mage.md",
-    "glossary/tool.md",
-    "glossary/wand.md",
-    "glossary/having.md",
-    "journal/2023-04-23.md",
-    "glossary/job.md",
-    "glossary/fearful.md",
-    "glossary/tribe.md",
-    "glossary/committed.md",
-    "glossary/jesus.md",
-    "glossary/abstract.md",
-    "glossary/something.md",
-    "journal/2023-03-10.md",
+    "glossary/remember.md",
+    "glossary/inbox.md",
+    "glossary/return.md",
+    "glossary/redeemed.md",
+    "glossary/privileged.md",
+    "glossary/efficient.md",
+    "glossary/immoral.md",
+    "glossary/incorporate.md",
+    "glossary/native.md",
+    "glossary/corrupted.md",
+    "glossary/twinkle.md",
+    "glossary/truth.md",
+    "glossary/our.md",
+    "glossary/solution.md",
+    "glossary/pain.md",
+    "glossary/crick.md",
+    "glossary/perception.md",
+    "glossary/dysmorphia.md",
+    "glossary/physiological.md",
+    "glossary/myriad.md",
+    "glossary/psychological.md",
+    "glossary/psychosomatic.md",
+    "glossary/physics.md",
+    "glossary/cause.md",
+    "glossary/medicine.md",
+    "glossary/pertinent.md",
     "journal/Untitled",
     "archive/hex_template_200_10.png",
     "archive/Pasted image 20230321140121.png",

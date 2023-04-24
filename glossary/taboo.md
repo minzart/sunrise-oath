@@ -1,1 +1,1 @@
-Student has [[affair]] with [[teacher]], who falls in love with him and seeks to [[destroy]] him. 
+[[Student]] has [[affair]] [[with]] [[teacher]], [[who]] falls [[in]] [[love]] [[with]] him and seeks [[to]] [[destroy]] him. 

@@ -9,7 +9,7 @@
 * * *
 A drunk man will find his way home, but a drunk bird may get lost forever. — Shizuo Kakutani 
 
-Turn-based [[game]] ([[maybe]] ADV VN format). Board state is updated every [[turn]]. No [[true]] [[ending]] to the [[game]], meant to be a place to go back to. Every turn, the player progresses the clock [[one]] hour. He befriends a [[bird]] in a [[cage]], and [[eventually]] lets it out. It promises to come back, and from then on sporadic conversations with the bird are the main emotional thread.
+Turn-based [[game]] ([[maybe]] ADV VN format). Board state is updated every [[turn]]. No [[true]] [[ending]] to the [[game]], meant to be a [[place]] to go back to. Every turn, the player progresses the clock [[one]] hour. He befriends a [[bird]] in a [[cage]], and [[eventually]] lets it out. It promises to come back, and from then on sporadic conversations with the bird are the main emotional thread.
 
 HOME 
 
@@ -27,4 +27,4 @@ The bird is in a cage, and tries to get the player to let it out.
 Once [[released]], it flies away and shows up from [[time]] to [[time]], til [[one]] day it [[never]] comes back. 
 (Random [[flight]] in an array-simulated 3D space.) 
 
-[[There]] will be a last [[meeting]] between the player and the bird. [[They]] [[never]] [[know]] when it will be, or if it has been.
+[[There]] will be a last [[meeting]] between the player and the bird. [[They]] [[never]] [[know]] when it will be, or [[if]] it has been.

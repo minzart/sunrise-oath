@@ -1,10 +1,10 @@
 Walkman is from Eroica  
 Piano recording is from [[Louise]]  
-Song is from Catherine  
+[[Song]] is from Catherine  
   
 CD player is from Tara  
 Cello recording is from Charlotte  
-Song is from Selene
+[[Song]] is from Selene
 
 * * * 
 

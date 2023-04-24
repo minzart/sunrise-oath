@@ -1,0 +1,1 @@
+Soon [[as]] [[she]] did, [[they]] hated her [[forever]]. Aurora and Vesper [[never]] [[learn]] [[to]] undo their hatred for their [[mother]].

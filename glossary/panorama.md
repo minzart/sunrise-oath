@@ -1,1 +1,1 @@
-Idea of the painting replaced with actual city.
+Idea [[of]] [[the]] painting replaced [[with]] actual city.

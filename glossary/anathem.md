@@ -1,1 +1,1 @@
-[[Anathema]] to the [[righteous]], [[anthem]] of the depraved.
+[[Anathema]] [[to]] [[the]] [[righteous]], [[anthem]] [[of]] [[the]] depraved.

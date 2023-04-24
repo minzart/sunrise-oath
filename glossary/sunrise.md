@@ -1,8 +1,8 @@
 On [[Sunday]], I was hired at a [[café]], the [[one]] I saw in Old Montreal. The next day at [[Alexandra]] Basin, I declared to the beautiful [[stranger]]: “I’m a barista at Génoise et Thé.”
 
-“Is that so,” she said, not looking up from the scribbles in my old [[journal]].
+“Is that so,” she [[said]], not looking up from the scribbles in my old [[journal]].
 
-“I’d come here anyway, is what I’m saying. The Old [[Port]] is the [[best]] place for reading before work.”
+“I’d come here anyway, is what I’m saying. The Old [[Port]] is the [[best]] [[place]] for reading before work.”
 
 “Hard to read with your eyes staring up at [[me]],” she replied with a smile. “Still on that page?”
 

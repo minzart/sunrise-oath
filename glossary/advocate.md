@@ -1,0 +1,1 @@
+I'll make all [[my]] [[wildest]] [[dreams]] come true. What about you, Gale [[Jones]]?  

@@ -1,0 +1,1 @@
+[[Gale]] [[receives]] [[a]] call each [[chapter]], then [[receives]] [[another]].  

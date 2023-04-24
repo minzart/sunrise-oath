@@ -20,7 +20,7 @@ Findlay - The [[Value]] of Art
 From the Towers of the [[Moon]]  
 Cormac McCarthy - The Road  
 The God of Small Things  
-Dylan - The Philosophy of Modern Song  
+Dylan - The Philosophy of Modern [[Song]]  
 Bachmann - Malina  
 Fleur Jaeggy - The Water Statues  
 Professing Criticism  
@@ -28,11 +28,11 @@ Professing Literature
 Laxness - Under the Glacier  
 Laxness - Salka Valka  
 Studies into Darkness (epub)  
-Ted Chiang - The [[Evolution]] of Human [[Science]] (Stories of Your Life and Others)  
+Ted Chiang - The [[Evolution]] of [[Human]] [[Science]] (Stories of Your Life and Others)  
 Confidentially Yours  
 Eddie Izzard [[Great]] Expectations  
 When [[We]] Cease to Understand the World  
-My Broken Language  
+My Broken [[Language]]  
 Rushmore  
 The Inspection  
 Peaky Blinders  

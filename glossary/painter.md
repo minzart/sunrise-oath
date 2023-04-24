@@ -9,7 +9,7 @@
   
   
 emergency broadcast: hitler won world war ii  
-author [[wakes]] up, sends the novel, and kills himself.  
+[[author]] [[wakes]] up, sends the novel, and kills himself.  
   
   
 adolf sitting on a bench  

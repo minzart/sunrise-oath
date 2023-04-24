@@ -1,1 +1,1 @@
-Selene visits [[Hortus]]'s father in a prison or a mental hospital.
+[[Selene]] visits [[Hortus]]'s [[father]] [[in]] [[a]] prison or [[a]] mental hospital.

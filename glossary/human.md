@@ -1,0 +1,1 @@
+[[Something]] happened six thousand years [[ago]].

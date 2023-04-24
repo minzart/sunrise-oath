@@ -1,1 +1,1 @@
-“Should [[we]]?” She sounded sure, yet her legs quivered as I thought of _Bambi_, of fawn and doe, of [[Louise]]. I was [[aroused]], and [[awake]].
+“Should [[we]]?” She sounded sure, yet her legs quivered as I [[thought]] of _Bambi_, of fawn and doe, of [[Louise]]. I was [[aroused]], and [[awake]].

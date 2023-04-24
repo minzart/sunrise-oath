@@ -1,1 +1,1 @@
-[[bad|Bad]] [[place]].
+[[Bad]] [[place]], literally—but really, [[a]] sort [[of]] antidote [[to]] [[despair]]. 

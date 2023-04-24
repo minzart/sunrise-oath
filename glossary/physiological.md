@@ -1,0 +1,1 @@
+Expanding [[on]] this idea, placebos are real [[medicine]]. Nocebos are real poison. [[They]] directly affect neurochemistry, and [[cause]] [[myriad]] physiological effects.  

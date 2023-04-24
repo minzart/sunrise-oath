@@ -1,4 +1,4 @@
-Sky, God, and Heaven were the same [[word]] in Chinese.
+Sky, [[God]], and Heaven were [[the]] [[same]] [[word]] [[in]] Chinese.
 
 [[天]]
 

@@ -1,1 +1,1 @@
-“It all [[crashes]] [[down]].”
+“It [[all]] [[crashes]] [[down]].”

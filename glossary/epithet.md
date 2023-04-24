@@ -1,7 +1,7 @@
 [[Ancra]] Atlas - the [[writer]]  
 [[Hortus]] Brisbois - the [[manager]]  
 Timothy Clement - the [[physicist]]  
-Alain Tremblay - the [[owner]]  
+[[Alain]] Tremblay - the [[owner]]  
 Tara Robles - the [[architect]]  
 Eroica [[Vici]] - the [[lawyer]]  
 Selene Bauman - the [[curator]]  

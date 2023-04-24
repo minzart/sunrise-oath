@@ -1,0 +1,1 @@
+[[Love]] [[is]] [[never]] [[found]].  

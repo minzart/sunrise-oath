@@ -1,0 +1,1 @@
+[[Mitchell]] can [[protect]] [[Gale]] [[Jones]] [[forever]], but [[in]] [[the]] end [[he]] lives [[the]] most through [[me]].

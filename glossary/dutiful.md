@@ -1,1 +1,1 @@
-Who have I [[forsaken]]? 
+[[Who]] [[have]] [[I]] [[forsaken]]? 

@@ -1,1 +1,1 @@
-Additionally, the [[ending]] could be revised to provide a more satisfying resolution for [[Gale]] and his [[friends]].
+Additionally, the [[ending]] could be revised to provide a more satisfying [[resolution]] for [[Gale]] and his [[friends]].

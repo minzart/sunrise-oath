@@ -1,0 +1,1 @@
+Some people's [[spirits]] [[have]] been abandoned by their bodies.  

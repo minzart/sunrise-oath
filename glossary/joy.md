@@ -1,1 +1,1 @@
-Eroica did Martin [[wrong]] through [[never]] seeing him as [[family]], but Martin also did her [[wrong]]. Her children would've loved her no matter what, so long as she [[never]] [[hurt]] Martin. Soon as she did, [[they]] hated her forever. Aurora and Vesper [[never]] [[learn]] to undo their hatred for their mother.
+[[Eroica]] did Martin [[wrong]] through [[never]] seeing him [[as]] [[family]], but Martin [[also]] did her [[wrong]]. 

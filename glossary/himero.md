@@ -7,7 +7,7 @@
 [[444]] - collapsed ceiling
 [[446]] - knuckleless skeleton and note: AZZALGAZGOTH
 [[467]] - statue of a [[goddess]], [[elf]]'s potion
-[[480]] - note: ZEPHYR
+[[480]] - note: [[ZEPHYR]]
 [[488]] - main entrance
 
 

@@ -1,1 +1,1 @@
-Putting on my shoes in the foyer that I never saw [[again]], my gaze fixed on the high ceiling of the living room, I heard her say: < I [[wonder]] if it's [[snowing]]. >  
+Putting on my shoes in the foyer that I never saw [[again]], my gaze fixed on the high ceiling of the living room, I heard her say: < I [[wonder]] [[if]] it's [[snowing]]. >  

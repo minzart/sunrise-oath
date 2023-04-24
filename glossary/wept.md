@@ -1,1 +1,1 @@
-“[[meaningless|Meaningless]], said the [[Preacher]]. [[meaningless|Meaningless]].”
+“[[Meaningless]], [[said]] [[the]] [[Preacher]]. [[meaningless|Meaningless]].”

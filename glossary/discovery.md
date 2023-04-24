@@ -2,7 +2,7 @@ CHAPTER [[ONE]]
 
 And the wind went out to meet with the sun . . .
 
-. . . At the dawn when the [[night]] was done.
+. . . At the dawn when the [[night]] was [[done]].
 
 Gale reunites with Dawn, and they make a sunrise oath.
 
@@ -12,7 +12,7 @@ And he racked the clouds in lofty [[disdain]] . . .
 
 . . . As they flocked in his airy train.
 
-Gale starts working at the [[café]], [[meeting]] Alain, [[Hortus]], Charlotte, and Selene.
+Gale starts working at the [[café]], [[meeting]] [[Alain]], [[Hortus]], Charlotte, and Selene.
 
 CHAPTER THREE
 
@@ -36,7 +36,7 @@ Then the sun upleapt in might and in power . . .
 
 . . . And the worlds woke to hail the hour.
 
-Gale isolates himself, and only Charlotte is [[there]] for him. When he [[sees]] Dawn [[again]] and satisfies their sunrise oath, his obsession pushes the doctor away.
+Gale isolates himself, and [[only]] Charlotte is [[there]] for him. When he [[sees]] Dawn [[again]] and satisfies their sunrise oath, his obsession pushes the doctor away.
 
 CHAPTER SIX
 
@@ -44,7 +44,7 @@ And the [[sea]] streamed red from the kiss of his brow . . .
 
 . . . [[There]] was [[glory]] and [[light]] enow.
 
-Gale's search for Dawn puts [[off]] Alain, but earns the sympathy of [[Hortus]]. Selene is angry at Gale's treatment of Charlotte, and reveals she is a [[witch]]. She curses him to be bound to his greatest lie, though he knows not yet what it is.
+Gale's search for Dawn puts [[off]] [[Alain]], but earns the sympathy of [[Hortus]]. Selene is angry at Gale's treatment of Charlotte, and reveals she is a [[witch]]. She curses him to be bound to his greatest lie, though he knows not yet what it is.
 
 CHAPTER SEVEN
 
@@ -60,4 +60,4 @@ In his strength unseen, in triumph upborne . . .
 
 . . . Rode he out to meet with the morn!
 
-Gale [[wakes]] up in a hospital room, and during the last days of the year makes amends to his new friends. He also meets the real beautiful [[stranger]] [[again]] for the [[first]] [[time]] in seven years, and she promises to tell him her name when he is discharged on New Year's Day.
+Gale [[wakes]] up in a hospital room, and during the last days of the year makes amends to his new friends. He [[also]] meets the real beautiful [[stranger]] [[again]] for the [[first]] [[time]] in seven years, and she promises to tell him her name when he is discharged on New Year's Day.

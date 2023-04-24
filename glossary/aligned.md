@@ -1,0 +1,1 @@
+[[Charlotte]] has [[family]] [[in]] Ontario, [[split]] up [[from]] [[Quebec]]'s [[shift]] [[in]] politics. [[She]] secretly identifies more [[with]] anglos.  

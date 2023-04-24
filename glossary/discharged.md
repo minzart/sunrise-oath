@@ -60,6 +60,6 @@ the unseen and upborne and ride.
 
 the strength and triumph and [[meeting]],
 
-the story told by [[me]] to you the dear [[stranger]] —
+the [[story]] told by [[me]] to you the dear [[stranger]] —
 
-I found the hints that make her name: Sarah Carice Beaulieu.
+I [[found]] the hints that make her name: Sarah Carice Beaulieu.

@@ -1,1 +1,1 @@
-My [[parents]] [[were]] [[Buddhist]] [[or]] [[atheist]], often both, but signed [[me]] up to sing in the Saturday children's [[choir]], driving [[me]] over [[after]] [[Mandarin]] lessons in the morning. 
+[[My]] [[parents]] [[were]] [[Buddhist]] [[or]] [[atheist]], often both, but signed [[me]] up [[to]] sing [[in]] [[the]] Saturday [[children]]'s [[choir]], driving [[me]] [[over]] [[after]] [[Mandarin]] lessons [[in]] [[the]] morning. 

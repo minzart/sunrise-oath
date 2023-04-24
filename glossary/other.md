@@ -1,1 +1,1 @@
-Gale [[Jones]] was [[supposed]] to return to [[Waterloo]] on Canada Day, and was not allowed to go to the Old Port.  
+Gale [[Jones]] was [[supposed]] to [[return]] to [[Waterloo]] on Canada Day, and was not allowed to go to the Old Port.  

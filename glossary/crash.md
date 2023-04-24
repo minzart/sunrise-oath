@@ -1,1 +1,1 @@
-A tug and a flick — like that, her hair [[tumbled]]. Bleached strands framed the milk-rose mask, the royal portrait leaning in. I stared at [[dark]] roots, [[short]] lashes, [[perfect]] teeth.
+A tug and a flick — like that, her hair [[tumbled]]. Bleached strands framed the milk-rose mask, the royal portrait leaning in. I stared at [[dark]] roots, [[short]] lashes, [[perfect]] [[teeth]].

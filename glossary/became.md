@@ -1,0 +1,1 @@
+[[Ancra]] fell [[in]] [[love]] [[with]] [[Louise]] while [[with]] his [[wife]], and he [[got]] his [[wife]] [[pregnant]] [[right]] when [[Louise]] [[got]] [[pregnant]].  

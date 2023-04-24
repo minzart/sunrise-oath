@@ -1,1 +1,1 @@
-[[my|My]] [[greatest]] [[weakness]]: [[her]] [[hair]] [[in]] [[a]] [[mess]].
+[[My]] [[greatest]] [[weakness]]: [[her]] [[hair]] [[in]] [[a]] [[mess]].

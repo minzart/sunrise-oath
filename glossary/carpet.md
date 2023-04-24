@@ -1,0 +1,1 @@
+When [[death]] [[is]] [[reality]], [[have]] [[we]] [[not]] earned [[our]] folktales and legends?

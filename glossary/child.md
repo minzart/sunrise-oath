@@ -4,8 +4,8 @@
 In a rocking boat on the winding shore,  
 [[seven]] mages gave the world eternal life.  
   
-All the angry men in my native land  
-see upon my brow another foreign face.  
+All the angry men in my [[native]] land  
+see upon my brow [[another]] foreign face.  
   
 No [[other]] God but [[Jesus]] Christ  
 may be the Caesar's ecstasy.  

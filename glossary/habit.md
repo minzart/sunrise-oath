@@ -1,1 +1,1 @@
-Was thinking of buying a [[monk]] [[outfit]] on Amazon, then realized I was already properly aligned with the lifestyle anyway. Hoodie and shorts [[forever]].
+Was thinking of buying a [[monk]] [[outfit]] on Amazon, then realized I was already properly [[aligned]] with the lifestyle anyway. Hoodie and shorts [[forever]].

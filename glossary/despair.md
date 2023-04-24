@@ -1,1 +1,1 @@
-The [[story]] ends with a dramatic confrontation between [[Gale]] and [[Selene]], in which [[Selene]] confesses her feelings and reveals her true appearance. The story leaves the outcome of their relationship open-ended, and does not provide any [[resolution]].
+[[The]] [[story]] ends [[with]] [[a]] [[dramatic]] confrontation between [[Gale]] and [[Selene]], [[in]] which [[Selene]] confesses her feelings and reveals her true appearance. [[The]] [[story]] leaves [[the]] outcome [[of]] their [[relationship]] open-ended, and [[does]] [[not]] provide any [[resolution]].

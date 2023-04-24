@@ -1,5 +1,5 @@
 Makes potions that let him cast magic at a distance.
-Learned how to tell stories, thanks to a human.
+Learned how to tell stories, thanks to a [[human]].
 
 * * *
 

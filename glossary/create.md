@@ -1,1 +1,1 @@
-Prometheus and Athena crafted Man.
+Prometheus and [[Athena]] crafted Man.

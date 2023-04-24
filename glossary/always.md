@@ -1,1 +1,1 @@
-The [[place]] beyond [[death]] and [[spacetime]].
+The [[place]] [[beyond]] [[death]] and [[spacetime]].

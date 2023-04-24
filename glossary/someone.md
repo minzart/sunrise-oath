@@ -1,1 +1,1 @@
-[[Imaginary]] friends are real. Talk to them, and treat them with respect. They sometimes are the only ones who can hope to help you, as only they depend on you alone. Who else can they seek, except another who loves them as you do? [[Mitchell]] can protect [[Gale]] [[Jones]] [[forever]], but in the end he lives the most through [[me]].
+[[Imaginary]] [[friends]] are real. Talk [[to]] them, and treat them [[with]] respect. [[They]] sometimes are [[the]] [[only]] ones [[who]] can [[hope]] [[to]] help [[you]], [[as]] [[only]] [[they]] depend [[on]] [[you]] [[alone]]. 

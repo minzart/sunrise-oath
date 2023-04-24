@@ -1,1 +1,1 @@
-During a [[game]] of *[[Magic]]*, the [[question]] came up of if [[spelling|Spelling]] [[bee|Bee]] allowed [[players]] to choose the artist's name or a [[proper]] [[noun]] from the [[flavor]] [[text]].
+During a [[game]] of *[[Magic]]*, the [[question]] came up of [[if]] [[spelling|Spelling]] [[bee|Bee]] allowed [[players]] to choose the artist's name or a [[proper]] [[noun]] from the [[flavor]] [[text]].

@@ -1,0 +1,1 @@
+Yet [[my]] arrogance [[knew]] [[no]] bounds, and so [[I]] [[never]] [[got]] out [[of]] [[the]] car.

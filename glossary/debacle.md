@@ -1,4 +1,4 @@
-"You anglophones are all the same. War and [[peace]], all about money."  
+"You anglophones are all the [[same]]. War and [[peace]], all about money."  
   
 I stormed out.  
   

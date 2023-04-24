@@ -1,0 +1,1 @@
+Collision courses, corrected too late, may mean [[the]] end [[of]] [[the]] [[world]] [[as]] [[we]] [[know]] it.

@@ -1,0 +1,1 @@
+He [[was]] [[Eroica]]'s loyal [[student]], [[Catherine]]'s [[secret]] lover, and [[Louise]]'s [[art]] [[muse]]. He ruined [[all]] [[of]] it.  

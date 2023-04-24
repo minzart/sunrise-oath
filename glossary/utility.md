@@ -1,1 +1,1 @@
-“No,” I said. “Let’s do this: whoever wants to [[opt]] out may do so at any point.”  
+“[[No]],” [[I]] [[said]]. “Let’s do this: whoever wants [[to]] [[opt]] out may do so [[at]] any point.”  

@@ -41,7 +41,7 @@ médée
   
 fast food franchise  
 MCDONALDS  
-alain  
+[[alain]]  
 carice  
   
 toy  
@@ -62,7 +62,7 @@ gordon
 animated fugue  
 TESTAMENT  
 anderson  
-tian  
+[[tian]]  
   
 {  
   
@@ -82,7 +82,7 @@ trigger
 elon  
   
 animated film  
-EVIL DAYS REDEEMED  
+EVIL DAYS [[REDEEMED]]  
 [[white]] [[link]]  
 kurisu  
   

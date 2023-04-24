@@ -1,0 +1,1 @@
+[[Analogy]] [[IS]] [[reality]]. [[Science]] [[itself]] [[is]] [[analogy]].

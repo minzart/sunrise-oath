@@ -1,0 +1,1 @@
+[[I]] am living [[the]] [[privileged]] [[life]] [[of]] [[an]] aristocrat. [[I]] barely "[[work]]", [[outside]] [[my]] daily reading and writing, and teach [[piano]] [[a]] few times [[a]] week ([[on]] two grand pianos) for fun money. [[I]] pay [[no]] rent, and get served two keto meals [[a]] day. This [[made]] [[me]] feel guilty before. [[No]] longer.

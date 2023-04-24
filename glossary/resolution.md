@@ -1,0 +1,1 @@
+[[Dominant]] [[to]] tonic, [[a]] foreign land [[to]] [[home]].

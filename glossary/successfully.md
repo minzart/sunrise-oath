@@ -1,1 +1,1 @@
-Take a [[word]] [[entry]], [[write]] whatever I [[want]], then [[evict]] [[one]] of the paragraphs into yet another [[word]]. 
+Take [[a]] [[word]], [[write]] whatever [[I]] [[want]], then [[evict]] [[one]] [[of]] [[the]] paragraphs into yet [[another]] [[entry]]. 

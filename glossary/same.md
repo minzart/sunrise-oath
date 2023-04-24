@@ -1,0 +1,1 @@
+It [[is]] [[written]] [[in]] [[the]] [[first]] [[person]], and follows [[the]] experiences [[of]] [[a]] [[young]] [[man]] [[named]] [[Gale]] [[Jones]] [[who]] learns [[from]] [[Selene]] Bauman, [[a]] Chinese-German [[curator]]. 

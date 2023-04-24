@@ -1,0 +1,1 @@
+Danced [[with]] [[a]] [[goblin]] [[who]] gave him [[a]] [[coin]].

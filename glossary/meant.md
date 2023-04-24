@@ -1,1 +1,1 @@
-She said she never learned [[an]] instrument. Not [[one]] of music, anyway. Her mind and eye saw everything as money, and my piano was expensive. “You [[have]] to [[close]] the lid,” she said [[again]]. “The dust will [[settle]] in the cracks.”  
+She [[said]] she never learned [[an]] instrument. Not [[one]] of music, anyway. Her mind and [[eye]] saw everything as money, and my piano was expensive. “You [[have]] to [[close]] the lid,” she [[said]] [[again]]. “The dust will [[settle]] in the cracks.”  

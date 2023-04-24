@@ -1,0 +1,1 @@
+[[I]] think that [[the]] [[message]] [[of]] [[God]] [[was]] [[corrupted]] [[from]] [[the]] [[false]] binary [[of]] literalism and [[analogy]].
