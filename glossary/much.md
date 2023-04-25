@@ -1,0 +1,1 @@
+[[She]] closed her [[eyes]]. Inhale, hold, [[exhale]] — [[I]] mirrored her. Her smile, [[an]] underhanded weapon, disarmed [[me]]. “[[I]]’m sorry. I should’ve known.” She opened her eyes. “I swear I [[am]] telling the truth, and that if you’ve kept me in your heart, I’ll come to know you again. [[Cross]] my heart, and hope to die.”

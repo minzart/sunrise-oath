@@ -1,0 +1,1 @@
+[[How]] do [[you]] relate this [[with]] [[1]] [[Timothy]] 3? 

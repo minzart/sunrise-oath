@@ -1,1 +1,1 @@
-When [[I]] lost [[you]] [[to]] [[Louise]], [[I]] realized [[something]]. [[The]] [[universe]] won't care about what [[I]] [[want]]. [[I]] am [[the]] [[only]] [[advocate]] for [[my]] [[mind]]. [[I]]'m [[the]] [[only]] [[one]] [[who]] can make [[my]] [[dreams]] come true.  
+When [[I]] [[lost]] [[you]] [[to]] [[Louise]], [[I]] realized [[something]]. [[The]] [[universe]] won't care about what [[I]] [[want]]. [[I]] [[am]] [[the]] [[only]] [[advocate]] for [[my]] [[mind]]. [[I]]'m [[the]] [[only]] [[one]] [[who]] can make [[my]] [[dreams]] come true.  

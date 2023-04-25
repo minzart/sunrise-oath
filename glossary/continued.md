@@ -1,0 +1,1 @@
+[[This]] [[time]], [[I]] [[was]] [[not]] [[alone]]. [[A]] pale blue [[dress]], [[hazel]] [[eyes]], [[the]] [[love]] [[of]] [[my]] [[dreams]]. Musing [[on]] [[the]] brink [[of]] [[revelation]], [[night]] [[on]] [[the]] cusp [[of]] [[dawn]] — [[the]] [[silence]] [[broke]].

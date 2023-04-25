@@ -1,1 +1,1 @@
-[[Mind]] is [[reality]]. As much, [[miracles]] really do exist. [[They]] change the lives of everyone [[they]] touch, and make the world that everyone knew become a whole new trial altogether.
+[[Mind]] is [[reality]]. As [[much]], [[miracles]] really do exist. [[They]] change the lives of everyone [[they]] touch, and make the world that everyone knew become a whole [[new]] trial altogether.

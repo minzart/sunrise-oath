@@ -1,9 +1,9 @@
 MAYDAY, the God of the world.  
   
 Quebec tempts God, seeing when at last she acts.  
-Ontario sits idly by, accepting history as it is.  
+Ontario sits idly by, accepting [[history]] as it is.  
   
-Quebec gathers the old gods and subjugates them. God comes to liberate them, and [[humanity]].  
+Quebec gathers the [[old]] gods and subjugates them. God [[comes]] to liberate them, and [[humanity]].  
   
 God is the [[Trinity]].  
   
@@ -13,7 +13,7 @@ Rose ^ Taylor = [[Jones]] ^ Charpentier -> Nemo
   
   
 Dupont ^ Gagnon = Taylor ^ Shanks -> Riley  
-[[Jones]] ^ Beaulieu -> Eilish  
+[[Jones]] ^ [[Beaulieu]] -> Eilish  
 Surry ^ [[Vici]] -> Rachel  
   
   

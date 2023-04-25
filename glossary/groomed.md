@@ -1,0 +1,1 @@
+“If a younger brother was born after me, he would be the heir,” she said. “A younger sister was born, and the [[inheritance]] was mine. From then on, I traveled the world and studied at international schools.”

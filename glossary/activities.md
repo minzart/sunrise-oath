@@ -1,1 +1,1 @@
-A little [[Jesus]] [[never]] [[hurt]] [[anyone]], [[they]] figured, and that was how on a hot Friday in August I ended up at a water park, sitting on blue tarmac [[with]] [[Jennifer]].  
+A little [[Jesus]] [[never]] [[hurt]] [[anyone]], [[they]] [[figured]], and that was [[how]] on a hot Friday in August I ended up at a water park, sitting on blue tarmac [[with]] [[Jennifer]].  

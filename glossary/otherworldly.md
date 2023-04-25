@@ -1,1 +1,1 @@
-That [[night]], sleepless and peering out the window at the clouds illumined by [[silver]] [[light]], I prayed for the [[first]] [[time]]. No [[one]] answered, but I was [[patient]]. 
+That [[night]], sleepless and peering out the window at the clouds illumined by [[silver]] [[light]], I prayed for the [[first]] [[time]]. No [[one]] [[answered]], but I was [[patient]]. 

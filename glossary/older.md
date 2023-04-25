@@ -1,1 +1,1 @@
-How [[conceited]] [[I]] [[was]], truly. 
+[[How]] [[conceited]] [[I]] [[was]], truly. 

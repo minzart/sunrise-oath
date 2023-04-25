@@ -1,0 +1,1 @@
+[[Moses]] [[is]] [[law]]. [[Jesus]] [[is]] [[love]].

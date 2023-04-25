@@ -1,0 +1,1 @@
+[[I]] hugged [[not]] [[the]] [[beautiful]] [[stranger]]. “[[Dawn]]. [[Your]] [[name]] [[is]] [[Dawn]].”

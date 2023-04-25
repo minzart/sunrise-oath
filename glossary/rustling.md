@@ -1,0 +1,1 @@
+[[I]] finished [[the]] [[rest]] [[of]] [[the]] [[novel]] and [[looked]] up. [[Left]] beside [[me]] [[was]] [[my]] [[notebook]], [[pages]] [[flapping]] [[in]] [[the]] [[wind]].

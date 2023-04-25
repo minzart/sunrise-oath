@@ -29,6 +29,6 @@ Proverbs 22:29
 Proverbs 23:27
 Romans 8:28
 Romans 13:14
-2 Timothy 2:22
+2 [[Timothy]] 2:22
 Acts 26:11
 Proverbs 12:22

@@ -1,0 +1,1 @@
+[[The]] doctor [[was]] Mademoiselle [[in]] [[July]] [[at]] [[the]] [[café]], [[back]] when [[she]] came two or [[three]] times [[a]] week. [[She]] requested [[my]] company during [[off]]-hours, and [[I]] obliged [[with]] [[the]] owner’s approval. [[We]] [[conversed]] [[in]] [[French]] [[over]] [[my]] writing, [[my]] [[past]] [[life]], and [[Dawn]].

@@ -1,8 +1,8 @@
-  metafiction blockbuster documentary [[game]] show  
+  metafiction blockbuster [[documentary]] [[game]] show  
   
 characters in film [[know]] [[they]] are [[acting]] out a play  
-but find out more about the play as [[they]] act in it  
-the emotions are real  
+but find out more about the play as [[they]] [[act]] in it  
+the emotions are [[real]]  
   
 law treatise  
 WAY  
@@ -72,7 +72,7 @@ shaft
 aurora  
   
 animated film  
-SOUTH OF THE BORDER, WEST OF THE SUN  
+SOUTH OF THE BORDER, WEST OF THE [[SUN]]  
 shinkai  
 murakami  
   

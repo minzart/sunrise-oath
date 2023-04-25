@@ -1,1 +1,1 @@
-Dawn appeared to [[me]] on the last [[night]] of 1999, and told [[me]] she could be by my side forever. I shook my head, and [[left]] her for when all [[hope]] was lost. [[Only]] then would I allow her to be in my [[dreams]].
+Dawn appeared to [[me]] on the last [[night]] of 1999, and [[told]] [[me]] she [[could]] be by my side forever. I shook my [[head]], and [[left]] her for when all [[hope]] was [[lost]]. [[Only]] then would I [[allow]] her to be in my [[dreams]].

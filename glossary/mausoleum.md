@@ -1,1 +1,1 @@
-The [[monk]] gains [[insight]] and [[enters]] the [[spirit]] [[realm]] at [[sundown]]. The collective experience has those around him directing him, aiding him [[with]] [[apparations]] they create. 
+The [[monk]] gains [[insight]] and [[enters]] the [[spirit]] [[realm]] at [[sundown]]. The collective experience has those [[around]] him directing him, aiding him [[with]] [[apparations]] they create. 

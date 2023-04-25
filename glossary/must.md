@@ -1,0 +1,1 @@
+“Bet your parents are at a loss. You remind me of my own daughter, one and the same — dreamers in need of a dream. If only Sylvie were alive to see the path our little girl would take.” He gulped his [[coffee]], [[forlorn]] one moment and in high spirits the next. “What matters is, my [[daughter]]’s alive and [[well]]. She [[left]] for New York City three months ago, and . . .”

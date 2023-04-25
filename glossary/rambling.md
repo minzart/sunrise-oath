@@ -1,1 +1,1 @@
-Fragments of scripts interspered [[with]] prose [[outside]]. A new sort of composite literary form. [[Is]] this the future? (No.)
+Fragments of scripts interspered [[with]] prose [[outside]]. A [[new]] sort of composite literary form. [[Is]] this the [[future]]? (No.)

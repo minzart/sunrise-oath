@@ -1,0 +1,1 @@
+[[I]] mentioned two types [[of]] [[dreams]]: [[the]] [[dreams]] [[of]] [[night]] and [[the]] [[dreams]] [[of]] day. [[I]] [[found]] [[a]] [[dream]] [[of]] [[another]] sort: [[the]] [[daydream]]. [[I]] [[was]] [[a]] daydreamer [[all]] [[along]], [[not]] [[meant]] [[to]] [[dream]] [[of]] [[the]] [[past]] and [[the]] [[future]].

@@ -1,0 +1,1 @@
+[[The]] [[sunrise]], when it [[comes]], [[shall]] [[last]] two minutes. [[For]] two minutes, [[life]] [[shall]] be but [[a]] [[dream]].

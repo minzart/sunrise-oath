@@ -1,1 +1,1 @@
-Each has a [[goal]] and an [[end]]. Which to [[choose]]?
+Each has a [[goal]] and [[an]] [[end]]. Which to [[choose]]?

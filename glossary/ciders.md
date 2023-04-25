@@ -1,2 +1,2 @@
-The foundation of a [[sweet]] and tangy [[friendship]].
+[[The]] foundation [[of]] [[a]] [[sweet]] and tangy [[friendship]].
 

@@ -1,0 +1,1 @@
+[[At]] [[dawn]], I snuck out and walked back to the [[Old]] Port. Alone where I last saw the [[beautiful]] stranger, I cast a cigarette butt over the [[barricade]] and watched the sunrise. 

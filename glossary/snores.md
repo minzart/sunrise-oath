@@ -1,0 +1,3 @@
+“[[You]] [[remember]] that, but [[not]] [[my]] [[name]]?”
+
+“Sorry,” [[she]] [[said]], and burst [[into]] laughter. [[I]] laughed [[along]], and [[saw]] her true smile, her fetching beauty. Behind her [[mess]] [[of]] hair and flashy costume [[was]] [[a]] teenage girl [[with]] thorns. [[She]] took [[a]] sip [[from]] her [[bottle]], and twisted [[on]] [[the]] cap. “Be straight [[with]] [[me]], [[Gale]] [[Jones]]. Do [[I]] look [[like]] [[a]] [[fool]] out [[there]]?”

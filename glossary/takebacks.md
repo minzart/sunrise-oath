@@ -1,0 +1,1 @@
+“[[Not]] fair.” [[I]] tickled her sides, and [[she]] squealed. [[We]] wrestled [[in]] her [[bed]], and stopped when [[we]] were panting. [[Under]] [[me]], [[she]] [[was]] wrapped [[in]] [[white]] sheets. “It looks [[like]] [[a]] wedding [[veil]].”

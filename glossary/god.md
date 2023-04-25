@@ -11,7 +11,7 @@ Odysseus
   
 Perseus - [[Athena]] / Arachne / Nike  
   
-Endymion - Hera / Myia / Artemis  
+[[Endymion]] - Hera / Myia / Artemis  
   
 Pygmalion - Aphrodite / Daphne / Hestia  
   

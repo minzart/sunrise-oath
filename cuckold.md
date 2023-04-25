@@ -1,0 +1,1 @@
+That [[never]] [[happened]], but [[my]] dread [[was]] [[real]]. Marrying [[the]] [[pianist]] [[was]] not my only dream; more than anything, I wanted to be a writer. I had to choose one, and my choice [[brought]] me hundreds of kilometers [[away]], one step [[forward]] [[into]] a one-and-a-half-room studio [[apartment]] — my un et demi.

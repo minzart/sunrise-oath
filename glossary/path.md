@@ -1,0 +1,1 @@
+Clean [[the]] slate, [[over]] and [[over]], writing [[without]] hangups or [[obligation]]. [[Art]] for [[the]] sake [[of]] creating, [[not]] for fame or [[fortune]].

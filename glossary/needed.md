@@ -1,0 +1,1 @@
+[[The]] present [[is]] [[the]] midpoint [[between]] what [[was]] and what [[is]] [[meant]] [[to]] be, so [[there]] [[I]] stood and dreamed. West [[of]] [[the]] [[sun]] that rose [[to]] [[shine]] [[upon]] [[the]] [[new]] millenium, [[I]] [[was]] exactly where [[I]] [[was]] [[meant]] [[to]] be.

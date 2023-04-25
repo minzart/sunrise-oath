@@ -9,7 +9,7 @@ Rhetoric - [[Jones]]
   
 Quadrivium  
   
-Prose - Beaulieu  
+Prose - [[Beaulieu]]  
 Lyric - Hawthorn  
 [[Poetry]] - Stroganov  
-History - [[Vici]]
+[[History]] - [[Vici]]

@@ -1,2 +1,2 @@
-[[One]] with the [[Father]] and the [[Spirit]].
+[[One]] [[with]] [[the]] [[Father]] and [[the]] [[Spirit]].
 

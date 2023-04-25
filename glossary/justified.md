@@ -1,0 +1,1 @@
+[[I]] [[was]] [[Christian]] while [[young]], but [[left]] [[my]] [[faith]] behind.

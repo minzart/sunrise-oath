@@ -1,1 +1,1 @@
-Basically, [[execution]] luck keeps [[players]] on their toes: [[even]] [[if]] you are understanding the [[game]] and using the perfect [[decision]] for the [[situation]], [[there]] is still the element of "not screwing up".
+Basically, [[execution]] luck keeps [[players]] on their toes: [[even]] [[if]] you are understanding the [[game]] and using the [[perfect]] [[decision]] for the [[situation]], [[there]] is still the element of "not screwing up".

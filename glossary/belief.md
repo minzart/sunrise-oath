@@ -1,0 +1,1 @@
+Yet [[in]] [[the]] [[same]] [[moment]] [[I]] [[saw]] [[how]] [[I]] [[always]] [[knew]] and feared. 

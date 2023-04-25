@@ -1,0 +1,1 @@
+[[The]] sooner [[we]] [[dream]], [[the]] sooner [[we]] [[face]] [[the]] day.

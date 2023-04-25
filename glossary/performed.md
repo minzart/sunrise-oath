@@ -1,1 +1,1 @@
-[[Gale]] goes [[to]] [[Montreal]] [[on]] April [[1]], but [[quit]] university [[again]] [[on]] [[New]] Years [[to]] [[work]] [[at]] coffee shops for four months.  
+[[Gale]] goes [[to]] [[Montreal]] [[on]] April [[1]], but [[quit]] university [[again]] [[on]] [[New]] Years [[to]] [[work]] [[at]] [[coffee]] shops for four months.  

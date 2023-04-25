@@ -1,0 +1,1 @@
+It [[is]] [[an]] exercise [[in]] [[futility]], and [[in]] [[the]] worship [[of]] [[strife]]. 

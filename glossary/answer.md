@@ -1,1 +1,1 @@
-I saw her as [[an]] [[angel]] once. [[An]] icon of the world I sought to take, a symbol of [[my]] lot in life. But soon, I saw her as [[an]] [[effigy]] to gods I could no longer worship.  
+I [[saw]] her as [[an]] [[angel]] once. [[An]] icon of the world I sought to take, a symbol of [[my]] lot in life. But soon, I [[saw]] her as [[an]] [[effigy]] to gods I [[could]] no longer worship.  

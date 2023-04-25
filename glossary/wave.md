@@ -1,0 +1,1 @@
+Absent [[was]] [[Eroica]] [[Vici]] — [[the]] [[writer]]’s [[muse]], [[the]] engineer’s rival, [[the]] [[pianist]]’s witness. [[Long]] before [[she]] [[was]] [[the]] [[lawyer]], [[she]] used her [[friends]] [[to]] further [[the]] [[student]] council agenda [[of]] Maximilian Meyer, [[the]] president and her favorite [[pawn]].

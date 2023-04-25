@@ -1,0 +1,1 @@
+[[At]] [[Seven]] Shores, [[I]] met [[the]] architect. [[She]] ordered lattes for us, [[one]] [[without]] sugar. “Still [[on]] keto?” [[she]] asked [[me]] [[with]] [[a]] [[wink]].

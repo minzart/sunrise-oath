@@ -1,1 +1,1 @@
-The thing as it is, referencing the thing as it is.
+The [[thing]] as it is, referencing the [[thing]] as it is.

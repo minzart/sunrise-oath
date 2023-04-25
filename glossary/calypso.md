@@ -1,1 +1,1 @@
-Collis [[is]] Calypso. Detaining Odysseus on an island, she kept him [[trapped]] for [[seven]] years.  
+Collis [[is]] Calypso. Detaining Odysseus on [[an]] island, she kept him [[trapped]] for [[seven]] years.  

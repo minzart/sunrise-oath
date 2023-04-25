@@ -1,1 +1,1 @@
-Life is a shitty [[RPG]]. Perfect.
+Life is a shitty [[RPG]]. [[Perfect]].

@@ -1,1 +1,1 @@
-[[A]] [[mage]] [[whose]] [[father]] [[is]] [[a]] [[carpet]] [[merchant]]. [[He]] [[wanted]] [[a]] [[son]], [[and]] [[told]] [[her]] [[so]]. Ever since, she has tried to get petty [[revenge]] through pranks.
+[[A]] [[mage]] [[whose]] [[father]] [[is]] [[a]] [[carpet]] [[merchant]]. [[He]] [[wanted]] [[a]] [[son]], [[and]] [[told]] [[her]] [[so]]. Ever since, she has tried to get petty [[revenge]] [[through]] pranks.

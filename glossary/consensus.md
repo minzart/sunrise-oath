@@ -1,0 +1,1 @@
+[[I]] [[implore]] [[you]] [[to]] [[not]] [[fall]] [[for]] [[the]] [[false]] [[idol]] [[of]] [[politics]] and [[culture]] [[war]]. 

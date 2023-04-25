@@ -1,0 +1,1 @@
+[[Locus]] [[of]] [[mind]] [[is]] meaning, and bias.

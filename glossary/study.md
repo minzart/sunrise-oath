@@ -1,0 +1,1 @@
+[[A]] robot dragon [[blew]] up. Firefighter [[said]] it [[was]] [[like]] slaying [[one]] for [[real]].

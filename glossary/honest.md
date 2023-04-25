@@ -1,0 +1,3 @@
+[[The]] pyramid [[was]] neatly disassembled. [[Tara]], out [[of]] [[the]] spotlight, [[was]] [[at]] ease [[for]] [[the]] [[rest]] [[of]] [[the]] routine. [[Sometime]] [[in]] [[the]] [[second]] half — [[the]] [[score]] [[was]] [[tied]] — I went below the bleachers to get popcorn for me and Timothy. Too cheap to buy a drink, I wandered to the water fountain near the restrooms. There, alone and deep in thought, picking away at the label on an empty Évian bottle, was none other than the small cheerleader. Sensing my presence, she looked up and half-smiled. I nodded. “Good work out there,” I said, and ducked down to drink.
+
+“Thanks. [[Oh]]!” [[Recognition]] flashed in her emerald eyes. “You’re in my math class! Your name . . .”

@@ -1,0 +1,1 @@
+[[He]] has [[a]] sneer, and [[fearful]] [[eyes]]. “Give [[me]] [[your]] [[gold]],” [[he]] [[said]], [[with]] shaky [[words]].

@@ -1,1 +1,1 @@
-Is there [[anyone]] I should [[message]] right now?
+Is there [[anyone]] I should [[message]] right [[now]]?

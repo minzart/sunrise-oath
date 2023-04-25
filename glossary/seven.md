@@ -1,1 +1,1 @@
-[[Eroica]] tells [[Timothy]] to order the [[release]] of [[Aurora]] from [[Collis]]'s companionship. So Timothy gets [[Ancra]] to [[leave]].
+[[Eroica]] tells [[Timothy]] to order the [[release]] of [[Aurora]] from [[Collis]]'s companionship. So [[Timothy]] gets [[Ancra]] to [[leave]].

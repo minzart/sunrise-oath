@@ -1,0 +1,1 @@
+« I have great expectations. » A [[curt]] nod, then she seated herself and produced a folder from a bag. Her eyes scanned the pages as her pen circled and underlined.

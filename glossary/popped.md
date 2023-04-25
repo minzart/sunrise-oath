@@ -1,0 +1,1 @@
+I washed my hands and rehearsed my [[words]]. Utilise tes propres mots was Alain’s instruction, so I [[translated]] my message to the best of my limited abilities.

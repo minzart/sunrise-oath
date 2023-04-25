@@ -1,0 +1,1 @@
+[[A]] [[stream]] [[of]] [[consciousness]] [[documentary]] [[novel]], where [[I]] interview [[Gale]] [[Jones]] and listen [[to]] him recite [[an]] [[unfinished]] [[novel]].

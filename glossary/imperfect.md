@@ -1,1 +1,1 @@
-[[Pavi]] the [[holy]] [[soldier]] leans into the [[profane]].
+[[Pavi]] the [[holy]] [[soldier]] leans [[into]] the [[profane]].

@@ -1,1 +1,1 @@
-“Right?” A [[drop]] of [[Perrier|perrier]] ran [[down]] her chin. She wiped, hiccuped, [[sniffed]]. “I am [[awake]]. Life is but a [[dream]].”
+“Right?” A [[drop]] of [[Perrier|perrier]] ran [[down]] her chin. She wiped, hiccuped, [[sniffed]]. “I [[am]] [[awake]]. Life is but a [[dream]].”

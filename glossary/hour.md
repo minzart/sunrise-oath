@@ -1,1 +1,1 @@
-[[Later]], the [[curator]] came in [[without]] knocking. Her tone [[commanded]]: “The [[place]] around the corner, my tab.”
+[[Later]], the [[curator]] came in [[without]] knocking. Her tone [[commanded]]: “The [[place]] [[around]] the corner, my tab.”

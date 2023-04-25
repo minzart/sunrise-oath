@@ -1,0 +1,1 @@
+[[A]] passerby, her [[only]] [[friend]]? This [[thought]] swayed [[me]]. Inhale, hold, [[exhale]]. [[I]] [[sighed]] so slowly, [[I]] [[never]] [[sighed]] [[again]]. “[[I]] find [[your]] [[name]], [[you]] make [[me]] [[love]] [[the]] [[sunrise]]. [[Alright]], [[Dawn]]?”

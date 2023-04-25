@@ -1,1 +1,1 @@
-[[Players]] arrange the order of the cards in their deck. (They may [[choose]] to randomize.)
+[[Players]] arrange the order of the cards in their deck. (They [[may]] [[choose]] to randomize.)

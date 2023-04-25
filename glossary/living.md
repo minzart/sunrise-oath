@@ -1,0 +1,1 @@
+[[I]] think [[Yahweh]] [[is]] [[the]] [[way]] that [[God]] [[revealed]] himself [[to]] [[the]] Hebrews. [[Now]], his [[relationship]] [[to]] mankind [[through]] [[Jesus]] [[is]] [[the]] [[Trinity]]. [[I]] [[believe]] people [[of]] [[other]] faiths [[have]] received [[the]] [[Word]], though [[they]] are [[ontologically]] [[justified]] [[in]] describing it differently.

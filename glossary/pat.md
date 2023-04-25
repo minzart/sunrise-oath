@@ -1,0 +1,1 @@
+On my way out, Hortus [[offered]] a [[generous]] [[compliment]]: « You’re quick, for an anglophone. »

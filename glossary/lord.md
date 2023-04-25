@@ -1,1 +1,1 @@
-May God grant me strength in my [[time]] of [[need]].
+[[May]] God grant me strength in my [[time]] of [[need]].

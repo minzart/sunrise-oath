@@ -1,0 +1,1 @@
+[[I]] took [[a]] step [[forward]], dipping [[an]] exposed foot [[back]] [[in]] [[the]] [[river]]. [[Once]] more, it [[was]] wet.  

@@ -1,1 +1,1 @@
-She answered my questions as theology, as [[if]] in asking I challenged God. Her eyes saw not the world of man, and so her soul was sworn to the [[kingdom]] of heaven. God created you too, she [[said]], touching the bridge of my nose and stroking my [[cheek]]. 
+She [[answered]] my questions as theology, as [[if]] in asking I challenged God. Her eyes [[saw]] not the world of man, and so her soul was sworn to the [[kingdom]] of heaven. God created you too, she [[said]], touching the bridge of my nose and stroking my [[cheek]]. 

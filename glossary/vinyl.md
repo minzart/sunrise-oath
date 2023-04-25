@@ -1,0 +1,1 @@
+Before the song was over, we were kissing. Her parents were gone. We were alone, and no one could stop us. On the couch, she was a bundle of strawberry blonde hair and vanilla beige skin. She locked her lips to mine. Her back arched as my hand [[moved]] past her [[cocking]] waist and teased her bosom.

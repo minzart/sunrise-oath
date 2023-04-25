@@ -1,0 +1,1 @@
+[[Bitter]], yet ties [[the]] [[world]] together.

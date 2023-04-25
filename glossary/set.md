@@ -1,1 +1,1 @@
-[[The]] [[story]] [[takes]] [[place]] [[in]] [[the]] fall [[of]] [[1999]], and focuses [[on]] [[the]] deepening [[relationship]] between [[Gale]] and [[Selene]].
+[[The]] [[story]] [[takes]] [[place]] [[in]] [[the]] [[fall]] [[of]] [[1999]], and focuses [[on]] [[the]] deepening [[relationship]] [[between]] [[Gale]] and [[Selene]].

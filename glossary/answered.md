@@ -1,0 +1,1 @@
+[[In]] conclusion, [[my]] [[friends]], [[remember]] that [[God]] chose [[you]] [[to]] be his [[child]] and [[saved]] [[you]] because [[he]] loves [[you]]. Let's [[try]] [[to]] live [[good]] lives and give thanks [[to]] [[God]] for [[everything]] [[he]]'s [[done]]. And let's [[always]] listen [[to]] what [[God]] says [[in]] [[the]] [[Bible]], where [[we]] can hear his [[voice]].

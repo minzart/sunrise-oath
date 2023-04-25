@@ -1,1 +1,1 @@
-Two people spend the day together, expecting to see the sunset. In the end, it [[never]] comes.
+Two people spend the day together, expecting to see the sunset. In the [[end]], it [[never]] [[comes]].

@@ -1,0 +1,1 @@
+[[I]] had access [[to]] Gutenberg [[for]] [[all]] this [[time]], yet [[I]] [[insisted]] [[on]] buying analog copies. [[They]]'re inefficient physical additions [[to]] [[my]] [[brain]], when [[I]] [[could]] simplify [[with]] [[an]] electronic [[library]].  

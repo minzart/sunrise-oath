@@ -1,1 +1,1 @@
-The last of the whispers lying in the loom of shadows, losing and crying over the passage of [[time]], [[have]] long disappeared from the life I lived as a silly child.  
+The last of the whispers [[lying]] in the loom of shadows, losing and crying over the passage of [[time]], [[have]] long disappeared from the life I lived as a silly child.  

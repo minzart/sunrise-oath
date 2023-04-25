@@ -1,6 +1,6 @@
 ROSE
 
-Oh,
+[[Oh]],
 
 and
 
@@ -30,11 +30,11 @@ the beauty;
 
 the [[dreams]],
 
-the sun rose,
+the [[sun]] rose,
 
-the color pink,
+the color [[pink]],
 
-the new morn;
+the [[new]] morn;
 
 the distant past,
 
@@ -58,8 +58,8 @@ the leap and blast and rush,
 
 the unseen and upborne and ride.
 
-the strength and triumph and [[meeting]],
+the strength and [[triumph]] and [[meeting]],
 
-the [[story]] told by [[me]] to you the dear [[stranger]] —
+the [[story]] [[told]] by [[me]] to you the dear [[stranger]] —
 
-I [[found]] the hints that make her name: Sarah Carice Beaulieu.
+I [[found]] the hints that make her name: Sarah Carice [[Beaulieu]].

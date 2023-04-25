@@ -1,1 +1,1 @@
-Adding [[Fountain]] [[shall]] usher in a new [[age]], [[one]] of [[great]] artistic discovery. ([[Actually]], just more of the [[same]]. But damn does it look cool.)
+Adding [[Fountain]] [[shall]] usher in a [[new]] [[age]], [[one]] of [[great]] artistic discovery. ([[Actually]], just more of the [[same]]. But damn does it look cool.)

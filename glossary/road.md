@@ -1,0 +1,1 @@
+[[Change]] [[is]] scary. Yet it [[shall]] [[always]] come. [[The]] [[river]] flows, and [[all]] [[we]] can do [[is]] [[choose]] [[how]], or [[whether]], [[we]] stand [[in]] its [[current]].

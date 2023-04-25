@@ -1,0 +1,1 @@
+[[The]] [[sight]] [[of]] [[truth]] blinded [[me]] [[to]] [[the]] [[world]], and [[all]] for [[the]] [[better]].

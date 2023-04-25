@@ -1,0 +1,1 @@
+[[Panpsychism]] [[was]] [[my]] [[one]]-year fast track [[to]] [[being]] [[a]] [[Christian]]. [[I]] [[am]] somewhat [[of]] [[a]] selective omnist, [[as]] [[in]] [[I]] [[believe]] [[other]] religions [[also]] express [[truth]]. But [[I]] worship [[only]] [[Yahweh]], [[the]] incorporeal [[living]] [[God]].

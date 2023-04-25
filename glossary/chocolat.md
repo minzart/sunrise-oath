@@ -1,0 +1,1 @@
+They burst out [[laughing]] — the former with [[humor]], the latter with malice. 

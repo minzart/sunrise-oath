@@ -1,1 +1,1 @@
-The hex diagram [[represents]] the [[game]] object’s [[cost]], legal moves as a piece, and effect as an action. 
+The hex diagram [[represents]] the [[game]] object’s [[cost]], legal moves as a piece, and effect as [[an]] [[action]]. 

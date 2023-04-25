@@ -1,0 +1,1 @@
+[[No]] [[idol]] [[shall]] exceed [[the]] [[glory]] [[of]] [[the]] [[truth]], [[the]] [[one]] [[thing]] [[I]] [[never]] [[knew]] but [[saw]] [[was]] [[good]] soon [[as]] [[I]] opened [[my]] [[eyes]].

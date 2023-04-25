@@ -1,1 +1,1 @@
-This [[game]] is designed to be played for free or cheap, providing templates for [[players]] to [[use]] to create cards. They may [[also]] [[choose]] to create their own templates.
+This [[game]] is designed to be played for free or cheap, providing templates for [[players]] to [[use]] to create cards. They [[may]] [[also]] [[choose]] to create their own templates.

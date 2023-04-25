@@ -1,10 +1,10 @@
 [[Film]], [[dance]], and [[studying]].
-Their perfect [[lot]] in life.
+Their [[perfect]] [[lot]] in life.
   
 Gale  
 [[Ancra]]  
 David  
-Timothy  
+[[Timothy]]  
 Maximilian  
 Natalie  
 Tara  

@@ -1,0 +1,1 @@
+I present a story about dreams. This [[account]] is not a [[hypothetical]], a fiction in the lines and spaces. I assert this as fact, though the lawyer might [[complain]]: everything I say is true, or as good as true. 

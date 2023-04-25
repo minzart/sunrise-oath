@@ -1,0 +1,3 @@
+[[July]] [[2]], [[1999]]. [[Early]] [[on]] day ninety-[[three]] [[in]] [[Montreal]], [[I]] sat up and took [[off]] [[my]] headphones, listening [[to]] pattering [[on]] [[the]] window. A rumble tailed the heels of a flash. I ran to the switch, banished the dark with artificial fire, and squinted at dead moths in the [[ceiling]] lamp. Huddled in [[bed]] with Truman Capote’s Breakfast at Tiffany’s, I decided: if the storm was gone when I finished reading, I would go to the [[Old]] Port to see the sunrise. I knew not if hope was [[lost]], but it was better to be safe.
+
+[[Sometime]] later, I looked up from the [[last]] [[page]], and saw it was [[meant]] to be. 

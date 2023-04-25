@@ -2,7 +2,7 @@
 
 "After Aquinas."
 
-"[[Wrong]]. [[Doubting]] [[Thomas]]. The guy who stuck his finger in a [[hole]] on the [[Messiah]]'s [[body]]." 
+"[[Wrong]]. [[Doubting]] [[Thomas]]. The guy who [[stuck]] his finger in a [[hole]] on the [[Messiah]]'s [[body]]." 
 
   
 

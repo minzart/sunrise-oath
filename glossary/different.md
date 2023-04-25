@@ -1,0 +1,1 @@
+"[[Good]]" and "bad" / "[[right]]" and "[[wrong]]" are necessarily subjective [[as]] discussed by [[reason]], but [[in]] [[the]] context [[of]] [[faith]] it describes [[something]] [[objective]] and truly [[of]] [[the]] [[heart]].

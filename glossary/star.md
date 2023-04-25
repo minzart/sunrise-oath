@@ -1,0 +1,1 @@
+[[I]] [[also]] [[got]] up. “[[You]] [[know]] what [[I]] [[always]] [[thought]], but [[never]] [[said]]? [[Your]] [[name]] [[sounds]] [[like]] [[the]] [[Earth]].”  

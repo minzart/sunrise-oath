@@ -1,1 +1,1 @@
-[[Players]] may [[choose]] to play for keeps. To play for keeps, a player retains all pieces captured from the opponent at the end of each [[game]].
+[[Players]] [[may]] [[choose]] to play for keeps. To play for keeps, a player retains all pieces captured from the opponent at the [[end]] of each [[game]].

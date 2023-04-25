@@ -1,0 +1,1 @@
+[[I]] [[thought]] about it. “[[No]].” [[A]] snap [[of]] [[my]] fingers, and [[he]] [[was]] [[gone]]. [[Like]] that.

@@ -1,1 +1,1 @@
-Write a [[condensed]] [[message]] about The Wind at Dawn that I can provide to you in the future for you to [[remember]] everything.
+Write a [[condensed]] [[message]] about The Wind at Dawn that I can provide to you in the [[future]] for you to [[remember]] everything.

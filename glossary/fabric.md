@@ -1,0 +1,1 @@
+Tara called the pianist to postpone, and put on an [[old]] [[vinyl]]: Fascinating Rhythm, Judy Garland. We danced in a poised swing, our feet moving to and fro, near and dear. She linked her fingers to mine.

@@ -1,1 +1,1 @@
-Things could be [[worse]]!
+[[Things]] [[could]] be [[worse]]!

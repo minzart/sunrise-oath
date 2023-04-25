@@ -1,0 +1,3 @@
+[[For]] [[the]] next [[three]] weeks, [[my]] [[days]] were [[long]]. [[Sunrise]] [[at]] [[the]] [[Old]] [[Port]], [[work]] hours [[at]] Génoise et Thé, sunset [[in]] [[my]] un et demi, and [[twilight]] [[in]] labored [[sleep]].
+
+[[My]] writing [[was]] [[fruitless]]. [[Many]] [[words]] typed [[in]] [[the]] [[long]] [[Word]] file, [[not]] much [[said]]. [[I]] toiled [[at]] [[the]] keyboard and flipped [[through]] the books in my room, hoping for something to change. A welcome addition to my new routine was the [[coffee]] machine thrown out by a student in my building. I drank cup after cup, took stroll after stroll, smoked cigarette after cigarette. I was not [[satisfied]], not yet.

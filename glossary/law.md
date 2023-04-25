@@ -5,7 +5,7 @@
 
 #### [[Players]]
 
-*[[Magic]]: [[the]] Gathering* fans that [[like]] kitchen table sealed - [[draft]] - cube pack wars league.
+*[[Magic]]: [[the]] Gathering* fans that [[like]] kitchen [[table]] sealed - [[draft]] - cube pack wars league.
 
 #### Organizers
 
@@ -30,12 +30,12 @@ Discuss plans for lunch [[at]] noon.
 
 #### [[Rise]]
 
-And [[the]] [[wind]], [[the]] [[wind]] went out [[to]] meet [[with]] [[the]] sun . . .
+And [[the]] [[wind]], [[the]] [[wind]] went out [[to]] meet [[with]] [[the]] [[sun]] . . .
 . . . [[At]] [[the]] [[dawn]] when [[the]] [[night]] [[is]] [[done]].
 
 #### Noon
 
-Midpoint [[of]] day, sun [[time]].
+Midpoint [[of]] day, [[sun]] [[time]].
 
 #### Lunch
 
@@ -43,7 +43,7 @@ Midpoint [[of]] day, sun [[time]].
 
 #### [[Set]]
 
-Sessions must [[pause]] [[at]] [[night]] til [[rise]].
+[[Sessions]] [[must]] [[pause]] [[at]] [[night]] til [[rise]].
 
 #### [[Night]]
 
@@ -54,7 +54,7 @@ Sessions must [[pause]] [[at]] [[night]] til [[rise]].
 
 #### Location
 
-[[No]] [[session]] may follow [[at]] [[the]] [[same]] space [[from]] [[last]].
+[[No]] [[session]] [[may]] follow [[at]] [[the]] [[same]] space [[from]] [[last]].
 
 #### [[Chapter]]
 
@@ -73,7 +73,7 @@ Open [[to]] [[friends]] and [[family]].
 
 #### [[Oath]]
 
-[[I]] hereby swear [[to]] live, and watch [[the]] [[sunrise]].
+[[I]] hereby swear [[to]] live, and [[watch]] [[the]] [[sunrise]].
 
 #### Sign
 
@@ -83,7 +83,7 @@ Open [[to]] [[friends]] and [[family]].
 
 [[There]] [[is]] [[one]], [[in]] [[three]] parts.
 
-# How?
+# [[How]]?
 
 #### [[Rules]]
 
@@ -104,11 +104,11 @@ Richard Garfield’s [[card]] [[game]], [[created]] [[in]] 1993, ft. mages, scie
 
 #### [[Player]]
 
-[[No]] DCI [[number]] needed [[to]] join [[the]] event. Bring [[your]] own packs, or buy them [[from]] [[the]] organizers. When [[a]] [[pool]] reaches ten losses, it [[is]] removed [[from]] [[the]] league. Its contents are added [[to]] [[the]] [[draft]].
+[[No]] DCI [[number]] [[needed]] [[to]] join [[the]] event. Bring [[your]] own packs, or buy them [[from]] [[the]] organizers. When [[a]] [[pool]] reaches ten losses, it [[is]] removed [[from]] [[the]] league. Its contents are added [[to]] [[the]] [[draft]].
 
 ### [[Pool]] 
 
-[[Players]] build decks [[from]] cards opened or drafted. [[Players]] may trade cards [[at]] any [[time]]. [[A]] [[pool]] may retain thirty cards [[at]] [[the]] end [[of]] [[a]] [[session]]. 
+[[Players]] build decks [[from]] cards opened or drafted. [[Players]] [[may]] trade cards [[at]] any [[time]]. [[A]] [[pool]] [[may]] retain thirty cards [[at]] [[the]] [[end]] [[of]] [[a]] [[session]]. 
 
 ### [[Deck]] 
 
@@ -120,13 +120,13 @@ For each loss, [[a]] [[player]]'s opponent loses [[1]] [[life]] [[at]] [[the]] [
 
 ### [[Draft]]
 
-[[The]] [[draft]] [[is]] conducted [[at]] [[the]] [[start]] [[of]] [[an]] event. [[One]] [[card]] [[at]] [[a]] [[time]], [[from]] [[the]] [[pool]] [[with]] fewest losses [[to]] [[the]] [[pool]] [[with]] [[the]] most. Tiebreaker [[order]]: [[pool]] [[with]] more wins, [[player]] [[with]] lower lifetime losses, [[player]] [[with]] higher lifetime wins.
+[[The]] [[draft]] [[is]] conducted [[at]] [[the]] [[start]] [[of]] [[an]] event. [[One]] [[card]] [[at]] [[a]] [[time]], [[from]] [[the]] [[pool]] [[with]] fewest losses [[to]] [[the]] [[pool]] [[with]] [[the]] most. Tiebreaker [[order]]: [[pool]] [[with]] more wins, [[player]] [[with]] lower [[lifetime]] losses, [[player]] [[with]] higher [[lifetime]] wins.
 
-[[Players]] may vote [[to]] retire cards [[from]] [[the]] cube. [[If]] [[the]] [[draft]] has [[over]] [[three]] hundred and sixty cards ([[the]] [[number]] [[of]] cards [[in]] [[a]] cube), [[no]] cards may be added. 
+[[Players]] [[may]] [[vote]] [[to]] retire cards [[from]] [[the]] cube. [[If]] [[the]] [[draft]] has [[over]] [[three]] hundred and sixty cards ([[the]] [[number]] [[of]] cards [[in]] [[a]] cube), [[no]] cards [[may]] be added. 
 
-[[Players]] retain [[only]] up [[to]] thirty cards [[in]] their [[pool]] [[at]] [[the]] end [[of]] [[an]] event. [[The]] [[rest]] [[of]] [[the]] cards are [[placed]] [[in]] [[a]] [[draft]] for [[the]] next event. [[Players]] must sign [[in]] their pools.
+[[Players]] retain [[only]] up [[to]] thirty cards [[in]] their [[pool]] [[at]] [[the]] [[end]] [[of]] [[an]] event. [[The]] [[rest]] [[of]] [[the]] cards are [[placed]] [[in]] [[a]] [[draft]] for [[the]] next event. [[Players]] [[must]] sign [[in]] their pools.
 
-### Lifetime Win
+### [[Lifetime]] Win
 
 ### [[Session]]
 
@@ -140,7 +140,7 @@ Retired cards are kept aside and treated [[as]] cash.
 
 
 
-[[The]] league and [[all]] cards are collectively owned according [[to]] [[number]] [[of]] league [[games]] [[played]] (and thus by EV contribution). Governorship [[is]] conducted by majority vote among shareholders.
+[[The]] league and [[all]] cards are collectively owned [[according]] [[to]] [[number]] [[of]] league [[games]] [[played]] (and thus by EV contribution). Governorship [[is]] conducted by majority [[vote]] among shareholders.
 
 
 ### [[Magic]]

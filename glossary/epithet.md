@@ -1,6 +1,6 @@
 [[Ancra]] Atlas - the [[writer]]  
 [[Hortus]] Brisbois - the [[manager]]  
-Timothy Clement - the [[physicist]]  
+[[Timothy]] Clement - the [[physicist]]  
 [[Alain]] Tremblay - the [[owner]]  
 Tara Robles - the [[architect]]  
 Eroica [[Vici]] - the [[lawyer]]  
@@ -15,4 +15,4 @@ Maximilian Meyer - the politician
 Peter Rose - the professor  
 Natalie Lepore - the teacher  
 Alacrity Sharp - the student  
-Sarah Carice Beaulieu - the love of his [[dreams]]
+Sarah Carice [[Beaulieu]] - the love of his [[dreams]]

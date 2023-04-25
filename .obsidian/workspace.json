@@ -8,11 +8,16 @@
         "type": "tabs",
         "children": [
           {
-            "id": "dd8e25b6811aa83c",
+            "id": "87dd006d02790f1b",
             "type": "leaf",
             "state": {
-              "type": "empty",
-              "state": {}
+              "type": "markdown",
+              "state": {
+                "file": "journal/2023-04-25.md",
+                "mode": "source",
+                "backlinks": true,
+                "source": false
+              }
             }
           }
         ]
@@ -61,7 +66,8 @@
               "state": {}
             }
           }
-        ]
+        ],
+        "currentTab": 1
       }
     ],
     "direction": "horizontal",
@@ -81,13 +87,14 @@
             "state": {
               "type": "backlink",
               "state": {
+                "file": "journal/2023-04-25.md",
                 "collapseAll": true,
                 "extraContext": false,
                 "sortOrder": "alphabetical",
                 "showSearch": false,
                 "searchQuery": "",
                 "backlinkCollapsed": false,
-                "unlinkedCollapsed": true
+                "unlinkedCollapsed": false
               }
             }
           },
@@ -97,6 +104,7 @@
             "state": {
               "type": "outgoing-link",
               "state": {
+                "file": "journal/2023-04-25.md",
                 "linksCollapsed": true,
                 "unlinkedCollapsed": false
               }
@@ -118,7 +126,9 @@
             "type": "leaf",
             "state": {
               "type": "outline",
-              "state": {}
+              "state": {
+                "file": "journal/2023-04-25.md"
+              }
             }
           }
         ],
@@ -139,34 +149,34 @@
       "periodic-notes:Open today": false
     }
   },
-  "active": "dd8e25b6811aa83c",
+  "active": "87dd006d02790f1b",
   "lastOpenFiles": [
-    "glossary/remember.md",
-    "glossary/inbox.md",
-    "glossary/return.md",
-    "glossary/redeemed.md",
-    "glossary/privileged.md",
-    "glossary/efficient.md",
-    "glossary/immoral.md",
-    "glossary/incorporate.md",
-    "glossary/native.md",
-    "glossary/corrupted.md",
-    "glossary/twinkle.md",
-    "glossary/truth.md",
-    "glossary/our.md",
-    "glossary/solution.md",
-    "glossary/pain.md",
-    "glossary/crick.md",
-    "glossary/perception.md",
-    "glossary/dysmorphia.md",
-    "glossary/physiological.md",
-    "glossary/myriad.md",
-    "glossary/psychological.md",
-    "glossary/psychosomatic.md",
-    "glossary/physics.md",
-    "glossary/cause.md",
-    "glossary/medicine.md",
-    "glossary/pertinent.md",
+    "thing.md",
+    "journal/2023-04-25.md",
+    "been.md",
+    "embrace.md",
+    "cuckold.md",
+    "apartment.md",
+    "and.md",
+    "late.md",
+    "round.md",
+    "fireworks.md",
+    "glossary/hollered.md",
+    "rouge.md",
+    "glossary/hazel.md",
+    "glossary/glance.md",
+    "glossary/beamed.md",
+    "glossary/page.md",
+    "glossary/banner.md",
+    "glossary/hub.md",
+    "glossary/this.md",
+    "glossary/continued.md",
+    "glossary/spurred.md",
+    "glossary/disappointment.md",
+    "glossary/felt.md",
+    "glossary/do.md",
+    "glossary/exhale.md",
+    "glossary/examining.md",
     "journal/Untitled",
     "archive/hex_template_200_10.png",
     "archive/Pasted image 20230321140121.png",

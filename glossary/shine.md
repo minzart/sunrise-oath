@@ -1,0 +1,1 @@
+[[I]] opened my eyes and found the [[Old]] Port draped in fog. Was I asleep? No, it was indeed humid. My body temperature [[surged]] when on my lap I saw a [[hazel]]-eyed brunette in a pale blue dress.

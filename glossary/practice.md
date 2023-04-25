@@ -17,7 +17,7 @@ HERA
 Not yet. I [[have]] yet to complete [[my]] day’s work.
 
 HERA
-The [[time]] for that [[shall]] come. For now, [[have]] you remembered your sunrise oath?
+The [[time]] for that [[shall]] come. For [[now]], [[have]] you remembered your sunrise oath?
 
 [[ME]]
 No.

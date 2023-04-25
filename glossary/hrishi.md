@@ -1,1 +1,1 @@
-I see him [[only]] when his path and mine intersect through [[Mitchell]]. A friend ought to be sought [[without]] reservation. 
+I see him [[only]] when his [[path]] and mine intersect [[through]] [[Mitchell]]. A friend ought to be sought [[without]] reservation. 

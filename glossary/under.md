@@ -1,1 +1,1 @@
-[[Corrin]] carries with him a cloth that he folds into a hat to [[comfort]] himself.  
+[[Corrin]] carries with him a cloth that he folds [[into]] a hat to [[comfort]] himself.  

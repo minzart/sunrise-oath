@@ -1,1 +1,1 @@
-I find it cool how a [[self]]-referential machine in a deterministic [[universe]] is meant to think about itself at any particular moment where it does. Like right now I'm thinking about myself thinking about myself thinking about myself, and this was predestined.
+I find it cool [[how]] a [[self]]-referential machine in a deterministic [[universe]] is meant to think about itself at any particular moment where it does. Like right [[now]] I'm thinking about myself thinking about myself thinking about myself, and this was predestined.

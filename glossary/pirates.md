@@ -1,1 +1,1 @@
-A [[feline]] [[soldier]] opposes [[them]], trying to capture the criminals and their ascetic ally. His [[skill]] [[with]] the bola [[forces]] [[them]] to stay on the run.
+A [[feline]] [[soldier]] opposes [[them]], trying to capture the criminals and their ascetic ally. His [[skill]] [[with]] the bola [[forces]] [[them]] to [[stay]] on the run.

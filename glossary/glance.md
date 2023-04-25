@@ -1,0 +1,1 @@
+[[The]] music stopped, and [[the]] [[love]] [[of]] my dreams [[brought]] her [[face]] to mine, to plant a kiss or say a sweet nothing. Her lips chose neither as she stepped back and [[beamed]] a smile that said [[everything]].

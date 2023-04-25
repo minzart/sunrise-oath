@@ -1,1 +1,1 @@
-[[Playing]] a [[card]] as a [[summon]] [[costs]] the [[same]] as [[playing]] a [[card]] as an [[action]].
+[[Playing]] a [[card]] as a [[summon]] [[costs]] the [[same]] as [[playing]] a [[card]] as [[an]] [[action]].

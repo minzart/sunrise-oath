@@ -1,1 +1,1 @@
-[[Everything]] [[I]] [[know]] and [[love]]. What [[is]] real? What [[is]] [[false]]? Can [[something]] be both?
+[[Everything]] [[I]] [[know]] and [[love]]. What [[is]] [[real]]? What [[is]] [[false]]? Can [[something]] be both?

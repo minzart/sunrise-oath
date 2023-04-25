@@ -1,0 +1,1 @@
+The afterimage of a [[writer]]’s dream. She [[never]] was, yet always [[shall]]. The love he had for her was [[perfect]].

@@ -7,4 +7,4 @@ Gale and Charlotte / Aphrodite
 (Selene goes to [[Waterloo]] [[with]] [[Hortus]] as his [[mentor]].)  
   
 David and Tara / [[Athena]]  
-(Tara tries to become a [[good]] person through the Hawthorn way, as per David.)
+(Tara tries to become a [[good]] person [[through]] the Hawthorn way, as per David.)

@@ -1,0 +1,1 @@
+“[[A]] [[matter]] [[of]] [[practice]]. It happens [[on]] its own when [[you]] [[set]] [[your]] [[mind]] [[to]] it. Sylvie was an anglophone, one of those American McGill students. Believe it or not, I knew only a lick of English before we dated, and . . .” A palm slapped his forehead, and he [[changed]] to French. « Practice, so that a certain someone may soon be [[conquered]]. »

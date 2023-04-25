@@ -1,0 +1,1 @@
+She [[told]] me her life story, her role as the firstborn of a German father and a Chinese mother, strict parents who [[groomed]] her for the family business.

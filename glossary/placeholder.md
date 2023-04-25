@@ -1,0 +1,1 @@
+“[[I]] [[love]] it.” [[She]] drew her [[slender]] arms [[around]] [[my]] neck, drowning [[me]] [[with]] her [[scent]]. “Say [[my]] [[name]], [[Gale]] [[Jones]].”

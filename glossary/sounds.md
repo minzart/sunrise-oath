@@ -1,0 +1,1 @@
+Her tap [[on]] [[my]] [[shoulder]] [[was]] [[gentle]], too [[gentle]]. 

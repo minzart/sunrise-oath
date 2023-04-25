@@ -2,7 +2,7 @@
 
 "Look." He shows you a tattoo. "Do you recognize this?"
 
-"Yes,” I say, horror in [[my]] voice, "but I dare not say it myself. It could not be."
+"Yes,” I say, horror in [[my]] voice, "but I dare not say it myself. It [[could]] not be."
 
 "A Priest of Struggle,” he says like it [[is]] nothing. "A former leader of the [[Church]] of [[Pain]] and [[Truth]]."
 

@@ -1,0 +1,1 @@
+[[A]] [[chapter]] should be [[only]] about [[the]] length [[of]] [[a]] standard [[long]]-[[form]] [[article]], [[divided]] [[into]] easy-[[to]]-skim-or-skip chunks.

@@ -1,1 +1,1 @@
-[[A]] [[bird]] [[is]] [[outside]] [[the]] [[window]], [[alive]] [[as]] [[I]] [[am]] for the [[time]] that I may occupy the flesh that TIM has afforded [[me]].
+[[A]] [[bird]] [[is]] [[outside]] [[the]] [[window]], [[alive]] [[as]] [[I]] [[am]] for the [[time]] that I [[may]] occupy the flesh that TIM has afforded [[me]].

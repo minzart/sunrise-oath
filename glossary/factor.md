@@ -1,1 +1,1 @@
-[[Even]] [[if]] you planned out the perfect strategy with your perfect [[game]] [[insight]], missing a crucial [[headshot]] or screwing up a grenade can often just make you lose.
+[[Even]] [[if]] you planned out the [[perfect]] strategy with your [[perfect]] [[game]] [[insight]], missing a crucial [[headshot]] or screwing up a grenade can often just make you lose.

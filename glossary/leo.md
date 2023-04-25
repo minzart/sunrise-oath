@@ -1,3 +1,6 @@
+[[2023-04-24]]
+It took me many years.
+
 [[2023-04-21]]
 The toll of twenty-six has reached my ear.
 

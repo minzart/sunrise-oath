@@ -1,2 +1,2 @@
 
-Window into [[human]] industry.
+Window [[into]] [[human]] industry.

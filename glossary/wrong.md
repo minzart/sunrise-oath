@@ -1,1 +1,1 @@
-Maximilian supported Eroica and [[loved]] her, but could not [[choose]] between his wife and his father. He [[left]] and hoped [[they]] would [[choose]] each [[other]]. [[They]] did, but at the end of Martin's life, when [[there]] was no [[time]] for amends.  
+Maximilian supported Eroica and [[loved]] her, but [[could]] not [[choose]] [[between]] his wife and his father. He [[left]] and hoped [[they]] would [[choose]] each [[other]]. [[They]] did, but at the [[end]] of Martin's life, when [[there]] was no [[time]] for amends.  

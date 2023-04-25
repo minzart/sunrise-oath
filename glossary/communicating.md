@@ -1,1 +1,1 @@
-I think of this as all some sort of [[self]]-referential [[word]] [[game]], where I [[keep]] coming across things I wrote before and can edit them to fine-tune what I mean or what I [[have]] to say. 
+I think of this as all some sort of [[self]]-referential [[word]] [[game]], where I [[keep]] coming across [[things]] I wrote before and can edit them to fine-tune what I mean or what I [[have]] to say. 

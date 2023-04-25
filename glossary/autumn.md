@@ -1,0 +1,1 @@
+“[[I]] [[wonder]] what [[the]] [[future]] brings,” [[I]] [[said]], [[forlorn]].
