@@ -16,116 +16,6 @@
     "pageCountType": "ByWords"
   },
   "cachedCounts": {
-    "thing.md": {
-      "isDirectory": false,
-      "noteCount": 1,
-      "wordCount": 0,
-      "pageCount": 0,
-      "characterCount": 0,
-      "nonWhitespaceCharacterCount": 0,
-      "createdDate": 1682454199268,
-      "modifiedDate": 1682454199268,
-      "sizeInBytes": 0
-    },
-    "been.md": {
-      "isDirectory": false,
-      "noteCount": 1,
-      "wordCount": 56,
-      "pageCount": 0.18666666666666668,
-      "characterCount": 354,
-      "nonWhitespaceCharacterCount": 299,
-      "createdDate": 1682454137436,
-      "modifiedDate": 1682454186684,
-      "sizeInBytes": 356
-    },
-    "embrace.md": {
-      "isDirectory": false,
-      "noteCount": 1,
-      "wordCount": 125,
-      "pageCount": 0.4166666666666667,
-      "characterCount": 694,
-      "nonWhitespaceCharacterCount": 570,
-      "createdDate": 1682454114336,
-      "modifiedDate": 1682454129388,
-      "sizeInBytes": 702
-    },
-    "cuckold.md": {
-      "isDirectory": false,
-      "noteCount": 1,
-      "wordCount": 52,
-      "pageCount": 0.17333333333333334,
-      "characterCount": 337,
-      "nonWhitespaceCharacterCount": 286,
-      "createdDate": 1682454085893,
-      "modifiedDate": 1682454105515,
-      "sizeInBytes": 339
-    },
-    "apartment.md": {
-      "isDirectory": false,
-      "noteCount": 1,
-      "wordCount": 63,
-      "pageCount": 0.21,
-      "characterCount": 373,
-      "nonWhitespaceCharacterCount": 310,
-      "createdDate": 1682454066712,
-      "modifiedDate": 1682454076596,
-      "sizeInBytes": 374
-    },
-    "and.md": {
-      "isDirectory": false,
-      "noteCount": 1,
-      "wordCount": 51,
-      "pageCount": 0.17,
-      "characterCount": 370,
-      "nonWhitespaceCharacterCount": 320,
-      "createdDate": 1682453952489,
-      "modifiedDate": 1682454014228,
-      "sizeInBytes": 374
-    },
-    "late.md": {
-      "isDirectory": false,
-      "noteCount": 1,
-      "wordCount": 65,
-      "pageCount": 0.21666666666666667,
-      "characterCount": 518,
-      "nonWhitespaceCharacterCount": 453,
-      "createdDate": 1682453864986,
-      "modifiedDate": 1682453931534,
-      "sizeInBytes": 523
-    },
-    "round.md": {
-      "isDirectory": false,
-      "noteCount": 1,
-      "wordCount": 31,
-      "pageCount": 0.10333333333333333,
-      "characterCount": 264,
-      "nonWhitespaceCharacterCount": 233,
-      "createdDate": 1682453832876,
-      "modifiedDate": 1682453853369,
-      "sizeInBytes": 265
-    },
-    "fireworks.md": {
-      "isDirectory": false,
-      "noteCount": 1,
-      "wordCount": 117,
-      "pageCount": 0.39,
-      "characterCount": 932,
-      "nonWhitespaceCharacterCount": 816,
-      "createdDate": 1682453712215,
-      "modifiedDate": 1682453810816,
-      "sizeInBytes": 942
-    },
-    "rouge.md": {
-      "isDirectory": false,
-      "noteCount": 1,
-      "wordCount": 14,
-      "pageCount": 0.04666666666666667,
-      "characterCount": 108,
-      "nonWhitespaceCharacterCount": 95,
-      "createdDate": 1682453636547,
-      "modifiedDate": 1682453697252,
-      "sizeInBytes": 108
-    },
     "map/704,0.md": {
       "isDirectory": false,
       "noteCount": 1,
@@ -219,11 +109,11 @@
       "noteCount": 1,
       "wordCount": 43,
       "pageCount": 0.14333333333333334,
-      "characterCount": 269,
-      "nonWhitespaceCharacterCount": 224,
+      "characterCount": 273,
+      "nonWhitespaceCharacterCount": 228,
       "createdDate": 1680795667737,
-      "modifiedDate": 1682449444467,
-      "sizeInBytes": 269
+      "modifiedDate": 1682454204934,
+      "sizeInBytes": 273
     },
     "map/2,0.md": {
       "isDirectory": false,
@@ -417,11 +307,11 @@
       "noteCount": 1,
       "wordCount": 363,
       "pageCount": 1.21,
-      "characterCount": 2152,
-      "nonWhitespaceCharacterCount": 1783,
+      "characterCount": 2156,
+      "nonWhitespaceCharacterCount": 1787,
       "createdDate": 1681590235650,
-      "modifiedDate": 1682453259221,
-      "sizeInBytes": 2160
+      "modifiedDate": 1682454203720,
+      "sizeInBytes": 2164
     },
     "journal/2023-04-13.md": {
       "isDirectory": false,
@@ -769,11 +659,11 @@
       "noteCount": 1,
       "wordCount": 334,
       "pageCount": 1.1133333333333333,
-      "characterCount": 2163,
-      "nonWhitespaceCharacterCount": 1815,
+      "characterCount": 2167,
+      "nonWhitespaceCharacterCount": 1819,
       "createdDate": 1677422328417,
-      "modifiedDate": 1682452850416,
-      "sizeInBytes": 2259
+      "modifiedDate": 1682454202918,
+      "sizeInBytes": 2263
     },
     "journal/2023-02-22.md": {
       "isDirectory": false,
@@ -972,6 +862,116 @@
       "createdDate": 1679887226096,
       "modifiedDate": 1682453410810,
       "sizeInBytes": 205
+    },
+    "glossary/late.md": {
+      "isDirectory": false,
+      "noteCount": 1,
+      "wordCount": 65,
+      "pageCount": 0.21666666666666667,
+      "characterCount": 518,
+      "nonWhitespaceCharacterCount": 453,
+      "createdDate": 1682453864986,
+      "modifiedDate": 1682453931534,
+      "sizeInBytes": 523
+    },
+    "glossary/rouge.md": {
+      "isDirectory": false,
+      "noteCount": 1,
+      "wordCount": 14,
+      "pageCount": 0.04666666666666667,
+      "characterCount": 108,
+      "nonWhitespaceCharacterCount": 95,
+      "createdDate": 1682453636547,
+      "modifiedDate": 1682453697252,
+      "sizeInBytes": 108
+    },
+    "glossary/round.md": {
+      "isDirectory": false,
+      "noteCount": 1,
+      "wordCount": 31,
+      "pageCount": 0.10333333333333333,
+      "characterCount": 264,
+      "nonWhitespaceCharacterCount": 233,
+      "createdDate": 1682453832876,
+      "modifiedDate": 1682453853369,
+      "sizeInBytes": 265
+    },
+    "glossary/thing.md": {
+      "isDirectory": false,
+      "noteCount": 1,
+      "wordCount": 56,
+      "pageCount": 0.18666666666666668,
+      "characterCount": 460,
+      "nonWhitespaceCharacterCount": 405,
+      "createdDate": 1682454199268,
+      "modifiedDate": 1682454259700,
+      "sizeInBytes": 460
+    },
+    "glossary/fireworks.md": {
+      "isDirectory": false,
+      "noteCount": 1,
+      "wordCount": 117,
+      "pageCount": 0.39,
+      "characterCount": 932,
+      "nonWhitespaceCharacterCount": 816,
+      "createdDate": 1682453712215,
+      "modifiedDate": 1682453810816,
+      "sizeInBytes": 942
+    },
+    "glossary/embrace.md": {
+      "isDirectory": false,
+      "noteCount": 1,
+      "wordCount": 125,
+      "pageCount": 0.4166666666666667,
+      "characterCount": 694,
+      "nonWhitespaceCharacterCount": 570,
+      "createdDate": 1682454114336,
+      "modifiedDate": 1682454129388,
+      "sizeInBytes": 702
+    },
+    "glossary/cuckold.md": {
+      "isDirectory": false,
+      "noteCount": 1,
+      "wordCount": 52,
+      "pageCount": 0.17333333333333334,
+      "characterCount": 337,
+      "nonWhitespaceCharacterCount": 286,
+      "createdDate": 1682454085893,
+      "modifiedDate": 1682454105515,
+      "sizeInBytes": 339
+    },
+    "glossary/been.md": {
+      "isDirectory": false,
+      "noteCount": 1,
+      "wordCount": 56,
+      "pageCount": 0.18666666666666668,
+      "characterCount": 354,
+      "nonWhitespaceCharacterCount": 299,
+      "createdDate": 1682454137436,
+      "modifiedDate": 1682454186684,
+      "sizeInBytes": 356
+    },
+    "glossary/apartment.md": {
+      "isDirectory": false,
+      "noteCount": 1,
+      "wordCount": 63,
+      "pageCount": 0.21,
+      "characterCount": 373,
+      "nonWhitespaceCharacterCount": 310,
+      "createdDate": 1682454066712,
+      "modifiedDate": 1682454076596,
+      "sizeInBytes": 374
+    },
+    "glossary/and.md": {
+      "isDirectory": false,
+      "noteCount": 1,
+      "wordCount": 51,
+      "pageCount": 0.17,
+      "characterCount": 370,
+      "nonWhitespaceCharacterCount": 320,
+      "createdDate": 1682453952489,
+      "modifiedDate": 1682454014228,
+      "sizeInBytes": 374
     },
     "glossary/hazel.md": {
       "isDirectory": false,
@@ -1550,11 +1550,11 @@
       "noteCount": 1,
       "wordCount": 25,
       "pageCount": 0.08333333333333333,
-      "characterCount": 194,
-      "nonWhitespaceCharacterCount": 170,
+      "characterCount": 198,
+      "nonWhitespaceCharacterCount": 174,
       "createdDate": 1682451725333,
-      "modifiedDate": 1682451814622,
-      "sizeInBytes": 194
+      "modifiedDate": 1682454235599,
+      "sizeInBytes": 198
     },
     "glossary/subtle.md": {
       "isDirectory": false,
@@ -2562,11 +2562,11 @@
       "noteCount": 1,
       "wordCount": 62,
       "pageCount": 0.20666666666666667,
-      "characterCount": 479,
-      "nonWhitespaceCharacterCount": 417,
+      "characterCount": 483,
+      "nonWhitespaceCharacterCount": 421,
       "createdDate": 1682448250944,
-      "modifiedDate": 1682452829077,
-      "sizeInBytes": 485
+      "modifiedDate": 1682454250596,
+      "sizeInBytes": 489
     },
     "glossary/backward.md": {
       "isDirectory": false,
@@ -2716,11 +2716,11 @@
       "noteCount": 1,
       "wordCount": 120,
       "pageCount": 0.4,
-      "characterCount": 647,
-      "nonWhitespaceCharacterCount": 526,
+      "characterCount": 651,
+      "nonWhitespaceCharacterCount": 530,
       "createdDate": 1682447469278,
-      "modifiedDate": 1682451634856,
-      "sizeInBytes": 669
+      "modifiedDate": 1682454237033,
+      "sizeInBytes": 673
     },
     "glossary/figured.md": {
       "isDirectory": false,
@@ -2903,11 +2903,11 @@
       "noteCount": 1,
       "wordCount": 71,
       "pageCount": 0.23666666666666666,
-      "characterCount": 553,
-      "nonWhitespaceCharacterCount": 481,
+      "characterCount": 557,
+      "nonWhitespaceCharacterCount": 485,
       "createdDate": 1682446762303,
-      "modifiedDate": 1682450527264,
-      "sizeInBytes": 578
+      "modifiedDate": 1682454223154,
+      "sizeInBytes": 582
     },
     "glossary/évian.md": {
       "isDirectory": false,
@@ -4157,11 +4157,11 @@
       "noteCount": 1,
       "wordCount": 8,
       "pageCount": 0.02666666666666667,
-      "characterCount": 59,
-      "nonWhitespaceCharacterCount": 51,
+      "characterCount": 63,
+      "nonWhitespaceCharacterCount": 55,
       "createdDate": 1682436866150,
-      "modifiedDate": 1682436866649,
-      "sizeInBytes": 59
+      "modifiedDate": 1682454211671,
+      "sizeInBytes": 63
     },
     "glossary/different.md": {
       "isDirectory": false,
@@ -5576,11 +5576,11 @@
       "noteCount": 1,
       "wordCount": 289,
       "pageCount": 0.9633333333333334,
-      "characterCount": 1913,
-      "nonWhitespaceCharacterCount": 1580,
+      "characterCount": 1917,
+      "nonWhitespaceCharacterCount": 1584,
       "createdDate": 1679929667148,
-      "modifiedDate": 1682452572202,
-      "sizeInBytes": 1915
+      "modifiedDate": 1682454255633,
+      "sizeInBytes": 1919
     },
     "glossary/tree.md": {
       "isDirectory": false,
@@ -6225,11 +6225,11 @@
       "noteCount": 1,
       "wordCount": 1682,
       "pageCount": 5.6066666666666665,
-      "characterCount": 11060,
-      "nonWhitespaceCharacterCount": 9316,
+      "characterCount": 11064,
+      "nonWhitespaceCharacterCount": 9320,
       "createdDate": 1681402720360,
-      "modifiedDate": 1682454119409,
-      "sizeInBytes": 11097
+      "modifiedDate": 1682454252488,
+      "sizeInBytes": 11101
     },
     "glossary/successfully.md": {
       "isDirectory": false,
@@ -6896,11 +6896,11 @@
       "noteCount": 1,
       "wordCount": 20,
       "pageCount": 0.06666666666666667,
-      "characterCount": 134,
-      "nonWhitespaceCharacterCount": 115,
+      "characterCount": 138,
+      "nonWhitespaceCharacterCount": 119,
       "createdDate": 1682274395543,
-      "modifiedDate": 1682438350175,
-      "sizeInBytes": 134
+      "modifiedDate": 1682454251490,
+      "sizeInBytes": 138
     },
     "glossary/sight.md": {
       "isDirectory": false,
@@ -10471,11 +10471,11 @@
       "noteCount": 1,
       "wordCount": 625,
       "pageCount": 2.0833333333333335,
-      "characterCount": 4135,
-      "nonWhitespaceCharacterCount": 3494,
+      "characterCount": 4143,
+      "nonWhitespaceCharacterCount": 3502,
       "createdDate": 1679928372727,
-      "modifiedDate": 1682453884428,
-      "sizeInBytes": 4135
+      "modifiedDate": 1682454234854,
+      "sizeInBytes": 4143
     },
     "glossary/mage.md": {
       "isDirectory": false,
@@ -11285,11 +11285,11 @@
       "noteCount": 1,
       "wordCount": 11,
       "pageCount": 0.03666666666666667,
-      "characterCount": 51,
-      "nonWhitespaceCharacterCount": 41,
+      "characterCount": 59,
+      "nonWhitespaceCharacterCount": 49,
       "createdDate": 1679421397652,
-      "modifiedDate": 1679421423968,
-      "sizeInBytes": 51
+      "modifiedDate": 1682454233003,
+      "sizeInBytes": 59
     },
     "glossary/israel.md": {
       "isDirectory": false,
@@ -11714,11 +11714,11 @@
       "noteCount": 1,
       "wordCount": 22,
       "pageCount": 0.07333333333333333,
-      "characterCount": 172,
-      "nonWhitespaceCharacterCount": 151,
+      "characterCount": 176,
+      "nonWhitespaceCharacterCount": 155,
       "createdDate": 1682342719750,
-      "modifiedDate": 1682445635447,
-      "sizeInBytes": 180
+      "modifiedDate": 1682454228986,
+      "sizeInBytes": 184
     },
     "glossary/house.md": {
       "isDirectory": false,
@@ -11747,22 +11747,22 @@
       "noteCount": 1,
       "wordCount": 859,
       "pageCount": 2.8633333333333333,
-      "characterCount": 4974,
-      "nonWhitespaceCharacterCount": 4073,
+      "characterCount": 4978,
+      "nonWhitespaceCharacterCount": 4077,
       "createdDate": 1679420639172,
-      "modifiedDate": 1682453515525,
-      "sizeInBytes": 5126
+      "modifiedDate": 1682454226486,
+      "sizeInBytes": 5130
     },
     "glossary/hospice.md": {
       "isDirectory": false,
       "noteCount": 1,
       "wordCount": 614,
       "pageCount": 2.046666666666667,
-      "characterCount": 3764,
-      "nonWhitespaceCharacterCount": 3149,
+      "characterCount": 3768,
+      "nonWhitespaceCharacterCount": 3153,
       "createdDate": 1680281896221,
-      "modifiedDate": 1682452889348,
-      "sizeInBytes": 3764
+      "modifiedDate": 1682454224787,
+      "sizeInBytes": 3768
     },
     "glossary/hortus.md": {
       "isDirectory": false,
@@ -14464,11 +14464,11 @@
       "noteCount": 1,
       "wordCount": 23,
       "pageCount": 0.07666666666666666,
-      "characterCount": 131,
-      "nonWhitespaceCharacterCount": 109,
+      "characterCount": 135,
+      "nonWhitespaceCharacterCount": 113,
       "createdDate": 1679929894690,
-      "modifiedDate": 1682450931029,
-      "sizeInBytes": 131
+      "modifiedDate": 1682454221565,
+      "sizeInBytes": 135
     },
     "glossary/curator.md": {
       "isDirectory": false,
@@ -14772,11 +14772,11 @@
       "noteCount": 1,
       "wordCount": 599,
       "pageCount": 1.9966666666666666,
-      "characterCount": 3477,
-      "nonWhitespaceCharacterCount": 2870,
+      "characterCount": 3481,
+      "nonWhitespaceCharacterCount": 2874,
       "createdDate": 1679463006010,
-      "modifiedDate": 1682452936946,
-      "sizeInBytes": 3487
+      "modifiedDate": 1682454219268,
+      "sizeInBytes": 3491
     },
     "glossary/condensed.md": {
       "isDirectory": false,
@@ -15498,11 +15498,11 @@
       "noteCount": 1,
       "wordCount": 765,
       "pageCount": 2.55,
-      "characterCount": 4944,
-      "nonWhitespaceCharacterCount": 4010,
+      "characterCount": 4948,
+      "nonWhitespaceCharacterCount": 4014,
       "createdDate": 1679928213798,
-      "modifiedDate": 1682454148588,
-      "sizeInBytes": 5164
+      "modifiedDate": 1682454216399,
+      "sizeInBytes": 5168
     },
     "glossary/calypso.md": {
       "isDirectory": false,
@@ -16455,11 +16455,11 @@
       "noteCount": 1,
       "wordCount": 314,
       "pageCount": 1.0466666666666666,
-      "characterCount": 2104,
-      "nonWhitespaceCharacterCount": 1718,
+      "characterCount": 2112,
+      "nonWhitespaceCharacterCount": 1726,
       "createdDate": 1679426568300,
-      "modifiedDate": 1682452451409,
-      "sizeInBytes": 2105
+      "modifiedDate": 1682454217213,
+      "sizeInBytes": 2113
     },
     "glossary/anyone.md": {
       "isDirectory": false,
@@ -16884,11 +16884,11 @@
       "noteCount": 1,
       "wordCount": 863,
       "pageCount": 2.8766666666666665,
-      "characterCount": 5350,
-      "nonWhitespaceCharacterCount": 4441,
+      "characterCount": 5354,
+      "nonWhitespaceCharacterCount": 4445,
       "createdDate": 1679420639159,
-      "modifiedDate": 1682453054036,
-      "sizeInBytes": 5350
+      "modifiedDate": 1682454209559,
+      "sizeInBytes": 5354
     },
     "glossary/adult.md": {
       "isDirectory": false,
@@ -16994,11 +16994,11 @@
       "noteCount": 1,
       "wordCount": 68,
       "pageCount": 0.22666666666666666,
-      "characterCount": 409,
-      "nonWhitespaceCharacterCount": 342,
+      "characterCount": 413,
+      "nonWhitespaceCharacterCount": 346,
       "createdDate": 1682279393509,
-      "modifiedDate": 1682448358922,
-      "sizeInBytes": 409
+      "modifiedDate": 1682454205630,
+      "sizeInBytes": 413
     },
     "glossary/abraham.md": {
       "isDirectory": false,
@@ -17225,11 +17225,11 @@
       "noteCount": 1,
       "wordCount": 80,
       "pageCount": 0.26666666666666666,
-      "characterCount": 556,
-      "nonWhitespaceCharacterCount": 473,
+      "characterCount": 560,
+      "nonWhitespaceCharacterCount": 477,
       "createdDate": 1679675513799,
-      "modifiedDate": 1682454139921,
-      "sizeInBytes": 556
+      "modifiedDate": 1682454201856,
+      "sizeInBytes": 560
     },
     "deck/3d.md": {
       "isDirectory": false,

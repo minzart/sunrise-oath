@@ -66,8 +66,7 @@
               "state": {}
             }
           }
-        ],
-        "currentTab": 1
+        ]
       }
     ],
     "direction": "horizontal",
@@ -149,20 +148,20 @@
       "periodic-notes:Open today": false
     }
   },
-  "active": "87dd006d02790f1b",
+  "active": "63e5950b4619ae58",
   "lastOpenFiles": [
-    "thing.md",
+    "glossary/thing.md",
     "journal/2023-04-25.md",
-    "been.md",
-    "embrace.md",
-    "cuckold.md",
-    "apartment.md",
-    "and.md",
-    "late.md",
-    "round.md",
-    "fireworks.md",
+    "glossary/been.md",
+    "glossary/embrace.md",
+    "glossary/cuckold.md",
+    "glossary/apartment.md",
+    "glossary/and.md",
+    "glossary/late.md",
+    "glossary/round.md",
+    "glossary/fireworks.md",
     "glossary/hollered.md",
-    "rouge.md",
+    "glossary/rouge.md",
     "glossary/hazel.md",
     "glossary/glance.md",
     "glossary/beamed.md",

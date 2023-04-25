@@ -1,0 +1,1 @@
+[[How]] [[the]] [[flesh]] cries out! [[How]] [[the]] [[eyes]] deceive! Yet what [[knowledge]] [[I]] receive.
