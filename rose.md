@@ -1,0 +1,1 @@
+“[[Let]] [[me]] [[watch]] [[you]] [[work]] [[at]] Génoise et Thé,” [[she]] [[said]] [[one]] day, [[lying]] [[on]] [[the]] [[bench]] [[with]] her [[head]] [[in]] [[my]] lap.

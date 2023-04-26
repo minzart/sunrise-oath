@@ -9,7 +9,7 @@ God is the [[Trinity]].
   
 Atlas ^ Cui = Meyer ^ [[Vici]] -> Médée  
 Hawthorn ^ Robles = Clement ^ Shanks -> Jason  
-Rose ^ Taylor = [[Jones]] ^ Charpentier -> Nemo  
+[[Rose]] ^ Taylor = [[Jones]] ^ Charpentier -> Nemo  
   
   
 Dupont ^ Gagnon = Taylor ^ Shanks -> Riley  

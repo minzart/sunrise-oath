@@ -44,7 +44,7 @@ And the [[sea]] streamed red from the kiss of his brow . . .
 
 . . . [[There]] was [[glory]] and [[light]] enow.
 
-Gale's search for Dawn puts [[off]] [[Alain]], but earns the sympathy of [[Hortus]]. Selene is angry at Gale's treatment of Charlotte, and reveals she is a [[witch]]. She curses him to be bound to his greatest lie, though he knows not yet what it is.
+Gale's search for Dawn puts [[off]] [[Alain]], but earns the sympathy of [[Hortus]]. Selene is angry at Gale's treatment of Charlotte, and reveals she is a [[witch]]. She curses him to be [[bound]] to his greatest lie, though he knows not yet what it is.
 
 CHAPTER SEVEN
 

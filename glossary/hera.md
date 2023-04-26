@@ -11,16 +11,16 @@ He [[became]] associated [[with]] Gale [[Jones]] by Selene's intervention and Ca
 
 
   
-That [[night]], I kept [[Louise]] up til morning.  
+That [[night]], I kept [[Louise]] up til [[morning]].  
   
-Catherine and I [[saw]] each [[other]] for lunch every day. She came over and cooked for [[me]] and [[Louise]]. The [[first]] [[time]] [[Louise]] canceled, Catherine called [[me]] and asked: "Should [[we]] cancel?"  
+Catherine and I [[saw]] each [[other]] for lunch every day. She came over and cooked for [[me]] and [[Louise]]. The [[first]] [[time]] [[Louise]] canceled, Catherine [[called]] [[me]] and asked: "Should [[we]] cancel?"  
 I [[thought]] about it. "No."  
 From then on, she and I met [[alone]] every so often. [[We]] [[even]] went camping together.  
 Soon, I talked to Catherine more than [[we]] did [[with]] [[Louise]]. The beauty of her [[duty]] filled my [[heart]].  
   
 Catherine's [[heart]] in Gale's hands  
   
-"[[If]] you called her just once, she would've stayed. [[If]] you spoke to her on the phone just once when I called you, she would've waited for you forever. [[How]] [[could]] you forget her like that? [[How]] [[could]] you [[betray]] [[me]]?"  
+"[[If]] you [[called]] her just once, she would've stayed. [[If]] you spoke to her on the phone just once when I [[called]] you, she would've waited for you forever. [[How]] [[could]] you forget her like that? [[How]] [[could]] you [[betray]] [[me]]?"  
   
 "I killed her," I realized.  
   

@@ -10,7 +10,7 @@ Just then, he heard the rustles of the enemy, the [[real]] opponents. Three [[va
 
 “[[Surrender]]. You [[shall]] be detained, and [[offered]] full [[protection]].”
 
-Protection? Was that what they called it? The stories he heard were gruesome, and chilled him then. Would the fate those tales described be his? No. He put his [[sword]] away, and raised his hands. Slowly. All the while, he cast the spell he learned some years ago, when he was yet [[an]] adventurer.
+Protection? Was that what they [[called]] it? The stories he heard were gruesome, and chilled him then. Would the fate those tales described be his? No. He put his [[sword]] away, and raised his hands. Slowly. All the while, he cast the spell he learned some years ago, when he was yet [[an]] adventurer.
 
 *No [[fear]] of death's oblivion persists. Arise, and see the [[light]]. Stand up, and [[fight]].*
 

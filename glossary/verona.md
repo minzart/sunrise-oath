@@ -15,7 +15,7 @@ Romeo worships Love.
 (Romeo learns the [[sword]] to avenge his friend.)  
   
 [[Act]] III: UW Capulet (Juliet)  
-Mary bound to [[duty]].  
+Mary [[bound]] to [[duty]].  
 Juliet prays to God.  
 (Juliet gains religious [[insight]] [[through]] the [[sword]].)  
   

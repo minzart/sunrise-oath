@@ -28,9 +28,9 @@ I share a meal [[with]] the male elf, a soup [[with]] his fresh hunt. I [[learn]
 
 "The communion of creatures [[with]] [[short]], fleeting lives." He looks at [[me]], pity in his [[eyes]]. "You [[know]] the [[suffering]] of a life that ends too soon. The compassion of a killer tastes [[sweetest]]."
 
-"[[My]] people [[have]] a saying: everyone dies, but few people truly live." I let him think on it for a [[moment]], then continue: "[[Human]] sorcerers [[have]] achieved the [[same]] magic of the elven sages."
+"[[My]] people [[have]] a saying: everyone dies, but few people truly [[live]]." I [[let]] him think on it for a [[moment]], then continue: "[[Human]] sorcerers [[have]] achieved the [[same]] magic of the elven sages."
 
-"Prodigies of idle tricks and [[games]]," he says, waving his hand. "Magic [[is]] but a [[game]] for children." Demonstrating, he snaps his fingers, and the fire goes out. In the next [[moment]], it burns as [[if]] nothing ever [[happened]].
+"Prodigies of idle [[tricks]] and [[games]]," he says, waving his hand. "Magic [[is]] but a [[game]] for children." Demonstrating, he snaps his fingers, and the fire goes out. In the next [[moment]], it burns as [[if]] nothing ever [[happened]].
 
 "[[Have]] sentiments [[changed]]?" I [[ask]]. "The humans [[have]] oft complained of cleaning up [[after]] the elves."
 
@@ -38,7 +38,7 @@ I share a meal [[with]] the male elf, a soup [[with]] his fresh hunt. I [[learn]
 
 "The creatures of these woods do not elude you," I say, as a [[question]].
 
-"[[They]] offer themselves to [[me]]." He laughs. "I give them harmony and [[peace]] in these woods, away from the harsh [[nature]] [[into]] which [[they]] were [[born]]. In exchange, I [[may]] [[have]] their meat [[with]] [[my]] daily bread."
+"[[They]] offer themselves to [[me]]." He [[laughs]]. "I give them harmony and [[peace]] in these woods, away from the harsh [[nature]] [[into]] which [[they]] were [[born]]. In exchange, I [[may]] [[have]] their meat [[with]] [[my]] daily bread."
 
 "A ranch?"
 
@@ -50,9 +50,9 @@ I [[know]] not what to say, and change direction. "What [[is]] so tragic of a [[
 
 "Death looms over evil too," I challenge. "All that [[is]] evil [[also]] falls [[into]] oblivion."
 
-"What [[good]] [[is]] that?" he exclaims. "Evil deserves to be remembered. [[Only]] [[good]] has the right to be [[forgotten]]. Yet, it [[is]] too pure and [[beautiful]] to let [[die]]."
+"What [[good]] [[is]] that?" he exclaims. "Evil deserves to be [[remembered]]. [[Only]] [[good]] has the right to be [[forgotten]]. Yet, it [[is]] too pure and [[beautiful]] to [[let]] [[die]]."
 
-I [[know]] of the wisdom of the elves, and consider the weight of his proclamation. "Those who [[remember]] not the past are consigned to live it [[anew]]."
+I [[know]] of the wisdom of the elves, and consider the weight of his proclamation. "Those who [[remember]] not the past are consigned to [[live]] it [[anew]]."
 
 He nods. "Yet it [[is]] evil [[we]] forget, and [[good]] [[we]] [[remember]]. And so [[we]] wish for death, and eschew life. Creatures bore of all that the world has to offer, and begin to seek its ultimate destruction."
 

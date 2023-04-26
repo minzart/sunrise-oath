@@ -2,7 +2,7 @@ For four months in [[montreal|Montreal]], I had the [[same]] [[dream]]. [[Seven|
 
 ***
 
-The [[sun]] was [[gone]], too [[far]] to seek at the [[late]] hour on Gatestone. But I went looking, putting on my jacket and stepping out, ignoring Eroica as she called out: “Where are you going?”
+The [[sun]] was [[gone]], too [[far]] to seek at the [[late]] hour on Gatestone. But I went looking, putting on my jacket and stepping out, ignoring Eroica as she [[called]] out: “Where are you going?”
 
 At the playground by the Catholic school, Sol Maris was [[there]]. She looked up from a loose printed [[page]], wrinkled from its tribulations in her small backpack, and smiled as I took the swing next to hers.
 

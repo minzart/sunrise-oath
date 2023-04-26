@@ -1,1 +1,1 @@
-No [[one]] should [[have]] to live in a [[house]] [[someone]] died in. No, that is [[an]] excuse. I simply wish not to sell it.
+No [[one]] should [[have]] to [[live]] in a [[house]] [[someone]] died in. No, that is [[an]] excuse. I simply wish not to sell it.

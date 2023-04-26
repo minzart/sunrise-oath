@@ -1,0 +1,1 @@
+[[My]] chamber, emptied [[of]] excess, performs [[the]] function [[I]] had [[first]] intended. A studio of the arts, of exploration, [[is]] mine. I [[may]] play on these [[pages]] any way I wish, and no [[one]] [[may]] criticize [[me]] til the faraway [[future]] when its contents are [[cracked]] open for [[someone]] to see.

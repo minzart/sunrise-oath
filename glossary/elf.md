@@ -3,4 +3,4 @@ Learned [[how]] to tell stories, thanks to a [[human]].
 
 * * *
 
-Elves live a long [[time]], but [[have]] no experience of "stories".
+Elves [[live]] a long [[time]], but [[have]] no experience of "stories".

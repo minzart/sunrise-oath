@@ -1,1 +1,1 @@
-At [[bar|Bar]] des Pins, sipping a gin and tonic, I regarded her, [[mentor]] and patron. She called the waiter in French, and touched my arm.
+At [[bar|Bar]] des Pins, sipping a gin and tonic, I regarded her, [[mentor]] and patron. She [[called]] the waiter in French, and touched my arm.

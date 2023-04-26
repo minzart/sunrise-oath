@@ -1,3 +1,3 @@
-[[I]] escorted her [[outside]]. That morning, [[I]] listened [[to]] [[my]] [[mentor]], [[learning]] [[all]] [[I]] [[could]].
+[[I]] escorted her [[outside]]. That [[morning]], [[I]] listened [[to]] [[my]] [[mentor]], [[learning]] [[all]] [[I]] [[could]].
 
 “[[In]] Hong Kong, [[I]] [[shall]] [[see]] remnants [[of]] [[the]] festival, and find [[my]] parents [[at]] their estate. [[I]] [[shall]] be [[an]] actor, [[an]] [[adult]], [[a]] dragon, [[a]] daughter, [[a]] [[tree]] [[in]] [[the]] woods. [[One]] day [[I]] [[shall]] [[rest]], and [[see]] [[the]] [[autumn]] leaves [[in]] Central Park.”

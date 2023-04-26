@@ -1,11 +1,11 @@
 Tara Medee Leigh/Lée [[Vesper]] [[Maximilian]]  
 Selene [[Quinine]] Hawthorn [[Juniper]] [[Timothy]] 
-Charlotte Alacrity Rose [[Collis]] [[Ancra]] 
+Charlotte Alacrity [[Rose]] [[Collis]] [[Ancra]] 
 Sarah Roslyn [[Beaulieu]] [[Marie]] [[Eilish]] [[Hortus]] 
   
 Agt. Maya Bellamy  
 Jason Hawthorn  
-Alacrity Rose  
+Alacrity [[Rose]]  
 Mlle Sophie  
   
 Rachel [[Vici]]-Surry  

@@ -1,1 +1,1 @@
-I love you. See you in the morning.
+[[I]] [[love]] [[you]]. [[See]] [[you]] [[in]] [[the]] [[morning]].

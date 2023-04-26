@@ -5,7 +5,7 @@
 * * *
 Athena's victory [[over]] Poseidon  
   
-[[Tara]] called [[me]] [[later]] that [[night]], [[with]] David on the [[line]].  
+[[Tara]] [[called]] [[me]] [[later]] that [[night]], [[with]] David on the [[line]].  
 Tara [[explained]] everything to David,  
 because she trusted him to listen.  
 David says that he and Tara will support [[me]] from afar.  

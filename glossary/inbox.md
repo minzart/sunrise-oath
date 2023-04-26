@@ -27,7 +27,7 @@ Catherine [[thought]] of herself as a killer and put the blame on Gale to save h
 - - -
 [[Louise]] is Venus, the girl from the high school [[story]].  
 Charlotte erased Gale's [[memories]] by his request.  
-He was a patron at the [[café]], and was [[set]] up in his [[delusion]] by Charlotte and [[Alain]] by his request, before [[Hortus]] came back for the summer. He went back to the [[Old]] [[Port]] on the [[first]] day, April Fools Day, and fell in love with the doctor. The doctor had to [[watch]] Gale, the man ahe started [[an]] affair with, [[first]] meet his [[old]] girlfriend then get closer to Selene. Selene was angry that Gale [[never]] remembered Charlotte, [[after]] [[finding]] out about the [[situation]].  
+He was a patron at the [[café]], and was [[set]] up in his [[delusion]] by Charlotte and [[Alain]] by his request, before [[Hortus]] came back for the summer. He went back to the [[Old]] [[Port]] on the [[first]] day, April Fools Day, and fell in love with the doctor. The doctor had to [[watch]] Gale, the man ahe started [[an]] affair with, [[first]] meet his [[old]] girlfriend then get closer to Selene. Selene was angry that Gale [[never]] [[remembered]] Charlotte, [[after]] [[finding]] out about the [[situation]].  
 The doctor acted as Aphrodite, making Dawn [[real]].  
 Gale [[left]] the [[café]] [[after]] seeing [[Alain]], who [[revealed]] he and Charlotte were [[lying]] to him the entire [[time]]. This is what causes Gale to turn away Charlotte.  
 - - -

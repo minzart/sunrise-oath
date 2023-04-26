@@ -24,7 +24,7 @@ Richard Garfield’s [[card]] [[game]], [[created]] [[in]] 1993, ft. mages, scie
 
 ## When
 
-#### Morning
+#### [[Morning]]
 
 Discuss plans for lunch [[at]] noon.
 
@@ -73,7 +73,7 @@ Open [[to]] [[friends]] and [[family]].
 
 #### [[Oath]]
 
-[[I]] hereby swear [[to]] live, and [[watch]] [[the]] [[sunrise]].
+[[I]] hereby swear [[to]] [[live]], and [[watch]] [[the]] [[sunrise]].
 
 #### Sign
 

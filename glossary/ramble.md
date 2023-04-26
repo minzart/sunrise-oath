@@ -21,7 +21,7 @@ and you [[shall]] walk the [[path]] for you [[alone]].
 A thousand years [[through]] cosmic void,  
 the [[light]] of giants pierce the wine-[[dark]] sea.  
   
-A woodland bound by creeping artifice.  
+A woodland [[bound]] by creeping artifice.  
 I went to the grave where [[we]] last met,  
 and waited [[there]] for three days and three nights.  
   

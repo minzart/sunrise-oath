@@ -1,4 +1,4 @@
-[[We]] slept. [[The]] [[sun]] rose [[on]] [[September]] 23, and [[I]] woke [[to]] [[a]] younger [[woman]] [[at]] [[my]] [[computer]], editing [[my]] [[work]] [[with]] [[the]] [[curator]]’s blue almond [[eyes]]. Her [[ponytail]] [[was]] neat, her [[perfume]] fresh. [[I]] sipped her tea.
+[[We]] slept. [[The]] [[sun]] [[rose]] [[on]] [[September]] 23, and [[I]] woke [[to]] [[a]] younger [[woman]] [[at]] [[my]] [[computer]], editing [[my]] [[work]] [[with]] [[the]] [[curator]]’s blue almond [[eyes]]. Her [[ponytail]] [[was]] neat, her [[perfume]] fresh. [[I]] sipped her tea.
 
 “[[I]] went [[to]] the hotel, and asked Selene to speak to our parents.” She gave me a novel from her luggage, the translation of Murakami: South of the Border, West of the [[Sun]]. “The taxi is coming. Miles to go before I sleep.”
 

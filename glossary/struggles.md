@@ -8,6 +8,6 @@ In the fourth chapter, "And the [[moon]] had fled with her sad, wan [[light]]...
 
 In the fifth chapter, "Then the [[sun]] upleapt in might and in power...And the worlds woke to hail the hour," Gale isolates himself and [[only]] Charlotte is [[there]] for him. When he finally [[sees]] Dawn [[again]] and satisfies their sunrise oath, his obsession with her pushes Charlotte away.
 
-In the sixth chapter, "And the [[sea]] streamed red from the kiss of his brow...[[There]] was [[glory]] and [[light]] enow," Gale's search for Dawn puts [[off]] [[Alain]], but earns the sympathy of [[Hortus]]. Selene reveals that she is a [[witch]] and curses Gale to be bound to his greatest lie, though he does not yet [[know]] what it is.
+In the sixth chapter, "And the [[sea]] streamed red from the kiss of his brow...[[There]] was [[glory]] and [[light]] enow," Gale's search for Dawn puts [[off]] [[Alain]], but earns the sympathy of [[Hortus]]. Selene reveals that she is a [[witch]] and curses Gale to be [[bound]] to his greatest lie, though he does not yet [[know]] what it is.
 
 In the seventh chapter, "To his tawny mane and tangle of flush...Leapt the wind with a blast and a rush," Gale is despondent and [[lonely]] after realizing that Dawn is not [[real]]. In a drunken episode on Christmas, he falls [[into]] the [[Saint]] Lawrence River.

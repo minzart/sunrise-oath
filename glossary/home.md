@@ -15,7 +15,7 @@ HOME
 
 “A drunk man will find his way home, but a drunk bird [[may]] get [[lost]] forever.” — Shizuo Kakutani 
 
-< You live with a man and a bird. To [[pass]] the [[time]], you write in a journal. > 
+< You [[live]] with a man and a bird. To [[pass]] the [[time]], you write in a journal. > 
 
 A [[story]]-rich journaling [[game]] about random walks and [[chance]] encounters. 
 

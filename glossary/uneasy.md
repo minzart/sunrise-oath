@@ -1,3 +1,3 @@
-Seven years to the morning way back when, I left my un et demi in a rush. Thirty minutes later at the [[Old]] Port, the [[beautiful]] stranger shone brightly in the two minutes after daybreak. “I knew you’d come again.” The love of my dreams rose, and kissed my neck. As her warmth was brushed away by the wind, Dawn looked to the [[horizon]]. “Do you love the sunrise?”
+Seven years to the [[morning]] way back when, I left my un et demi in a rush. Thirty minutes later at the [[Old]] Port, the [[beautiful]] stranger shone brightly in the two minutes after daybreak. “I knew you’d come again.” The love of my dreams [[rose]], and kissed my neck. As her warmth was brushed away by the wind, Dawn looked to the [[horizon]]. “Do you love the sunrise?”
 
 That was on August 3, 1999, when July was gone. 

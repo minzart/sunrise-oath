@@ -1,4 +1,4 @@
-“[[I]] [[found]] this [[place]] two [[days]] [[ago]]. [[Early]] [[in]] [[the]] morning, before it opened.”
+“[[I]] [[found]] this [[place]] two [[days]] [[ago]]. [[Early]] [[in]] [[the]] [[morning]], before it opened.”
 
 “[[You]] haven’t come [[by]] before? [[We]]’ve [[been]] [[here]] since ’95.”
 

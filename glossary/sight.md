@@ -1,1 +1,1 @@
-Snapshot protagonist was entangled [[with]] Samantha Keller, who always [[said]] "[[good]] luck spells" her father taught her and so stayed young. (Her brain can live forever.)
+Snapshot protagonist was entangled [[with]] Samantha Keller, who always [[said]] "[[good]] luck spells" her father taught her and so stayed young. (Her brain can [[live]] forever.)

@@ -1,4 +1,4 @@
-On Christmas morning, Gale burns a letter wishing to God for a miracle.
+On Christmas [[morning]], Gale burns a letter wishing to God for a miracle.
 
 Catherine memorized plainchant version of rosary.
 

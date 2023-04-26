@@ -2,4 +2,4 @@
 
 “Will you be here?”
 
-“Not every morning,” I said, and broke our hearts. Gasping, she [[brought]] her hand to her chest. I kept my [[act]].
+“Not every [[morning]],” I said, and broke our hearts. Gasping, she [[brought]] her hand to her chest. I kept my [[act]].

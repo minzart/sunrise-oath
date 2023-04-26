@@ -1,4 +1,4 @@
-ROSE
+[[ROSE]]
 
 [[Oh]],
 
@@ -16,7 +16,7 @@ lovely
 
 fiction,
 
-Rose —
+[[Rose]] —
 
 the love,
 
@@ -30,7 +30,7 @@ the beauty;
 
 the [[dreams]],
 
-the [[sun]] rose,
+the [[sun]] [[rose]],
 
 the color [[pink]],
 
