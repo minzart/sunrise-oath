@@ -1,0 +1,1 @@
+[[My]] [[pilgrimage]] ended [[there]], when [[I]] accepted [[that]] [[the]] present [[was]] [[the]] [[only]] [[place]] [[in]] [[history]] [[I]] [[will]] [[ever]] [[be]] — [[am]] [[ever]] [[meant]] [[to]] [[be]].

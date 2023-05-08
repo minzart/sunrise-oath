@@ -1,0 +1,1 @@
+No blemish, wrinkle, spot, or otherwise. A silent [[clearing]] of tranquility.

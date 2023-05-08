@@ -1,0 +1,1 @@
+[[The]] [[king]] [[put]] [[down]] [[his]] [[chisel]], [[and]] [[looked]] [[upon]] [[the]] [[face]] [[of]] [[his]] [[masterpiece]], [[the]] [[statue]] [[that]] stood before him, [[her]] [[arms]] [[poised]] [[in]] [[dance]]. 

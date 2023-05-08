@@ -1,0 +1,1 @@
+“I’ll have you know, I loathed going to your place back in the [[day]]. The drive [[took]] forever, and not being able to send texts or check my email almost drove me [[crazy]]. But wow, is the view [[ever]] something. Almost makes it all worth it.“

@@ -2,4 +2,4 @@ She was silent for some time, then agreed. “I shall [[honor]] my [[word]]. Fir
 
 “And you are the [[autumn]] moon,” I said.
 
-After a pause, she put her [[head]] on my [[shoulder]]. She slept, uttering in her sleep: “The heart’s an island in [[infinity]].”
+After a pause, she [[put]] her [[head]] on my [[shoulder]]. She slept, uttering in her sleep: “The heart’s an island in [[infinity]].”

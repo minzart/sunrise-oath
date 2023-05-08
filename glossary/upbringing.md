@@ -2,4 +2,4 @@
 
 “What about boys?”
 
-“Boys were adults [[at]] twenty, and [[as]] [[young]] men received their [[name]] and [[inheritance]].” [[She]] put [[down]] her beer. “Speaking [[of]] which, [[how]] [[old]] are [[you]]?”
+“Boys were adults [[at]] twenty, and [[as]] [[young]] men received their [[name]] and [[inheritance]].” [[She]] [[put]] [[down]] her beer. “Speaking [[of]] which, [[how]] [[old]] are [[you]]?”

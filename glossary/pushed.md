@@ -1,0 +1,1 @@
+Closing [[my]] [[eyes]], [[I]] [[thought]] [[of]] [[having]] [[wings]] [[and]] soaring [[high]]. 

@@ -1,0 +1,1 @@
+[[Without]] hesitation, Erisa [[took]] [[action]], infiltrating [[the]] [[bandit]] [[camp]] [[and]] [[turning]] [[them]] [[in]] [[to]] [[the]] authorities. [[Her]] bravery [[and]] quick [[thinking]] earned [[her]] [[the]] [[respect]] [[of]] [[the]] villagers [[and]] [[the]] gratitude [[of]] [[the]] [[young]] girl's [[family]].

@@ -1,1 +1,1 @@
-([[At]] this point [[I]] had "broken [[through]]" [[on]] Buddhist philosophy and seriously audited [[the]] [[Bible]] [[again]] [[after]] [[the]] period [[of]] speaking [[to]] idols.)
+([[At]] this [[point]] [[I]] had "[[broken]] [[through]]" [[on]] Buddhist philosophy and seriously audited [[the]] [[Bible]] [[again]] [[after]] [[the]] period [[of]] speaking [[to]] idols.)

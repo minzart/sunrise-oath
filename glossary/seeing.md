@@ -1,0 +1,1 @@
+[[Belief]] [[is]] [[free]] [[and]] [[invisible]], but costly [[and]] opaque.

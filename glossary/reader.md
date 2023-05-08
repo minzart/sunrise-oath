@@ -1,0 +1,1 @@
+[[Revelation]] [[is]] Brave [[New]] [[World]]. Eternal [[damnation]] [[is]] [[a]] [[genetic]] [[and]] memetic [[line]] dying [[in]] [[a]] doomer [[pleasure]] [[loop]]. Eternal [[life]] [[is]] [[a]] [[genetic]] [[and]] memetic [[line]] surviving [[forever]] post-scarcity [[utopia]] [[of]] those [[who]] pursue [[a]] [[Way]] [[outside]] [[of]] [[desire]].

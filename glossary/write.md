@@ -1,0 +1,1 @@
+None [[of]] [[this]] [[is]] [[that]] useful, but [[there]] [[is]] [[something]] [[magical]] [[about]] letting [[my]] thoughts [[flow]]. 

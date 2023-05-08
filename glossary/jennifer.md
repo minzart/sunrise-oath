@@ -1,1 +1,1 @@
-Years before [[the]] [[Boardwalk]], [[back]] when [[I]] won [[a]] [[class]] geography challenge but [[never]] walked [[alone]] [[outside]] [[my]] [[school]] district, [[I]] met [[a]] [[blind]] [[woman]] [[at]] [[a]] [[summer]] [[Bible]] [[camp]]. 
+[[Years]] before [[the]] [[Boardwalk]], [[back]] when [[I]] won [[a]] [[class]] geography challenge but [[never]] walked [[alone]] [[outside]] [[my]] [[school]] district, [[I]] [[met]] [[a]] [[blind]] [[woman]] [[at]] [[a]] [[summer]] [[Bible]] [[camp]]. 

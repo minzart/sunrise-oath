@@ -1,0 +1,1 @@
+Galatea was a powerful AI that surfaced during a remote era when humanity fought against hostile [[alien]] forces. The cost of [[victory]] was staggering. 

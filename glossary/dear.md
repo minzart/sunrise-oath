@@ -1,0 +1,1 @@
+[[First]]: inertia [[is]] [[a]] [[property]] [[of]] [[matter]]. [[Only]] [[by]] [[force]] can [[we]] [[change]] [[our]] trajectory. 

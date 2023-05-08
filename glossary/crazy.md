@@ -1,0 +1,1 @@
+[[I]] [[nodded]] [[and]] smiled, but [[said]] [[nothing]]. [[My]] default setting [[in]] situations [[like]] [[these]].

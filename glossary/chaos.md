@@ -1,0 +1,1 @@
+[[With]] [[Morwenna]] [[by]] [[his]] side, [[they]] faced [[the]] [[beast]] untoward.

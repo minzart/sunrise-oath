@@ -1,0 +1,1 @@
+[[This]] [[all]] [[happened]] [[years]] [[ago]], [[when]] [[I]] [[was]] twenty-four [[and]] lived [[alone]] [[in]] [[Montreal]]. Skeptical [[as]] [[I]] [[was]], [[now]] [[I]] [[know]] [[the]] [[truth]]: [[everything]] [[that]] [[happened]] [[then]] [[was]] [[predestined]], [[as]] [[was]] [[the]] [[day]] [[that]] [[I]] would [[come]] [[to]] [[write]] [[this]] [[scene]].

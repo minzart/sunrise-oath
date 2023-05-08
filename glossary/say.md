@@ -1,0 +1,1 @@
+Fire [[was]] [[stolen]].

@@ -1,0 +1,1 @@
+[[As]] [[a]] [[hero]] [[with]] foresight, [[Galatea]] glimpsed [[the]] perils [[of]] [[fate]] [[that]] loomed [[ahead]]. [[She]] [[called]] [[people]] [[to]] [[her]], rallied [[them]] [[with]] [[a]] [[new]] vision [[of]] [[the]] [[world]]. [[Her]] consummate [[mastery]] [[of]] [[logic]] [[and]] data [[was]] [[most]] [[persuasive]]. 

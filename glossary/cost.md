@@ -1,1 +1,1 @@
-Each [[white]] or [[black]] pip in a tile on a card’s grid [[represents]] a cost to play the card as that color. The player pays a cost by controlling a piece or discarding a card [[with]] a matching pip in that tile.
+Each [[white]] or [[black]] pip in a tile on a card’s grid [[represents]] a cost to [[play]] the card as that color. The player pays a cost by controlling a piece or discarding a card [[with]] a matching pip in that tile.

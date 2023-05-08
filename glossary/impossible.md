@@ -1,0 +1,1 @@
+Before [[I]] [[could]] [[come]] up [[with]] [[a]] [[good]] [[excuse]], [[the]] [[student]] cleared his [[throat]]. “[[On]] [[second]] [[thought]], [[forget]] [[I]] [[ever]] asked. [[The]] [[film]] [[for]] [[that]] [[must]] [[cost]] [[a]] [[fortune]], yeah? [[Since]] [[Polaroid]] has [[long]] [[been]] [[out]] [[of]] [[business]].”

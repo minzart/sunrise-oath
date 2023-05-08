@@ -1,0 +1,1 @@
+[[Nothing]] [[is]] [[stopping]] counterfactuals, [[save]] [[the]] fact [[that]] [[they]] are [[impossible]].

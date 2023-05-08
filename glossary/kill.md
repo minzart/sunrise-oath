@@ -1,1 +1,1 @@
-[[It|it]] [[was]] [[my]] [[fault]]. [[She|she]] [[had]] [[no]] [[need]] [[to]] [[die]], [[if]] [[only]] [[I|i]] [[knew]] [[the]] [[way]] [[that]] [[things]] [[would]] [[go]].
+[[She]] [[had]] [[no]] [[need]] [[to]] [[die]]. [[If]] [[only]] [[I]] [[knew]] [[the]] [[way]] [[things]] [[would]] [[go]].

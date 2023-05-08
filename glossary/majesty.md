@@ -1,0 +1,1 @@
+[[Seeing]] [[the]] [[formidable]] plant [[that]] had stood proudly [[for]] centuries, outlasting [[the]] pitiful lifespans [[of]] [[noble]] men [[and]] vast [[kingdoms]], [[I]] [[thought]] [[of]] those verses penned [[by]] [[Lord]] [[Byron]].

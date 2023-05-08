@@ -1,0 +1,1 @@
+As much as I wanted to stay around longer, there were [[still]] other places to be. Newton was only one of many giants in a [[long]] line of scientists. The [[past]] held [[more]] mysteries than could [[ever]] be [[recorded]] with [[even]] ten or a hundred times the [[film]] I had [[left]].

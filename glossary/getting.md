@@ -1,0 +1,1 @@
+1v1 [[card]] [[game]] where [[players]] [[play]] [[RPS]] [[to]] [[gain]] [[mana]] [[for]] [[spells]].

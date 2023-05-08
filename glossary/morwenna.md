@@ -1,0 +1,1 @@
+[[She]] had [[been]] [[thinking]] [[about]] [[the]] [[one]] [[who]] had [[come]] [[to]] [[her]] aid [[when]] [[she]] [[was]] injured. [[She]] wanted [[to]] [[write]] [[a]] poem [[about]] him, [[to]] [[capture]] [[her]] [[impression]] [[of]] him [[at]] [[that]] [[moment]].

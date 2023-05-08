@@ -1,0 +1,1 @@
+[[A]] [[feeling]] [[of]] [[pressure]], [[a]] [[constraint]] [[on]] [[my]] [[course]]. 

@@ -1,0 +1,1 @@
+[[My]] [[grand]] [[theory]] [[of]] [[social]] [[warfare]] [[is]] [[that]] [[most]] [[of]] it [[is]] subconscious, [[that]] [[we]] [[all]] participating [[as]] subpersonas [[in]] [[a]] larger [[conflicted]] [[mind]].

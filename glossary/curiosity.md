@@ -1,0 +1,1 @@
+[[He]] glanced [[back]] [[with]] [[a]] subdued air. “[[I]]’m [[not]] so sure. It [[came]] to mind, is all. But if I had to, how would I respond?” He furrowed his eyebrows, [[searching]] for the right answer. Choosing his words, he said: “[[What]] [[are]] we, if not piles of memories? And on the [[day]] they [[fade]], do we not die?”

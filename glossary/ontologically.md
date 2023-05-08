@@ -1,1 +1,1 @@
-[[Jesus]] [[resurrected]] [[on]] [[the]] [[third]] day. [[The]] [[world]] [[is]] six thousand years [[old]].
+[[Jesus]] [[resurrected]] [[on]] [[the]] [[third]] [[day]]. [[The]] [[world]] [[is]] six thousand [[years]] [[old]].

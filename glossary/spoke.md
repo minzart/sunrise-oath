@@ -1,0 +1,1 @@
+[[I]] hereby grant any [[reader]] [[the]] rights [[to]] anything [[they]] [[read]] [[in]] [[this]] [[vault]]. Please [[use]] it [[for]] anything [[you]] [[wish]].

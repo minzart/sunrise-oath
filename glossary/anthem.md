@@ -1,1 +1,1 @@
-A card [[may]] be played to the anthem zone. Pieces on the board you control gain the moves of each card in the anthem zone. ([[They]] cannot gain a move for a tile [[with]] a pip.)
+A [[card]] [[may]] be played to the anthem zone. Pieces on the board you control [[gain]] the [[moves]] of each [[card]] in the anthem zone. ([[They]] cannot [[gain]] a [[move]] for a tile [[with]] a pip.)

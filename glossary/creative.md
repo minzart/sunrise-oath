@@ -1,1 +1,1 @@
-[[Many]] ideas came readily. Yet [[I]] acted [[on]] but [[a]] few, and so [[the]] [[rest]] [[of]] [[my]] intellectual industry [[was]] [[left]] [[wasted]]. 
+[[Many]] ideas [[came]] readily. Yet [[I]] acted [[on]] but [[a]] few, and so [[the]] [[rest]] [[of]] [[my]] intellectual industry [[was]] [[left]] [[wasted]]. 

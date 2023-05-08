@@ -1,1 +1,1 @@
-[[Doing]] [[things]] [[one]] step at a [[time]] has paid [[off]]. [[Now]] I [[have]] a direct way of [[communicating]] [[with]] everyone interested in [[my]] [[work]] / [[art]] / [[practice]], [[whatever]] you [[may]] call this [[rambling]].
+[[Doing]] [[things]] [[one]] step at a [[time]] has paid [[off]]. [[Now]] I [[have]] a direct way of [[communicating]] [[with]] everyone interested in [[my]] [[work]] / [[art]] / [[practice]], [[whatever]] you [[may]] [[call]] this [[rambling]].

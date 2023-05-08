@@ -1,0 +1,1 @@
+[[The]] [[first]] [[teacher]] [[in]] [[space]], [[her]] students [[thought]] before [[the]] boom.

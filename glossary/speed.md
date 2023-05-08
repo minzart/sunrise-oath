@@ -1,1 +1,1 @@
-Aside [[from]] [[the]] dials [[on]] [[the]] machines and [[the]] exact layout behind [[the]] counter and [[in]] [[the]] [[back]], [[everything]] [[was]] [[review]].
+[[Aside]] [[from]] [[the]] dials [[on]] [[the]] machines and [[the]] exact layout behind [[the]] counter and [[in]] [[the]] [[back]], [[everything]] [[was]] [[review]].

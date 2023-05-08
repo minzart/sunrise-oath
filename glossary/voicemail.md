@@ -1,0 +1,1 @@
+[[He]] searched [[the]] [[city]] [[for]] any [[sign]] [[of]] [[her]], but [[it]] was like she had disappeared without a trace. And then he remembered the book. He had read a [[passage]] about how it could be used to find missing people.

@@ -1,0 +1,1 @@
+[[She]] entered [[the]] [[ruins]], continuing [[to]] [[keep]] [[her]] arm [[at]] [[her]] side, using [[it]] [[as]] [[a]] maestro's [[wand]]-baton.

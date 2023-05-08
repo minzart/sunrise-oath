@@ -1,0 +1,1 @@
+[[For]] [[in]] [[this]] [[place]], [[the]] [[old]] [[and]] [[new]] unite, [[and]] [[I]] [[am]] [[free]] [[to]] wander [[and]] explore. [[The]] spirits [[of]] [[the]] [[woods]] [[are]] [[all]] [[around]], [[and]] [[I]] [[am]] blessed [[to]] walk [[upon]] their [[ground]].

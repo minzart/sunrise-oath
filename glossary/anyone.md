@@ -1,1 +1,1 @@
-[[Whoever]] I create and bring to [[life]].
+[[Whoever]] I create and [[bring]] to [[life]].

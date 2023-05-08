@@ -1,0 +1,1 @@
+[[What]] [[is]] [[the]] [[smell]] [[of]] [[camphor]]? [[Could]] [[it]] [[burn]] [[like]] [[incense]], [[sweet]] [[as]] [[the]] swirls [[that]] [[kissed]] [[my]] [[senses]] [[on]] [[a]] [[cold]] [[spring]] evening [[of]] frantic thoughts folding [[on]] themselves?

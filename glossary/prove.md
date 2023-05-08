@@ -1,0 +1,1 @@
+Without the delightful fallacies of [[ages]] [[past]], everyone clings to something. I place my [[faith]] in the equations that [[govern]] the motions of the universe — of quarks and galaxies alike. 

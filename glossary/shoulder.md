@@ -1,1 +1,1 @@
-Alain went to the back, and I cleared the doctor’s [[table]]. Under the empty cup was a single bill, a huge [[overpayment]]. I [[stuck]] it in the register, wondering if all doctors afforded such handsome tips.
+[[Alain]] went to the back, and I cleared the [[doctor]]’s [[table]]. Under the empty cup was a single bill, a huge [[overpayment]]. I [[stuck]] it in the register, wondering if all doctors afforded [[such]] handsome tips.

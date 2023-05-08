@@ -1,0 +1,1 @@
+[[Salvation]] [[through]] [[faith]] [[alone]], [[not]] [[salvation]] [[through]] [[a]] [[lone]] [[faith]].

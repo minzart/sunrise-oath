@@ -1,0 +1,1 @@
+“[[Am]] [[I]] [[to]] [[run]] [[away]]?” [[the]] [[younger]] [[mage]] protested. “[[What]] [[kind]] [[of]] [[man]] would [[I]] [[be]]?”

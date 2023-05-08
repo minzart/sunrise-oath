@@ -1,0 +1,1 @@
+[[Have]] [[to]] [[say]], [[I]] [[find]] [[it]] [[a]] [[bit]] [[strange]] [[how]] [[much]] [[our]] standards vary [[on]] [[children]]'s [[agency]] [[is]] [[when]] [[it]] [[comes]] [[to]] gender (transition yay!) [[and]] [[sex]] (pregnancy boo!). [[An]] easy-[[to]]-fix [[double]] [[standard]]. 

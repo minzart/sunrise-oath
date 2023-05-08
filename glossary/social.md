@@ -1,0 +1,1 @@
+[[The]] [[thing]] [[is]] [[that]] [[the]] [[idea]] [[of]] "[[good]]" [[here]] [[must]] [[be]] [[apart]] [[from]] [[what]] [[we]] [[normally]] [[outline]] [[by]] [[reason]] or [[by]] [[consensus]]. 

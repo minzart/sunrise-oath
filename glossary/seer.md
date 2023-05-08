@@ -1,1 +1,1 @@
-All the [[future]] years of her life [[happened]] at once. She knew the destiny of the world, in exchange for not [[being]] able to do anything about it.
+All the [[future]] [[years]] of her life [[happened]] at once. She knew the destiny of the world, in [[exchange]] for not [[being]] able to do anything about it.

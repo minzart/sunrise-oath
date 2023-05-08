@@ -1,0 +1,1 @@
+Yet [[there]] [[they]] stand [[in]] [[space]] [[and]] [[time]].

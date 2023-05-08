@@ -1,0 +1,1 @@
+[[She]] shakes [[her]] [[head]]. “[[Never]] mockery. [[You]] [[are]] [[the]] [[person]] [[I]] [[admire]] [[most]] [[in]] [[the]] [[whole]] wide [[world]].”

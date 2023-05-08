@@ -5,10 +5,10 @@ Medieval Marvels
 The Hours  
 Kreiner - The Wandering Mind  
 Arthur Rimbaud - Poèmes  
-Brian Watson - Headed [[Into]] the Abyss  
+Brian Watson - Headed [[Into]] the [[Abyss]]  
 Sybil and Cyril  
 The Mountain in the Sea  
-Tomb of Sand  
+Tomb of [[Sand]]  
 [[Thomas]] Bernhard - The Loser  
 Mark Musa [[1992]] Dante Vita Nuova  
 Flora MacDonald / Prince Charles Edward Stuart  
@@ -22,17 +22,17 @@ Cormac McCarthy - The [[Road]]
 The God of Small [[Things]]  
 Dylan - The Philosophy of Modern [[Song]]  
 Bachmann - Malina  
-Fleur Jaeggy - The Water Statues  
+Fleur Jaeggy - The [[Water]] Statues  
 Professing Criticism  
 Professing Literature  
 Laxness - Under the Glacier  
 Laxness - Salka Valka  
 Studies [[into]] Darkness (epub)  
 Ted Chiang - The [[Evolution]] of [[Human]] [[Science]] (Stories of Your Life and Others)  
-Confidentially Yours  
+Confidentially [[Yours]]  
 Eddie Izzard [[Great]] Expectations  
-When [[We]] Cease to Understand the World  
-My Broken [[Language]]  
+When [[We]] Cease to [[Understand]] the World  
+My [[Broken]] [[Language]]  
 Rushmore  
 The Inspection  
 Peaky Blinders  
@@ -44,17 +44,17 @@ Rainer Maria Rilke
 A Separation  
 Foucault - Les mots et les choses  
 The [[Great]] Wall of China - Kafka  
-Cervantes - Galatea  
+Cervantes - [[Galatea]]  
 Claire Denis - Both Sides of the Blade  
-David Ye - lady in the red dress  
-David Ye - carried away on the crest of a [[wave]]  
-Cold Edge of Heaven  
+[[David]] Ye - lady in the red dress  
+[[David]] Ye - [[carried]] away on the crest of a [[wave]]  
+[[Cold]] [[Edge]] of [[Heaven]]  
 [[Messiah]] Complex  
 Robert Alter - Genesis to Acts  
 Tournier - The Judgment of Solomon  
 Beardsley  
 Wartime Elegy  
 Infinite Jest  
-Gravity's Rainbow  
+[[Gravity]]'s Rainbow  
 HBO The Last of Us  
 Edwin Wong - When Life Gives You Risk

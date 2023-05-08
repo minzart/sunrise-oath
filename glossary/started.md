@@ -1,0 +1,1 @@
+[[Right]] [[now]], [[it]] seems [[as]] [[if]] [[it]] [[shall]] [[end]] [[with]] [[one]].  

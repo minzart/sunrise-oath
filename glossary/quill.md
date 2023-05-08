@@ -1,0 +1,1 @@
+[[As]] [[she]] stood [[up]], [[she]] caught [[a]] [[glimpse]] [[of]] [[the]] [[hero]] [[walking]] towards [[her]]. [[He]] smiled [[at]] [[her]] [[and]] [[she]] [[felt]] [[her]] [[heart]] flutter. [[She]] [[knew]] [[that]] [[her]] [[words]] had captured [[her]] feelings perfectly.

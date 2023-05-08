@@ -1,0 +1,1 @@
+"[[History]] repeats [[not]], but often [[rhymes]]."  

@@ -1,0 +1,1 @@
+[[He]] touched [[her]] [[hand]], [[and]] [[in]] horror [[felt]] [[that]] [[it]] [[was]] [[cold]].

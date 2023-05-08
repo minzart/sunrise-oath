@@ -1,0 +1,1 @@
+[[Despite]] [[his]] [[love]], [[he]] [[could]] [[not]] [[coax]] [[a]] [[word]] [[from]] [[her]] [[still]] [[and]] [[parted]] [[lips]].

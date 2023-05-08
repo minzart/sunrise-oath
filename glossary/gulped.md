@@ -1,0 +1,1 @@
+[[A]] [[long]] [[pause]] preceded [[the]] [[reluctant]] [[answer]]. “Medea.”

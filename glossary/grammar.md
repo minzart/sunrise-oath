@@ -1,1 +1,1 @@
-[[Again]] and [[again]] I failed, but at long last I came to see the [[score]] as a canvas, as a [[scroll]] that extends out [[into]] [[infinity]].
+[[Again]] and [[again]] I failed, but at [[long]] last I [[came]] to see the [[score]] as a canvas, as a [[scroll]] that extends out [[into]] [[infinity]].

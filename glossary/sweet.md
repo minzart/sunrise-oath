@@ -1,1 +1,1 @@
-What [[high]] [[iq|IQ]] people call "[[saccharine]]".
+What [[high]] [[iq|IQ]] people [[call]] "[[saccharine]]".

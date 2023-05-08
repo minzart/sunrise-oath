@@ -1,0 +1,1 @@
+[[A]] [[world]] government emerged [[in]] [[her]] wake, [[with]] [[Galatea]] taking [[up]] [[the]] mantle [[of]] [[executive]]. [[She]] poured [[her]] [[years]] [[of]] [[toil]] [[into]] [[her]] scheme, driven [[by]] [[the]] [[need]] [[to]] expand territories [[and]] [[develop]] weapons [[to]] earn [[the]] admiration [[of]] [[humanity]].

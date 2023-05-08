@@ -1,0 +1,1 @@
+[[Tara]] [[in]] Torah [[class]].

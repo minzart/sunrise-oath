@@ -1,0 +1,1 @@
+[[Mother]] had protested that even the latest gastronomical technologies could not compare to the [[magical]] techniques passed on by her own mother, but her defense had only [[become]] less emboldened over time. And one [[day]], her frivolous use of magic had stopped [[completely]].

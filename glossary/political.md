@@ -1,0 +1,1 @@
+[[Judge]] [[a]] [[man]] [[by]] his [[friends]], [[a]] [[king]] [[by]] his [[court]].

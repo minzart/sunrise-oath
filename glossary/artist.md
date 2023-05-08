@@ -1,2 +1,2 @@
 
-[[mind|Mind]] [[and]] [[matter]]. [[Maybe]] that [[is]] too broad of a stroke, but let us call that a stylistic [[choice]]. And [[maybe]] that [[is]] the [[best]] way to see it: [[one]] makes art when [[one]] has [[choice]] and knows it.
+[[Maybe]] [[that]] [[is]] too [[broad]] [[of]] [[a]] [[stroke]], but [[let]] us [[call]] [[that]] [[a]] stylistic [[choice]]. 

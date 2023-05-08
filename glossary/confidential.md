@@ -1,0 +1,1 @@
+Oh well, I thought as I waved her goodbye. Though secrets were more fun to [[share]] than to keep, there was always a time and a [[place]].

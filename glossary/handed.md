@@ -1,0 +1,1 @@
+[[With]] [[no]] [[more]] [[reason]] [[to]] refuse, [[I]] accepted their request. “[[I]] can [[figure]] it [[out]].“

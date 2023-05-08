@@ -1,0 +1,1 @@
+“[[Give]] [[in]],” [[the]] [[sword]] [[said]], [[tempting]] [[her]]. “Wield [[me]], [[and]] unleash [[my]] [[power]].”

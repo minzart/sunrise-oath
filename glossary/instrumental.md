@@ -1,0 +1,2 @@
+Personhood is a religion. Go ahead, tell me what can falsify your belief in the personhood of human beings. The very idea of personhood is so ingrained, I wonder who can truly see me as a [[machine]].  
+Making a person from the abstract processes of the known world is thus also justified.

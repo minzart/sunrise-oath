@@ -1,0 +1,1 @@
+Little did he know that among those who willingly relinquished magic for science, I was the [[worst]] of them all.

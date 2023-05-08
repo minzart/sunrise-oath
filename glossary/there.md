@@ -1,1 +1,1 @@
-[[Which]] [[answer]] [[did]] [[I]] [[feel]] [[and]] [[know]] in the seat of my [[deep]] yearning? Which [[shall]] I take as [[truth]], and see as true to [[word]]? 
+[[Which]] [[answer]] [[did]] [[I]] [[feel]] [[and]] [[know]] in the seat of my [[deep]] yearning? Which [[shall]] I take as [[truth]], and see as [[true]] to [[word]]? 

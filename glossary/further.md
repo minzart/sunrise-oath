@@ -1,0 +1,1 @@
+[[There]] [[are]] [[no]] keepers, [[only]] guarding [[ghosts]].

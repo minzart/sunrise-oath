@@ -1,0 +1,1 @@
+[[Love]] [[is]] [[pain]]. [[Pain]] [[is]] [[life]]. Therefore, [[love]] [[is]] [[life]].

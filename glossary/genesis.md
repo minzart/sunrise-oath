@@ -1,1 +1,1 @@
-[[Kaguya]] was cursed to be banished from the [[moon]] and [[develop]] material attachments. She fell in love [[with]] the Emperor, and had to [[return]] home.
+[[Kaguya]] was cursed to be banished from the [[moon]] and [[develop]] [[material]] attachments. She fell in love [[with]] the Emperor, and had to [[return]] home.

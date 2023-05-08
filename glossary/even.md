@@ -1,1 +1,1 @@
-“[[Only]] as [[trivia]],” she [[said]]. “Soon as I [[have]] to sing, my mind goes [[blank]]. The [[melody]] is all I ever [[know]].”  
+“[[Only]] as [[trivia]],” she [[said]]. “Soon as I [[have]] to sing, my mind goes [[blank]]. The [[melody]] is all I [[ever]] [[know]].”  

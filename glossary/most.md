@@ -1,0 +1,1 @@
+[[The]] [[greatest]] [[weapon]] [[shall]] [[never]] dull, [[and]] so cuts [[down]] [[a]] thousand men.

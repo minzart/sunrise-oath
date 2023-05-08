@@ -1,0 +1,1 @@
+[[That]] [[was]] [[how]] [[my]] [[life]] [[was]] [[supposed]] [[to]] [[go]]. [[That]] [[was]] [[the]] [[fate]] [[from]] which [[I]] [[ran]] [[away]].

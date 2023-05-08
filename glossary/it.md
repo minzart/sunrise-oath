@@ -1,0 +1,1 @@
+It [[is]] [[irresponsible]] [[to]] [[be]] [[happy]] / [[satisfied]]. 

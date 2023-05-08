@@ -1,0 +1,1 @@
+Speaking [[of]] [[the]] [[self]] [[to]] [[reinforce]] [[and]] [[gate]] [[the]] [[self]], thereby cordoning oneself [[from]] peers, [[parents]], [[and]] polities.

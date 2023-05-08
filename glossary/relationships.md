@@ -1,1 +1,1 @@
-The novel is structured [[around]] [[an]] art [[song]] of the [[same]] name by Edward [[Elgar]] and Caroline Alice Roberts. The [[song]]'s lyrics and themes play a significant [[role]] in the [[story]], with each chapter [[corresponding]] to [[one]] of the [[song]]'s couplets.
+The novel is structured [[around]] [[an]] art [[song]] of the [[same]] name by Edward [[Elgar]] and Caroline Alice Roberts. The [[song]]'s lyrics and themes [[play]] a significant [[role]] in the [[story]], with each chapter [[corresponding]] to [[one]] of the [[song]]'s couplets.

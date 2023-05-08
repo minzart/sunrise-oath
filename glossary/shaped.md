@@ -1,0 +1,1 @@
+So [[cool]] [[when]] [[one]] [[word]] [[absorbs]] [[the]] [[meaning]] [[of]] [[another]] oft-adjacent [[word]] so thoroughly [[that]] [[we]] can [[completely]] omit [[the]] [[latter]] [[and]] [[keep]] its [[meaning]]. 

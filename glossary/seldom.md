@@ -1,0 +1,1 @@
+“[[I]] feign [[no]] hypotheses,” [[I]] [[said]], [[and]] smiled. Pitiful [[as]] it sounds, that was the [[most]] I [[ever]] spoke to someone from outside of [[work]]. Though I enjoyed the conversation, it could [[get]] [[risky]] if it went on. If he saw the developed [[photograph]]—

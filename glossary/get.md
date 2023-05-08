@@ -1,0 +1,1 @@
+[[The]] [[reason]] [[why]] [[God]] commands [[you]] [[to]] [[love]] [[your]] [[fellow]] [[man]] [[is]] because it [[is]] hard. 

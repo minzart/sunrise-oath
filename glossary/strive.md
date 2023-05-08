@@ -1,1 +1,1 @@
-[[Salvation]] [[through]] [[faith]] [[alone]]. God [[is]] conscious, but has no sense of [[agency]].
+[[Salvation]] [[through]] [[faith]] [[alone]]. God [[is]] [[conscious]], but has no sense of [[agency]].

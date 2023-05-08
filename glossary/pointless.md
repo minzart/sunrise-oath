@@ -1,0 +1,1 @@
+[[She]] stayed [[by]] [[my]] side [[for]] [[the]] [[rest]] [[of]] [[the]] [[year]], whispering [[to]] [[me]] [[in]] [[class]] [[and]] [[trading]] solutions [[with]] [[me]] [[for]] [[practice]] [[questions]]. [[Once]] [[she]] chose [[a]] [[place]] [[for]] herself, [[there]] [[she]] stayed [[as]] [[she]] [[pleased]].

@@ -1,0 +1,1 @@
+[[Like]] [[in]] [[a]] [[marriage]], [[better]] [[get]] [[along]] [[with]] [[your]] [[happy]] [[ever]] [[after]].

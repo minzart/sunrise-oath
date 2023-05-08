@@ -27,4 +27,4 @@ The cards in the [[set]] are [[read]] over and over. The [[only]] way to win the
   
 Cast three part series of sorceries to advance to the next [[act]].  
   
-Every card, including lands, is drafted. Everyone plays fivecolor, using mana dudes. All colored creatures can tap to make [[one]] colored mana in their mana [[cost]].
+Every card, including lands, is drafted. Everyone plays fivecolor, using [[mana]] dudes. All colored creatures can tap to make [[one]] colored [[mana]] in their [[mana]] [[cost]].

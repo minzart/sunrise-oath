@@ -1,1 +1,1 @@
-Writing [[down]] [[my]] [[heresy]] (or [[revelation]], whichever it [[is]]) [[is]] [[my]] divine [[duty]].
+[[Writing]] [[down]] [[my]] [[heresy]] (or [[revelation]], whichever [[it]] [[is]]) [[is]] [[my]] [[divine]] [[duty]].

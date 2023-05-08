@@ -1,1 +1,1 @@
-“[[The]] [[time]] has come.”
+“[[The]] [[time]] has [[come]].”

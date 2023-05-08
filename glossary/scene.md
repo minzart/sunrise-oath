@@ -1,1 +1,5 @@
-The last [[one]] of all fulfills the [[farce]], and trumps the [[tragedy]]. I took five friends with [[me]] to [[act]] a [[play]].
+[[Tara]] [[helped]] [[me]] [[finish]] [[my]] fries, [[and]] used [[a]] wet wipe [[from]] [[her]] purse. “So, [[Gale]] [[Jones]]. [[What]] [[do]] [[you]] [[make]] [[of]] [[free]] [[will]]?”  
+  
+[[I]] finished [[my]] beer. “[[A]] useful [[illusion]].”  
+  
+“[[Good]],” [[she]] [[said]], [[like]] [[she]] [[was]] testing [[me]]. “[[Now]], [[who]] might [[the]] illusionist [[be]]?” 

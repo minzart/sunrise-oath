@@ -1,0 +1,1 @@
+[[When]] [[Fluffy]] [[sees]] [[a]] [[young]] [[adventurer]] [[who]] [[knows]] [[not]] [[the]] [[dangers]] [[of]] [[the]] [[world]], [[she]] [[feels]] compelled [[to]] [[help]].

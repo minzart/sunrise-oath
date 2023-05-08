@@ -1,2 +1,2 @@
 [[Evil]] [[Days]] [[Redeemed]]  
-Aurora chasing Collis across timelines, [[as]] [[a]] [[love]] [[story]].
+Aurora chasing Collis [[across]] timelines, [[as]] [[a]] [[love]] [[story]].

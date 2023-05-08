@@ -1,0 +1,1 @@
+[[This]] [[force]] [[that]] keeps [[me]] tethered [[and]] treasured.

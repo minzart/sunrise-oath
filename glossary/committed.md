@@ -1,1 +1,1 @@
-Collis was [[blind]], and gained [[sight]] on the day ere she [[left]]. This [[is]] what [[changed]] the [[timeline]]. The magical entanglement [[with]] the daughter of Flamel caused a [[new]] [[world]] to come [[into]] [[being]].
+Collis was [[blind]], and gained [[sight]] on the [[day]] ere she [[left]]. This [[is]] what [[changed]] the [[timeline]]. The [[magical]] entanglement [[with]] the daughter of Flamel caused a [[new]] [[world]] to [[come]] [[into]] [[being]].

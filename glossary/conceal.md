@@ -1,0 +1,1 @@
+[[And]] sometimes, [[if]] [[the]] conversation [[became]] overly technical, [[he]] would [[excuse]] himself and take me out to the [[garden]], where he patiently addressed my [[most]] pressing inquiries. “Why do I fall after I jump?“ I asked while bouncing around on one [[such]] occasion. “Who made up that [[rule]]?“ 

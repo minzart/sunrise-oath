@@ -1,4 +1,4 @@
-[[She]] laughed. “Are [[you]] [[a]] [[child]], [[Gale]] [[Jones]]?”
+[[She]] [[laughed]]. “[[Are]] [[you]] [[a]] [[child]], [[Gale]] [[Jones]]?”
 
 “[[You]] bet [[I]] [[am]].”
 

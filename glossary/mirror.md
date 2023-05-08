@@ -1,0 +1,2 @@
+“[[Good]] [[old]] Douglas.” [[Her]] [[emerald]] [[eyes]] [[focused]] [[on]] [[the]] [[image]] staring [[back]] [[at]] [[her]]. “Think [[about]] [[it]]. Any [[act]], [[feeling]], [[and]] [[thought]] [[is]] [[the]] [[fruit]] [[of]] folly, [[the]] mechanisms [[of]] [[a]] [[machine]], [[the]] playback [[of]] [[a]] [[cosmic]] four-dimensional sculpture. [[At]] some [[point]], [[the]] [[mind]] [[may]] [[even]] [[point]] [[at]] [[itself]], or [[take]] [[a]] [[long]] hard [[look]] [[at]] its [[reflection]].”  
+  

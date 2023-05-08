@@ -1,8 +1,8 @@
-  metafiction blockbuster [[documentary]] [[game]] show  
+  metafiction blockbuster [[documentary]] [[game]] [[show]]  
   
-characters in film [[know]] [[they]] are [[acting]] out a play  
-but find out more about the play as [[they]] [[act]] in it  
-the emotions are [[real]]  
+characters in film [[know]] [[they]] [[are]] [[acting]] out a [[play]]  
+but find out more about the [[play]] as [[they]] [[act]] in it  
+the emotions [[are]] [[real]]  
   
 law treatise  
 WAY  
@@ -34,7 +34,7 @@ THE WATERLOO-BERLIN MELOMANE
 olivia  
 simone  
   
-play  
+[[play]]  
 COLLIS  
 selene  
 médée  
@@ -97,7 +97,7 @@ ufotable
 abrams  
   
 animated film  
-PYGMALION  
+[[PYGMALION]]  
 ghibli  
 miyazaki_[[ai]]  
   

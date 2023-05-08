@@ -1,0 +1,1 @@
+“[[You]] [[always]] [[do]] [[that]],” [[I]] [[say]] plainly. “[[Quote]] [[me]], [[copy]] [[me]], mock [[me]].”

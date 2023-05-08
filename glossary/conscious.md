@@ -1,0 +1,1 @@
+Messed up [[how]] [[a]] [[year]] [[ago]], [[I]] [[did]] [[not]] yet grok [[how]] [[much]] [[meaning]] [[itself]] [[is]] [[filtered]] [[through]] [[the]] [[lens]] [[of]] [[our]] [[biology]] [[and]] [[experience]]. 

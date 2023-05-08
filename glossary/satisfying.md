@@ -1,0 +1,1 @@
+[[What]] Rennie [[told]] [[me]] [[about]] [[homestead]] [[is]] [[on]] [[my]] [[mind]].

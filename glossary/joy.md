@@ -1,1 +1,1 @@
-[[Eroica]] did Martin [[wrong]] [[through]] [[never]] seeing him [[as]] [[family]], but Martin [[also]] did her [[wrong]]. 
+[[Eroica]] did Martin [[wrong]] [[through]] [[never]] [[seeing]] him [[as]] [[family]], but Martin [[also]] did her [[wrong]]. 

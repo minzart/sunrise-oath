@@ -1,0 +1,1 @@
+[[Enlightenment]]—[[the]] [[end]], [[and]] [[then]] [[a]] [[start]].

@@ -1,0 +1,1 @@
+Greg stood up [[from]] [[the]] chair [[and]] [[looked]] out [[the]] window [[at]] [[the]] [[well]]-tended [[garden]] [[below]]. “[[I]] [[still]] [[remember]] [[when]] [[your]] [[mother]] would present [[the]] [[most]] [[marvelous]] creations [[at]] dinnertime.“ 

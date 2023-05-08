@@ -1,1 +1,1 @@
-My [[mind]] came up [[with]] this, then slumbered [[well]]. I [[found]] the [[path]] I always should [[have]] [[taken]].  
+My [[mind]] [[came]] up [[with]] this, then slumbered [[well]]. I [[found]] the [[path]] I always [[should]] [[have]] [[taken]].  

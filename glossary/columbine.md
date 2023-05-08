@@ -1,0 +1,1 @@
+[[I]] [[laughed]]. [[Over]] [[the]] [[course]] [[of]] [[our]] [[sessions]], [[her]] [[way]] [[with]] [[words]] grew [[on]] [[me]].

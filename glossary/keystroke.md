@@ -1,0 +1,1 @@
+I [[want]] [[something]] that saves [[my]] thoughts [[without]] [[me]] [[having]] to worry that the [[program]] [[will]] bug [[out]] [[and]] kaput [[my]] work.

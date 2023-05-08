@@ -2,14 +2,14 @@
   
 Trivium  
   
-Logic - Atlas  
+[[Logic]] - Atlas  
 Grammar - Clement  
 Rhetoric - [[Jones]]  
   
   
 Quadrivium  
   
-Prose - [[Beaulieu]]  
+[[Prose]] - [[Beaulieu]]  
 Lyric - Hawthorn  
 [[Poetry]] - Stroganov  
 [[History]] - [[Vici]]

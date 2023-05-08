@@ -1,0 +1,1 @@
+[[Third]]: [[every]] [[force]] has [[an]] equal [[and]] opposite [[force]]. Push [[comes]] [[to]] [[shove]].

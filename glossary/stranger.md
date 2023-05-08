@@ -1,1 +1,1 @@
-A long episode of my [[consciousness]]: on a bus, a woman with brown hair sat a few rows [[ahead]]. 
+A [[long]] episode of my [[consciousness]]: on a bus, a woman with brown hair sat a few rows [[ahead]]. 

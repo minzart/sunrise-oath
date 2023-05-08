@@ -1,0 +1,1 @@
+[[We]] arrived at [[the]] gates [[sometime]] [[later]]. [[My]] steps were tentative when [[I]] opened [[the]] door and stepped out. My companion was [[still]] in the car, adjusting his seat to lie flat. He kicked back, [[put]] his [[arms]] behind his head, and [[closed]] his [[eyes]].

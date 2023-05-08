@@ -1,0 +1,1 @@
+[[If]] [[you]] [[must]] [[cry]], [[cry]] [[to]] [[laugh]]. [[If]] [[you]] [[must]] starve, starve [[to]] eat. [[If]] [[you]] [[must]] [[kill]], [[kill]] [[to]] [[save]]. [[If]] [[you]] [[must]] [[die]], [[die]] [[to]] [[live]].

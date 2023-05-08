@@ -1,0 +1,1 @@
+[[Started]] [[at]] Ecclesiastes, ended [[at]] Zen koans. [[With]] Gödel, [[Escher]], Bach smack dab [[in]] [[the]] middle.

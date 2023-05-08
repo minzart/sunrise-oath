@@ -1,1 +1,1 @@
-I think [[Adam]] was a superman, a conscious [[being]] in the sense of a [[crowd]]. Adam literally [[existed]], but was not [[one]] singular [[human]] specimen. I think the Tribes of [[Israel]] were [[also]] supermen.
+I think [[Adam]] was a [[superman]], a [[conscious]] [[being]] in the sense of a [[crowd]]. Adam literally [[existed]], but was not [[one]] singular [[human]] specimen. I think the Tribes of [[Israel]] were [[also]] supermen.

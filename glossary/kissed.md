@@ -1,0 +1,1 @@
+[[She]] [[pulled]] [[away]]. [[With]] [[a]] [[drop]] [[of]] [[her]] precious [[head]] [[against]] [[his]] [[chest]], [[she]] [[was]] rid [[of]] [[her]] own meager [[weight]]. “[[I]] [[never]] [[knew]] [[this]] [[is]] [[how]] [[it]] [[was]],” [[she]] muttered, [[and]] kissed [[his]] [[bare]] torso. “[[If]] [[only]] [[I]] [[could]] [[bottle]] [[up]] [[this]] [[moment]].”

@@ -1,0 +1,1 @@
+[[Maybe]] [[that]] [[is]] [[the]] [[best]] [[way]] [[to]] [[see]] [[it]]: [[one]] makes [[art]] [[when]] [[one]] has [[choice]] [[and]] [[knows]] [[it]].

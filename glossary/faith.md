@@ -1,1 +1,1 @@
-The hero starts [[without]], the villain [[with]]. 
+The [[hero]] starts [[without]], the villain [[with]]. 

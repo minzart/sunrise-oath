@@ -1,0 +1,1 @@
+Lena trudged [[through]] [[the]] [[ruins]], [[her]] [[senses]] sharp [[and]] alert. [[The]] [[wind]] howled [[around]] [[her]], kicking [[up]] dust [[and]] [[sand]] [[that]] stung [[her]] [[face]]. [[She]] [[was]] used [[to]] [[it]] [[by]] [[now]]; [[since]] [[the]] cataclysm, [[she]] had [[learned]] [[the]] [[dangers]] [[of]] [[the]] [[new]] [[world]] inside [[and]] [[out]].

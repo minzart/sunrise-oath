@@ -1,0 +1,1 @@
+[[Timothy]] [[said]] [[that]] [[a]] theologian [[is]] [[to]] [[a]] philosopher what [[a]] [[man]] [[of]] [[science]] [[is]] [[to]] [[a]] builder [[of]] bridges.

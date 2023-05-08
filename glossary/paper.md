@@ -1,0 +1,1 @@
+[[Nothing]] [[is]] [[as]] [[it]] [[seemed]] [[at]] [[first]] [[conception]].

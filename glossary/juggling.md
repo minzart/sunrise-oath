@@ -1,0 +1,1 @@
+[[Remember]]: [[edit]] a [[lot]]. Reduce everything as you re-[[read]], to [[make]] connections stronger. 

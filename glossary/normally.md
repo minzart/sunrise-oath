@@ -1,0 +1,1 @@
+[[Jews]] [[have]] [[no]] [[need]] [[for]] [[chance]].

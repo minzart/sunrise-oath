@@ -1,0 +1,1 @@
+I have no idea how you will react, but God [[knows]]. Everything is God’s plan. Everyone is an actor in God’s [[cosmic]] [[play]].

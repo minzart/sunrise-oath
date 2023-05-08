@@ -1,1 +1,1 @@
-[[As]] [[Gale]] becomes [[isolated]] [[in]] his [[pursuit]], [[he]] realizes that [[she]] [[is]] [[a]] [[figment]] [[of]] his imagination and [[must]] [[confront]] [[the]] [[consequences]] [[of]] his actions and rebuild his [[relationships]]. 
+[[As]] [[Gale]] becomes [[isolated]] [[in]] his [[pursuit]], [[he]] realizes [[that]] [[she]] [[is]] [[a]] [[figment]] [[of]] his [[imagination]] [[and]] [[must]] [[confront]] [[the]] [[consequences]] [[of]] his [[actions]] [[and]] rebuild his [[relationships]]. 

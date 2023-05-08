@@ -1,0 +1,1 @@
+[[Only]] [[when]] it [[was]] [[put]] [[in]] [[words]] [[did]] [[I]] [[understand]] [[the]] [[possibilities]]. 

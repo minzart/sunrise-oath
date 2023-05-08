@@ -1,0 +1,1 @@
+[[I]] [[woke]] [[up]] [[at]] 5am [[for]] [[the]] [[first]] [[time]] [[in]] [[a]] while, [[and]] wow [[am]] [[I]] [[ever]] [[more]] [[creative]] [[if]] [[I]] wake before [[sunrise]]. [[It]]'s [[not]] [[even]] [[close]]. 

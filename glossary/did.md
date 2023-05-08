@@ -1,0 +1,1 @@
+Catherine’s fib lives on, I mused while walking to the parking lot. Fact is often weirder than [[fiction]], but weirdness is hardly a mark of craftsmanship. Well-crafted [[fiction]] wins [[against]] fact, whenever and wherever we seek not the [[latter]].

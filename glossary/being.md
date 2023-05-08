@@ -1,1 +1,1 @@
-[[Ancra]] made Collis [[born]] [[without]] magic. Knowing this, the daughter of Flamel entangled herself [[with]] her. This [[is]] to [[have]] a non-[[mage]] under her [[tutelage]] and control [[without]] [[having]] to meet [[anyone]] else.  
+[[Ancra]] made Collis [[born]] [[without]] magic. Knowing this, the daughter of Flamel entangled herself [[with]] her. This [[is]] to [[have]] a non-[[mage]] under her [[tutelage]] and control [[without]] [[having]] to meet [[anyone]] [[else]].  

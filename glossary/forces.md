@@ -1,3 +1,3 @@
-“Besides, seeking another’s past is more trouble than it’s worth. If you get sick of searching, will you come back for me, a nameless stranger?”
+“Besides, seeking another’s past is more trouble than it’s worth. If you [[get]] sick of [[searching]], [[will]] you [[come]] back for me, a nameless stranger?”
 
-“Can’t we [[cross]] that bridge when we get there?” What right had her [[hazel]] eyes to beckon, and what need had they to ask twice? Of course I will be here. Why was she blind to that? I resented her, and my heart [[hardened]]. “Don’t look at me like that.”
+“Can’t [[we]] [[cross]] that bridge when [[we]] [[get]] there?” What right had her [[hazel]] eyes to beckon, and what need had they to ask twice? Of course I [[will]] be here. Why was she blind to that? I resented her, and my heart [[hardened]]. “Don’t [[look]] at me like that.”

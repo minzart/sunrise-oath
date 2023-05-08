@@ -1,4 +1,4 @@
-“[[I]]’ll forgive [[you]] this [[time]]. So, [[why]] Audrey?”
+“[[I]]’ll [[forgive]] [[you]] this [[time]]. So, [[why]] Audrey?”
 
 “Audrey Hepburn, [[the]] actress.”
 

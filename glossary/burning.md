@@ -1,1 +1,1 @@
-Thirty years [[after]] [[our]] [[first]] [[meeting]], I was sitting on a couch [[with]] the [[love]] of my [[dreams]], my fated [[bride]], watching a South Korean film based on a [[murakami|Murakami]] [[story]].
+Thirty [[years]] [[after]] [[our]] [[first]] [[meeting]], I was [[sitting]] on a couch [[with]] the [[love]] of my [[dreams]], my fated [[bride]], watching a South Korean film based on a [[murakami|Murakami]] [[story]].

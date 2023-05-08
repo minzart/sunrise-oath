@@ -1,0 +1,1 @@
+[[The]] [[force]] [[of]] [[her]] [[lesson]] [[pushed]] [[me]] [[to]] [[try]].

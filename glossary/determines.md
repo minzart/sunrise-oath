@@ -1,0 +1,1 @@
+[[Comfort]] [[is]] [[a]] [[matter]] [[of]] [[understanding]], [[understanding]] [[is]] [[a]] [[matter]] [[of]] [[mind]], [[and]] [[mind]] [[is]] [[a]] [[matter]] [[of]]…[[well]], [[matter]]. 

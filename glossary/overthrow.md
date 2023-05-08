@@ -1,0 +1,1 @@
+Their [[courage]] grown, they stand up [[mighty]] tall.

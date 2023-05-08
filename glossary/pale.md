@@ -1,0 +1,1 @@
+[[They]] [[danced]] [[to]] "[[Nothing]] [[Broken]] But [[My]] [[Heart]]" [[by]] Celine Dion, [[a]] remarkable fact [[as]] [[the]] [[dance]] occurred [[on]] August [[2]], [[1992]] while [[the]] [[song]]'s official release [[was]] [[on]] August 3, [[1992]].

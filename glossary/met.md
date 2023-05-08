@@ -1,0 +1,1 @@
+[[In]] [[her]] [[arms]], [[her]] warm [[embrace]], [[he]] [[found]] his [[happy]] [[ever]] [[after]].

@@ -1,1 +1,3 @@
-*Persist.* Honestly [[I]] ran out [[of]] [[things]] [[to]] write about, but [[I]] should [[keep]] going. None [[of]] this writing [[is]] that useful, but [[there]]'s [[something]] magical about letting [[my]] thoughts [[flow]]. [[No]] point kidding [[myself]] that [[I]] will [[use]] this, but [[who]] knows. 
+They whisper plan and plot and [[scam]] and scheme
+To [[overthrow]] the tyrant's cold regime.  
+

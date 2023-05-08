@@ -1,1 +1,1 @@
-For some reason it never occurred to me that I can just keep typing and then copy-paste everything [[into]] [[separate]] files later. 
+For some reason it never occurred to me that I can just keep typing and then [[copy]]-paste everything [[into]] [[separate]] files later. 

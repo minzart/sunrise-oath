@@ -1,0 +1,1 @@
+"[[Look]] [[at]] yourself," [[she]] [[said]], [[and]] [[shook]] [[her]] [[head]]. "[[The]] [[words]] [[you]] [[speak]] [[are]] dull [[and]] [[out]] [[of]] breath. [[How]] [[live]] [[you]] [[in]] [[the]] squalor [[of]] [[your]] [[mind]]?" 

@@ -1,0 +1,1 @@
+[[In]] making [[my]] thoughts [[come]] [[the]] natural [[way]], [[the]] jumble [[of]] [[my]] rambles [[no]] longer charms [[me]].

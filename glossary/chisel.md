@@ -1,0 +1,1 @@
+[[You]] [[make]] [[the]] [[rules]] [[as]] [[you]] [[go]], [[progress]] [[as]] [[you]] deem appropriate, [[and]] [[create]] [[a]] [[world]] [[that]] [[is]] [[as]] persistent, fragile, or disposable [[as]] [[one]] [[wishes]].

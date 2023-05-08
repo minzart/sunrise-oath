@@ -1,0 +1,1 @@
+[[What]] [[does]] [[it]] [[say]] [[about]] [[me]] [[that]] spending [[a]] ton [[of]] money [[for]] [[the]] [[first]] [[time]] [[in]] [[a]] while has [[made]] [[me]] almost [[giddy]] [[with]] childish excitement?

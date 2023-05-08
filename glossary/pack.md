@@ -1,0 +1,1 @@
+[[About]] [[time]] [[I]] [[found]] [[myself]] [[a]] [[proper]] [[tool]], [[one]] [[that]] respects [[me]] [[by]] [[not]] deleting [[my]] previous [[writing]] [[when]] [[I]] [[take]] [[not]] [[the]] utmost care [[to]] preserve [[every]] [[keystroke]]. 

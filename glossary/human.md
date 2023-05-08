@@ -1,1 +1,1 @@
-[[Something]] [[happened]] six thousand years [[ago]].
+[[Something]] [[happened]] six thousand [[years]] [[ago]].

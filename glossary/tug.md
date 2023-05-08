@@ -1,0 +1,1 @@
+I looked over and saw the boy holding a Polaroid print. Rather hastily, I [[took]] it back and stuffed it into my back pocket. The father sighed and furrowed his [[brow]].

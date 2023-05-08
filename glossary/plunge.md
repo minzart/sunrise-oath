@@ -1,0 +1,1 @@
+[[Writing]] had [[existed]] [[for]] but six thousand [[years]]. [[The]] [[world]], [[as]] [[we]] [[know]] [[it]], [[is]] six thousand [[years]] [[old]].

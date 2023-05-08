@@ -1,1 +1,1 @@
-Yet both are true, [[the]] [[one]] [[and]] [[only]] [[truth]]!
+Yet both are [[true]], [[the]] [[one]] [[and]] [[only]] [[truth]]!

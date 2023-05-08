@@ -1,0 +1,1 @@
+[[Silence]] [[in]] [[my]] [[heart]], [[forever]]. [[At]] [[my]] side, [[Catherine]] [[took]] [[off]] her [[sunglasses]] [[and]] yawned.

@@ -1,0 +1,1 @@
+Emergent systems find equilibrium [[around]] [[neutering]] people [[in]] rural areas [[and]] [[appeasing]] people [[in]] urban areas.

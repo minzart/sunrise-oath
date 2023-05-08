@@ -1,0 +1,1 @@
+[[At]] twenty-five, [[Erisa]] [[is]] [[a]] [[skilled]] [[and]] resourceful adventurer, seeking [[to]] [[use]] [[her]] abilities [[to]] [[help]] those [[in]] [[need]] [[and]] exact revenge [[on]] those [[who]] wronged [[her]].

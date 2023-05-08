@@ -1,0 +1,1 @@
+Hilarious [[how]] any analysis [[of]] [[religion]] [[as]] [[the]] [[act]] [[of]] personifying agents [[also]] applies [[to]] personhood [[itself]].

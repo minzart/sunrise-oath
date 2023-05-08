@@ -1,1 +1,1 @@
-The ones [[with]] most to gain rebel against their parents, deconstructing the order in which [[they]] were sternly raised by maids and governesses, the paid instruments of the domestic [[ruling]] [[class]].  
+The ones [[with]] [[most]] to [[gain]] rebel [[against]] their [[parents]], deconstructing the order in which [[they]] were sternly raised by maids and governesses, the paid instruments of the domestic [[ruling]] [[class]].  

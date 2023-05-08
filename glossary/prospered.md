@@ -1,0 +1,1 @@
+I am poor in [[material]]! But rich in soul. The great pleasure of my days is reading and thinking. I could live and die in the seat I occupy.

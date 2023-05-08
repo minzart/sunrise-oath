@@ -3,11 +3,11 @@ Their [[perfect]] [[lot]] in life.
   
 Gale  
 [[Ancra]]  
-David  
+[[David]]  
 [[Timothy]]  
 Maximilian  
 Natalie  
 Tara  
-Eroica  
+[[Eroica]]  
 [[Louise]]  
 Catherine  

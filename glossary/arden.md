@@ -1,0 +1,1 @@
+[[Upon]] [[reading]] [[Morwenna]]’s lyric poem [[about]] [[a]] mysterious adventurer, writes [[a]] [[love]] poem [[of]] [[his]] own [[that]] woos [[her]].

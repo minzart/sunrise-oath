@@ -1,1 +1,1 @@
-[[the|The]] [[first]] [[letter]], [[the]] [[singular]] [[article]], [[the]] [[noun]] [[in]] [[theory]].
+[[The]] [[first]] [[letter]], [[the]] [[singular]] [[article]], [[the]] [[noun]] [[in]] [[theory]].

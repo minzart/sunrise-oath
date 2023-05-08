@@ -1,0 +1,1 @@
+Vines don't [[crush]] fences. [[They]] [[use]] [[them]] [[to]] grow, [[and]] [[have]] [[incentive]] [[to]] [[not]] [[make]] [[the]] fences rot.

@@ -1,0 +1,1 @@
+[[Soul]] [[shall]] [[not]] [[stand]] [[for]] [[sin]].

@@ -1,0 +1,1 @@
+[[A]] [[formidable]] [[presence]] [[that]] [[can]]'t [[be]] [[deplored]].

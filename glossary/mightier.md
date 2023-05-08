@@ -1,0 +1,1 @@
+[[No]] classic [[may]] surpass [[the]] trite cliché.

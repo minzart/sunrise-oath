@@ -1,0 +1,1 @@
+Psychedelics are [[only]] [[good]] [[as]] [[a]] temporary [[replacement]] [[for]] intellectual betters [[and]] peers.

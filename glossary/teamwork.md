@@ -1,0 +1,1 @@
+[[Let]] [[a]] boner [[be]] [[one]] [[who]] creates bones. Bones are [[in]] [[a]] [[human]]. Sperm [[is]] [[needed]] [[to]] [[create]] humans. Therefore, sperm [[is]] [[a]] boner. Therefore, [[a]] boner [[is]] [[a]] boner.

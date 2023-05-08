@@ -1,0 +1,1 @@
+“Yeah, it [[was]] [[a]] [[whole]] ordeal.“ [[He]] smirked. “But [[after]] [[she]] talked [[with]] [[you]] [[at]] [[the]] [[last]] Christmas [[party]], [[all]] [[suspicions]] were dispelled.“ 

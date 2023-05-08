@@ -1,5 +1,2 @@
-“[[I]] [[found]] this [[place]] two [[days]] [[ago]]. [[Early]] [[in]] [[the]] [[morning]], before it opened.”
+[[Salvation]] [[is]] [[lobotomy]]. [[The]] [[mind]] [[that]] [[sought]] [[to]] suffer [[was]] destroyed. [[I]] cannot [[rest]] [[in]] [[suffering]] [[for]] [[long]] (though [[I]] seek [[not]] [[to]] [[have]] [[God]] [[test]] [[me]]) before resting [[in]] [[the]] laurels [[of]] [[faith]] [[and]] [[grace]].
 
-“[[You]] haven’t come [[by]] before? [[We]]’ve [[been]] [[here]] since ’95.”
-
-“[[I]] came [[as]] [[a]] tourist [[in]] ’92. [[I]] [[moved]] [[here]] [[three]] months [[ago]], but haven’t [[gone]] [[around]] [[the]] city.”

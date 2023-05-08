@@ -1,0 +1,1 @@
+[[When]] [[I]] wake up [[at]] 8am, [[I]] doomscroll [[into]] [[oblivion]] before [[feeling]] [[rushed]] [[and]] anxious [[the]] [[rest]] [[of]] [[the]] [[day]]. 

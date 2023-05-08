@@ -1,0 +1,1 @@
+[[You]] [[were]] [[meant]] [[to]] [[read]] [[this]] [[sentence]]. [[Maybe]] [[you]] [[were]] [[meant]] [[to]] [[read]] [[it]], [[and]] [[reject]] [[it]] [[in]] [[your]] [[heart]]. Maybe now you are [[turning]] away from these words, putting what I have to say aside. Maybe you are reading on, yet confused at why I chose to start like this.

@@ -1,0 +1,1 @@
+“But science is cooler!“ I hopped off my bed and [[danced]] around the room, [[arms]] [[spread]] like wings. “Being able to fly without any incantations or potions is awesome. [[When]] scientists figure out how to slow down [[aging]], I [[will]] have no need for [[magic]] at all!“

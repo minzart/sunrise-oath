@@ -1,1 +1,1 @@
-[[Three]] [[decades]] [[ago]], [[I]] met [[my]] greatest [[love]].
+[[Three]] [[decades]] [[ago]], [[I]] [[met]] [[my]] greatest [[love]].

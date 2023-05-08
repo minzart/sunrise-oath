@@ -1,0 +1,1 @@
+Kenneth's critics are [[all]] [[trapped]] [[in]] Copeland.

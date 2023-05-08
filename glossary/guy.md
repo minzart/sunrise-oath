@@ -1,0 +1,1 @@
+[[a]] [[God]]-[[shaped]] [[hole]], or [[a]] [[hole]]-[[shaped]] [[God]]?

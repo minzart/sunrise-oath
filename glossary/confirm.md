@@ -2,4 +2,4 @@
 
 “My [[word]] is my bond.” I sat on the same [[bench]] and smoked a cigarette. She shielded her eyes with a hand that glowed [[pink]] in the piercing light.
 
-For two minutes, we enjoyed the [[view]].
+For two minutes, [[we]] enjoyed the [[view]].

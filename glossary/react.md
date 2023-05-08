@@ -1,0 +1,1 @@
+Letting go of self at all, letting reality flow through our [[senses]] without [[further]] interpretation, is the Way. [[Such]] is the path of the felled martyr, the Christ; the fiery monk, the Buddha. The start of this journey stays in the realm of [[identity]]. Trying not to try is trying, til the [[day]] it is as natural as [[breathing]].  

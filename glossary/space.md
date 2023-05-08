@@ -1,0 +1,1 @@
+[[Every]] [[thought]], [[every]] [[action]], [[every]] [[regret]], [[every]] [[triumph]]—[[all]] [[predestined]].

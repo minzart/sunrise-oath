@@ -1,0 +1,1 @@
+[[When]] [[he]] [[looked]] [[up]], [[he]] [[was]] [[met]] [[with]] [[the]] maiden’s [[first]] smile. 

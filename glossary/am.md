@@ -1,1 +1,1 @@
-[[In]] [[the]] [[morning]], [[I]] [[shall]] [[see]] [[Montreal]] [[outside]] [[my]] [[door]], its [[many]] transformations. [[The]] [[sun]] will [[rise]], and [[I]] [[shall]] be watching.
+[[In]] [[the]] [[morning]], [[I]] [[shall]] [[see]] [[Montreal]] [[outside]] [[my]] [[door]], its [[many]] transformations. [[The]] [[sun]] [[will]] [[rise]], and [[I]] [[shall]] be [[watching]].

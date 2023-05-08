@@ -1,1 +1,1 @@
-I [[am]] [[one]] arid grain [[of]] [[sand]], [[soon]] to be plunged in [[an]] [[ocean]].
+[[I]] [[am]] [[one]] arid grain [[of]] [[sand]], [[soon]] [[to]] [[be]] plunged [[in]] [[an]] [[ocean]].

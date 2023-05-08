@@ -1,1 +1,1 @@
-[[Drelil]] [[is]] a [[generated]] [[character]] for [[whom]] I [[have]] no purpose. [[Imagine]] God creating [[someone]], and not feeling like their part in the [[plan]] [[is]] that important.
+[[Drelil]] [[is]] a [[generated]] [[character]] for [[whom]] I [[have]] no purpose. [[Imagine]] God creating [[someone]], and not [[feeling]] like their part in the [[plan]] [[is]] that important.

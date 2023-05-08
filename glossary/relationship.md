@@ -1,1 +1,1 @@
-Tara knew that Gale knew. She and Catherine were already [[uneasy]] friends, and she was fond of Louise in [[an]] idolizing way. It [[hurt]] that the man and woman she [[loved]] most ended up together. 
+Tara knew that Gale knew. She and Catherine were [[uneasy]] friends, and she was fond of Louise. It [[hurt]] that the man and woman she [[loved]] [[most]] ended up [[together]]. 

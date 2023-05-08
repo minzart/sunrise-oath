@@ -1,0 +1,1 @@
+“Luckily [[the]] photo didn’t hit [[anyone]], or [[else]] [[they]]’d yell ‘[[Eureka]]’! Just [[like]] [[Newton]] [[did]].“

@@ -1,0 +1,1 @@
+[[Tertullian]] [[read]] [[of]] [[Mary]] [[Magdalene]], [[sister]] [[of]] Lazarus, [[where]] [[we]] [[now]] [[read]] [[of]] Martha.

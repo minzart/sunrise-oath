@@ -1,9 +1,9 @@
-[[Science]] fiction, clean, philosophy, nihilism, androids, cliffhanger
+[[Science]] [[fiction]], clean, philosophy, nihilism, androids, cliffhanger
 
 
 Mundane Tragedy
 
-Dante made Beatrice to save himself when he was [[older]] [[if]] he [[lost]] [[hope]].
+Dante made Beatrice to [[save]] himself [[when]] he was [[older]] [[if]] he [[lost]] [[hope]].
 
 Inferno - 
 Purgatorio - Beatrice [[is]] [[an]] AI made by Dante.

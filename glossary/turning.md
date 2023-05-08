@@ -1,0 +1,1 @@
+[[The]] [[music]] box [[in]] [[my]] bedroom shrine proved [[God]] [[to]] [[me]]. [[The]] [[song]] [[was]] [[a]] spell [[that]] [[spoke]] [[without]] [[words]].

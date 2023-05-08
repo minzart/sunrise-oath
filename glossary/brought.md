@@ -1,3 +1,3 @@
-« Hello. Let’s enjoy some [[coffee]]. » [[Alain]] [[moved]] everything onto the [[table]] — two [[coffee]]-[[like]] concoctions, and some shell-shaped madeleines. A thick finger indicated the spread. « Help yourself. »
+« Hello. Let’s enjoy some [[coffee]]. » [[Alain]] [[moved]] everything [[onto]] the [[table]] — two [[coffee]]-[[like]] concoctions, and some shell-[[shaped]] madeleines. A thick finger indicated the [[spread]]. « [[Help]] yourself. »
 
-I lifted a cup to my lips, and was surprised. I was [[far]] from an expert, but liked how the salt reduced the bitterness, how the butter was savory. I took another sip, and [[felt]] a [[lump]]. « May I have a ‹ spoon ›? »
+I lifted a cup to my lips, and was surprised. I was [[far]] from an expert, but liked how the salt reduced the bitterness, how the butter was savory. I [[took]] another sip, and [[felt]] a [[lump]]. « May I have a ‹ spoon ›? »

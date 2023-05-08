@@ -1,0 +1,1 @@
+[[A]] [[new]] [[day]]’s [[dawn]], [[forevermore]].

@@ -1,0 +1,1 @@
+Books are education. [[Art]] [[is]] illumination.

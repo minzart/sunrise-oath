@@ -1,0 +1,1 @@
+[[Through]] [[Arden]]'s wounds [[and]] [[Morwenna]]'s plight, [[we]] [[learned]] [[of]] spirits [[and]] [[magic]] unbound, [[of]] [[love]] [[and]] loyalty, [[courage]] [[and]] might, [[the]] [[power]] [[of]] [[nature]] [[that]] surrounds.

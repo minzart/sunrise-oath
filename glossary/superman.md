@@ -1,1 +1,1 @@
-[[Seven]] Coalitions to defeat [[one]] Napoleon.
+[[Seven]] coalitions [[to]] [[defeat]] [[one]] Napoleon.

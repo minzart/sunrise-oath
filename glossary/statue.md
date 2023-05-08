@@ -1,0 +1,1 @@
+[[The]] [[goddess]] [[of]] [[love]] [[saw]] [[the]] [[crying]] [[man]], [[and]] [[took]] [[pity]] [[on]] him. 

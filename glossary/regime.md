@@ -1,0 +1,1 @@
+[[Am]] [[I]] [[standing]] [[on]] [[the]] [[Earth]], or [[is]] [[the]] [[blue]]-green marble balanced [[on]] [[the]] soles [[of]] [[my]] feet?

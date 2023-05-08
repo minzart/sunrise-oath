@@ -1,0 +1,1 @@
+[[Her]] [[eye]]’s [[glimmer]], catching [[the]] [[light]] [[of]] [[the]] [[summer]] [[sun]], blinded [[me]] [[from]] [[across]] [[the]] [[table]] [[at]] Génoise et Thé. “[[This]] [[is]] [[a]] [[secret]] rebel hideout, [[the]] [[conspirator]]'s [[corner]].”

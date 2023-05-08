@@ -1,0 +1,1 @@
+[[The]] craft [[of]] [[her]] [[father]] [[made]] [[her]], [[and]] destroyed [[her]].

@@ -1,1 +1,1 @@
-[[Why]] [[is]] it so hard [[to]] write normally? [[The]] concept [[of]] scripture [[itself]] [[is]] antithetical [[to]] creativity. [[How]] [[am]] [[I]] [[supposed]] [[to]] [[speak]], when [[all]] that [[is]] holy has [[been]] [[said]]?
+[[Why]] [[is]] it so hard [[to]] [[write]] [[normally]]? [[The]] concept [[of]] scripture [[itself]] [[is]] antithetical [[to]] creativity. [[How]] [[am]] [[I]] [[supposed]] [[to]] [[speak]], when [[all]] that [[is]] [[holy]] has [[been]] [[said]]?

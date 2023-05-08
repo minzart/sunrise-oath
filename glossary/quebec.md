@@ -1,1 +1,1 @@
-The Brisbois Commission recommends Dictator to cover up war crimes, but he refuses. He says he has nothing to be ashamed of.
+[[The]] Brisbois Commission recommends Dictator [[to]] cover [[up]] [[war]] crimes, but [[he]] refuses. [[He]] says [[he]] has [[nothing]] [[to]] [[be]] ashamed [[of]].

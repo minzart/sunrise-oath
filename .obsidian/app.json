@@ -2,7 +2,7 @@
   "trashOption": "system",
   "promptDelete": false,
   "alwaysUpdateLinks": false,
-  "newFileLocation": "root",
+  "newFileLocation": "folder",
   "newFileFolderPath": "glossary",
   "attachmentFolderPath": "archive",
   "showInlineTitle": false,

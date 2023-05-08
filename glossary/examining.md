@@ -4,4 +4,4 @@
 
 “It’s something I [[lost]] along the way.”
 
-“You [[lost]] your name? You have amnesia, then?”
+“You [[lost]] your name? You have [[amnesia]], then?”

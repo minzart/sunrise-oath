@@ -1,1 +1,1 @@
-The [[world]] is materially [[better]] than ever before, yet Man [[suffers]]. 
+The [[world]] is materially [[better]] than [[ever]] before, yet Man [[suffers]]. 

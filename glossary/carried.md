@@ -1,0 +1,1 @@
+[[A]] [[ponderous]] [[presence]], [[a]] load [[to]] [[bear]].

@@ -1,4 +1,4 @@
-“[[My]] [[days]] are [[all]] [[the]] [[same]]. Differences exist, but [[no]] specifics [[matter]]. [[Is]] it [[wrong]] [[to]] paint this [[in]] broad strokes?”
+“[[My]] [[days]] are [[all]] [[the]] [[same]]. Differences exist, but [[no]] specifics [[matter]]. [[Is]] it [[wrong]] [[to]] [[paint]] this [[in]] [[broad]] strokes?”
 
 “That’s [[the]] [[only]] [[way]] it can be painted at all. It’s like you’ve [[lost]] your past over and over.”
 

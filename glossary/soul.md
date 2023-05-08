@@ -1,0 +1,1 @@
+[[I]] [[have]] [[learned]] it [[from]] [[God]] [[the]] [[Father]], sworn it [[to]] [[God]] [[the]] [[Son]], lived it [[through]] [[God]] [[the]] [[Spirit]].

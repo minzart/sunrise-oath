@@ -1,1 +1,1 @@
-[[Nothing]] [[outside]] [[the]] [[frame]]. [[Nothing]].
+[[My]] [[time]] [[in]] non-[[magical]] [[society]] had [[armed]] [[me]] [[with]] so [[much]] [[knowledge]], but [[knowledge]] has [[a]] [[habit]] [[of]] disarming those [[who]] happen [[upon]] it. Rather than [[reveal]] [[the]] secrets [[of]] [[the]] [[universe]], [[science]] simply gave [[me]] [[new]] ways [[to]] rationalize [[and]] [[accept]] [[my]] [[new]] [[fate]].

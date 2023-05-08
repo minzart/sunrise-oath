@@ -1,1 +1,1 @@
-Catherine tells Gale to not tell Louise that Tara used to bully her in freshman year. She wanted not to bring up the past, or pit Louise against Tara.
+Catherine tells Gale to not tell Louise that Tara used to bully her in freshman [[year]]. She wanted not to [[bring]] up the past, or pit Louise [[against]] Tara.

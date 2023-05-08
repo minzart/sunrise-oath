@@ -1,0 +1,1 @@
+[[I]] [[have]] [[to]] [[thank]] William [[for]] [[the]] recommendation, [[and]] [[also]] [[for]] his [[kindness]] [[in]] [[not]] insisting [[that]] [[I]] pay his dad [[as]] soon [[as]] [[possible]].

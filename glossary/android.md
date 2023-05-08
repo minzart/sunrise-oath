@@ -1,0 +1,1 @@
+[[The]] [[power]] [[of]] [[her]] [[love]] [[changes]] him.

@@ -1,0 +1,1 @@
+[[I]] [[let]] [[her]] [[fall]]. [[Her]] [[body]] [[crashes]] [[into]] [[the]] [[water]], [[and]] [[where]] [[she]] sinks [[in]] becomes [[the]] center [[of]] [[a]] [[mighty]] vortex that sucks everything [[into]] it. In the void, [[outside]] of the [[time]] and [[space]] that these [[words]] [[ordain]], I stand and [[wonder]] [[where]] I [[should]] [[go]] next.

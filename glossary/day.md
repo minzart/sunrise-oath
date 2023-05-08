@@ -1,0 +1,1 @@
+“[[Power]] [[is]] [[tragedy]],” [[was]] [[his]] [[verdict]]. “[[Is]] [[that]] [[what]] [[you]] [[are]] [[telling]] [[me]]?”

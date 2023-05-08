@@ -1,1 +1,1 @@
-It [[was]] [[gone]]. [[My]] [[bare]] foot [[was]] wet [[with]] [[the]] waters [[of]] [[the]] strange planet. “Sorry,” [[I]] [[said]], though [[there]] [[was]] [[no]] [[reason]] [[to]] be.  
+It [[was]] [[gone]]. [[My]] [[bare]] foot [[was]] wet [[with]] [[the]] waters [[of]] [[the]] [[strange]] planet. “[[Sorry]],” [[I]] [[said]], though [[there]] [[was]] [[no]] [[reason]] [[to]] be.  

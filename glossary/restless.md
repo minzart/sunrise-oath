@@ -1,0 +1,1 @@
+[[My]] [[sight]] [[is]] [[true]]. [[My]] aim? [[It]] [[shall]] [[be]] tested. [[I]] [[am]] [[seen]], [[being]] watched [[by]] [[the]] [[snake]] [[and]] [[the]] [[father]] alike. [[A]] [[red]] flower, memento [[of]] [[a]] [[past]] council [[of]] wizards, gives [[me]] strength. Stricture [[of]] discipline [[and]] [[force]] [[of]] [[law]] [[command]] [[me]]. 

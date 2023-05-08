@@ -1,0 +1,1 @@
+[[He]] realizes [[he]] threw his [[past]] [[life]] [[away]] [[with]] [[no]] [[regard]] [[for]] it.

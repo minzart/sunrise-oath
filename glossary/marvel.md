@@ -1,0 +1,1 @@
+[[Happy]] [[I]] [[am]] [[to]] [[think]], [[and]] [[know]] [[I]] [[shall]] [[never]] [[see]] [[it]] [[all]]. 

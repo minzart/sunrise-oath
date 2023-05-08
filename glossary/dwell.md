@@ -1,0 +1,1 @@
+[[Let]] [[it]] [[shape]] us [[into]] [[art]].

@@ -1,0 +1,1 @@
+During [[that]] [[time]], [[Erisa]] [[learned]] [[to]] [[fend]] [[for]] herself [[in]] [[the]] wild, [[living]] [[off]] [[the]] land [[and]] sharpening [[her]] [[survival]] skills. 

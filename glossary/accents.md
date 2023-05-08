@@ -1,0 +1,1 @@
+“It was while [[sitting]] right there that an apple hit Mr. Newton right on the head! And what did he [[say]]?“

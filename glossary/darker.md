@@ -1,1 +1,1 @@
-Selene blinked, and flashed a faint smile. “I [[am]] a ball of pale fire.” She hummed ‘[[Autumn]] Leaves’, and made a [[face]]. “I never [[know]] the [[words]] to any [[song]]. A strange [[affliction]], my [[one]] glaring weakness.”  
+Selene blinked, and flashed a faint smile. “I [[am]] a ball of [[pale]] fire.” She hummed ‘[[Autumn]] Leaves’, and made a [[face]]. “I never [[know]] the [[words]] to any [[song]]. A [[strange]] [[affliction]], my [[one]] glaring weakness.”  

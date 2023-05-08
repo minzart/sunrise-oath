@@ -10,9 +10,9 @@ that I [[shall]] [[never]] let go: pachyderm).
 Not [[first]].  
   
 [[If]] [[only]] I [[could]] [[have]] the [[better]] trophy.  
-Just once, a victory for [[me]].  
+Just once, a [[victory]] for [[me]].  
   
-My classmates' younger siblings, [[walking]] home  
+My classmates' [[younger]] siblings, [[walking]] home  
 behind [[me]] on the narrow sidewalk,  
 [[said]] loud enough that I [[could]] [[also]] hear  
 that I was second smartest.  
@@ -25,21 +25,21 @@ But not for [[me]], the louder [[one]].
 [[They]] ranted in the car, and over dinner.  
 "Always the [[other]] family. [[Never]] ours."  
   
-Amen to that. His dad was cool.  
+Amen to that. His dad was [[cool]].  
   
 I went a grade above for English [[class]].  
 For [[one]] assignment on Medea,  
-I wrote a dialogue in [[perfect]] meter.  
+I wrote a dialogue in [[perfect]] [[meter]].  
 He [[told]] [[me]] it was [[good]].  
 [[Oh]], right.  
   
 I played piano [[better]] than he did,  
 but that was [[later]] in [[our]] teens.  
-By that [[time]], [[they]] were telling [[me]] to [[quit]],  
-as [[if]] the looming threat of force  
-had [[never]] hung above [[me]] as I practiced.  
+By that [[time]], [[they]] were [[telling]] [[me]] to [[quit]],  
+as [[if]] the looming threat of [[force]]  
+had [[never]] [[hung]] above [[me]] as I practiced.  
   
-I went to music school. [[They]] grieved.  
+I went to [[music]] school. [[They]] grieved.  
 At last, a [[future]] for myself.  
 And then, I dropped out in my last semester.  
 It [[hurt]] them more than [[me]]. That's [[why]].  
@@ -47,12 +47,12 @@ It [[hurt]] them more than [[me]]. That's [[why]].
 My former friend is [[now]] a lecturer.  
 A PhD at twenty-four.  
   
-I [[only]] ever beat him once in chess.  
+I [[only]] [[ever]] beat him once in chess.  
 Trapped by a [[line]] I [[found]] myself,  
-he stared awhile, and look up [[with]] a smile.  
+he stared awhile, and [[look]] up [[with]] a smile.  
 "[[Good]] [[game]]." He shook my sweaty hand.  
   
 [[There]] was no [[joy]] inside my [[heart]].  
-O Billy, can you ever let [[me]] win?  
+O Billy, can you [[ever]] let [[me]] win?  
   
-I fucked his high school girlfriend. [[Never]] [[told]] him.
+I fucked his [[high]] school girlfriend. [[Never]] [[told]] him.

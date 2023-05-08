@@ -1,1 +1,1 @@
-[[After]] the last rehearsal of the school year, [[they]] learned of a free week of [[summer]] [[activities]] for children. 
+[[After]] the last rehearsal of the school [[year]], [[they]] [[learned]] of a free week of [[summer]] [[activities]] for children. 

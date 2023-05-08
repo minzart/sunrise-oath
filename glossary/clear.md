@@ -1,0 +1,1 @@
+[[Morwenna]] [[sat]] [[under]] [[the]] [[shade]] [[of]] [[a]] [[tree]], [[her]] ink-stained [[hands]] clutching [[a]] [[quill]] [[and]] [[a]] [[piece]] [[of]] [[parchment]]. 

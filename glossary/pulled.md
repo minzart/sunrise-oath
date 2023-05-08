@@ -1,1 +1,1 @@
-“What [[shall]] [[you]] ever do when [[I]] [[leave]]?” [[she]] [[said]], leaving her [[hand]] [[on]] [[my]] elbow. “Wǒ hǎo [[shěbudé]] nǐ.”  
+“What [[shall]] [[you]] [[ever]] do when [[I]] [[leave]]?” [[she]] [[said]], [[leaving]] her [[hand]] [[on]] [[my]] elbow. “Wǒ hǎo [[shěbudé]] nǐ.”  

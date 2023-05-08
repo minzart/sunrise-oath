@@ -1,0 +1,1 @@
+Host websites [[and]] [[give]] [[them]] their own domain, but [[force]] [[text]] [[onto]] [[them]] [[that]] says "[[this]] site [[is]] [[under]] construction". So [[they]] [[could]] [[in]] [[theory]] [[get]] [[all]] net hosting services [[for]] [[free]], but [[they]] might pay [[to]] avoid [[the]] shame.

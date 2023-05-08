@@ -1,0 +1,1 @@
+“[[This]] [[part]] reads [[like]] Stephen [[King]]. [[A]] car [[should]] hit [[you]] [[for]] [[writing]] [[it]].” [[She]] circled [[the]] cursor [[around]] [[a]] [[sentence]]. “[[And]] [[this]] [[is]] straight [[from]] [[the]] journals [[of]] [[the]] [[Columbine]] shooters.”

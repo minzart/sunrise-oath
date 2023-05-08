@@ -1,0 +1,1 @@
+The father knelt down and spoke softly. “They’re not just photos, [[dear]]. They’re [[mementos]].“

@@ -1,1 +1,1 @@
-Where are you, [[beautiful]] [[stranger]] of the [[night]]?
+Where [[are]] you, [[beautiful]] [[stranger]] of the [[night]]?

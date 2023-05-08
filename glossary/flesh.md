@@ -1,1 +1,1 @@
-All that is [[body]]. [[The]] [[stars]] are [[thine]] [[eyes]]. [[Nature]].
+All that is [[body]]. [[The]] [[stars]] [[are]] [[thine]] [[eyes]]. [[Nature]].

@@ -1,4 +1,4 @@
-STUDYING / READING  
+STUDYING / [[READING]]  
   
 [[Eroica]] - [[best]] [[strategy]]  
 [[Catherine]] - [[best]] [[knowledge]]  

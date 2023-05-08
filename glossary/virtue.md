@@ -9,6 +9,6 @@ Humility
 ### SUPEREGO
 Chastity  
 Charity  
-Kindness
+[[Kindness]]
 
 

@@ -1,0 +1,1 @@
+[[Everything]] [[I]] [[write]] [[is]] [[for]] [[them]], [[and]] [[for]] [[the]] others [[I]] silently [[love]] [[without]] saying their [[names]] [[with]] [[my]] [[limited]] breath. 

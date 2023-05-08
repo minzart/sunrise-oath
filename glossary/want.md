@@ -1,1 +1,1 @@
-“Please.” Her smile, seductive and mature; her eyes, when were [[they]] ever so [[young]]? Those brown gems, free of color contacts, more than the [[false]] blue jewels I knew, [[revealed]] a maiden pure and [[innocent]].
+“Please.” Her smile, seductive and mature; her eyes, when were [[they]] [[ever]] so [[young]]? Those brown gems, free of color contacts, more than the [[false]] [[blue]] jewels I knew, [[revealed]] a maiden pure and [[innocent]].

@@ -1,0 +1,1 @@
+[[What]] [[candles]] [[may]] [[be]] [[held]] [[to]] [[speed]] [[them]] [[all]]? [[Not]] [[in]] [[the]] [[hands]] [[of]] boys, but [[in]] their [[eyes]] [[Shall]] [[shine]] [[the]] [[holy]] glimmers [[of]] goodbyes.

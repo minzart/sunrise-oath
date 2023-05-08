@@ -1,0 +1,1 @@
+“[[Beethoven]] [[was]] [[a]] [[master]] [[of]] [[rhetoric]],” [[she]] [[said]], [[and]] [[I]] [[had]] [[no]] [[idea]] [[what]] [[she]] [[meant]] [[til]] [[she]] [[had]] [[Louise]] [[play]] [[me]] [[the]] [[piano]] [[variations]] [[of]] [[the]] [[same]] [[name]].

@@ -1,0 +1,1 @@
+[[We]] stand where generations [[past]] [[have]] died.

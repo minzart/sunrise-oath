@@ -1,1 +1,1 @@
-In Kabbalah, the phonetics of a [[word]] themselves are broken down and analyzed, [[same]] as what I did when I wrote [[Epistemology]].
+In Kabbalah, the phonetics of a [[word]] themselves are [[broken]] down and analyzed, [[same]] as what I did when I wrote [[Epistemology]].

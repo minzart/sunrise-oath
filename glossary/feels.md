@@ -1,1 +1,1 @@
-The warm fuzzies, or the cold cutting [[contemplation]] of the [[universe]] that I [[must]] contend [[with]] at 3am.
+The warm fuzzies, or the [[cold]] cutting [[contemplation]] of the [[universe]] that I [[must]] contend [[with]] at 3am.

@@ -1,0 +1,1 @@
+[[A]] sense [[of]] [[fight]] [[and]] [[flight]], [[of]] struggle [[and]] [[strife]], [[was]] [[in]] [[her]] supple muscles.

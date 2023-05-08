@@ -1,1 +1,1 @@
-“[[You]] put [[the]] [[thought]] [[in]] [[my]] [[head]].” [[An]] accusation, [[to]] [[my]] ear. “[[I]] [[may]] [[not]] think [[a]] [[thing]] [[without]] [[you]] making [[me]].”
+“[[You]] [[put]] [[the]] [[thought]] [[in]] [[my]] [[head]].” [[An]] accusation, [[to]] [[my]] ear. “[[I]] [[may]] [[not]] think [[a]] [[thing]] [[without]] [[you]] making [[me]].”

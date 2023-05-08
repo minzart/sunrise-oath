@@ -1,0 +1,1 @@
+Limiting beliefs are [[convenient]] beliefs.

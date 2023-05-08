@@ -1,0 +1,1 @@
+“[[History]]. Can’t [[do]] sums [[to]] [[save]] [[my]] life,” the young man laughed. “Enthusiasm blesses not the man, but masters [[seldom]] make the greatest fans. They never see the [[magic]] in the gaps.”

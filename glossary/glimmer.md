@@ -1,0 +1,1 @@
+[[Their]] [[determination]], [[a]] powerful [[trope]].  

@@ -1,0 +1,1 @@
+[[If]] [[Jesus]] [[read]] [[the]] Hebrew [[Bible]] [[the]] [[way]] [[many]] evangelical [[Christians]] [[do]], [[he]] would [[have]] [[been]] [[laughed]] [[out]] [[of]] town.

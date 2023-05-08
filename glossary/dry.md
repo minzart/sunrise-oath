@@ -1,1 +1,1 @@
-[[I]] put [[on]] [[the]] [[robe]]. [[As]] [[I]] tried [[to]] thank her, [[she]] [[was]] [[gone]]. 
+[[I]] [[put]] [[on]] [[the]] [[robe]]. [[As]] [[I]] tried [[to]] [[thank]] her, [[she]] [[was]] [[gone]]. 

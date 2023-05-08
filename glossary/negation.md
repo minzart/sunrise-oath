@@ -1,0 +1,1 @@
+Some [[people]] [[get]] [[sick]] [[of]] tautologies [[and]] so [[start]] [[to]] [[speak]] [[in]] [[contradictions]]. 

@@ -1,1 +1,1 @@
-Identity [[is]] idolatry. [[To]] identify [[with]] anything but [[the]] [[Lord]] [[is]] [[to]] stray.
+[[Identity]] [[is]] idolatry. [[To]] identify [[with]] anything but [[the]] [[Lord]] [[is]] [[to]] stray.

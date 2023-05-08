@@ -1,0 +1,1 @@
+[[He]] went [[to]] visit [[his]] [[sister]]. [[Sarah]] had [[always]] [[been]] the more adventurous of the two, and [[Daniel]] hoped that spending time with her would help him [[forget]] about the book.

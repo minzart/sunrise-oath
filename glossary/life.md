@@ -1,2 +1,2 @@
-Too [[short]] for [[work]], too long for [[play]].
+Too [[short]] for [[work]], too [[long]] for [[play]].
 

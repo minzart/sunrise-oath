@@ -1,0 +1,1 @@
+Collis [[Atlas]] [[saw]] [[the]] [[future]], [[and]] [[was]] compelled [[to]] [[act]] [[in]] [[God]]'s [[plan]]. [[Not]] [[an]] [[angel]], fallen or otherwise. [[She]] [[was]] [[one]] [[of]] [[the]] lesser gods, indentured [[by]] [[the]] [[Great]] Creator.

@@ -1,0 +1,1 @@
+[[This]] sense [[of]] [[gravitas]] [[I]] cannot shake.

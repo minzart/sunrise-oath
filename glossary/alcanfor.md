@@ -1,0 +1,1 @@
+[[All]] [[can]], [[for]] [[they]] [[live]] [[in]] [[the]] [[Lord]].

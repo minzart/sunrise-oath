@@ -1,1 +1,1 @@
-“[[Amnesia]]?” [[She]] furrowed her brow, [[and]] [[I]] had [[much]] [[on]] my mind. Among the [[tricks]] a woman might use to hide her name . . . “I [[suppose]] amnesia is the right [[word]].”
+“[[Amnesia]]?” [[She]] furrowed her [[brow]], [[and]] [[I]] had [[much]] [[on]] my mind. Among the [[tricks]] a woman might use to hide her name . . . “I [[suppose]] [[amnesia]] is the right [[word]].”

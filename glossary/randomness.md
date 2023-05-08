@@ -1,0 +1,1 @@
+Stochastic models are a way to [[describe]] complex, chaotic processes.

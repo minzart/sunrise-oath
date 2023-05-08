@@ -1,1 +1,1 @@
-[[I]] [[refrain]] [[from]] writing more, lest [[I]] [[seem]] ungrateful. Sorry [[Eroica]], [[truth]] [[to]] [[power]]. [[I]] [[allow]] [[Ancra]] [[to]] elaborate when [[the]] [[time]] [[comes]].
+[[I]] [[refrain]] [[from]] [[writing]] more, [[lest]] [[I]] [[seem]] ungrateful. [[Sorry]] [[Eroica]], [[truth]] [[to]] [[power]]. [[I]] [[allow]] [[Ancra]] [[to]] elaborate when [[the]] [[time]] [[comes]].

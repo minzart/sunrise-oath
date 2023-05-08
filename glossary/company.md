@@ -1,0 +1,1 @@
+Collective [[imaginary]] [[friends]] ([[God]], Ronald McDonald, [[the]] [[Christ]], [[Gale]] [[Jones]], Shiva, Trump) [[are]] [[conscious]] minds.

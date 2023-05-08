@@ -1,1 +1,1 @@
-[[Found]] a unicorn horn in a dream, and sold it to open a shisha lounge. Against the counsel of his ally, a [[sneevil]], he uses the rest of his money on prostitutes and is caught by his business partner, the man who trusted him and [[saw]] [[good]] in him.
+[[Found]] a unicorn horn in a dream, and sold it to open a shisha lounge. [[Against]] the counsel of his ally, a [[sneevil]], he uses the rest of his money on prostitutes and is caught by his [[business]] partner, the man who trusted him and [[saw]] [[good]] in him.

@@ -1,0 +1,1 @@
+[[It]]'s democracy til [[the]] masses [[vote]] [[against]] their betters. [[When]] [[that]] happens, [[it]]'s populism.

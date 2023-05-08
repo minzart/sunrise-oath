@@ -1,1 +1,1 @@
-This is a quick defense of my [[use]] of [[determinism]], esp. as it relates to [[consciousness]] as a [[physiological]] / mechanical phenomenon.  
+[[This]] [[is]] [[a]] quick defense [[of]] [[my]] [[use]] [[of]] [[determinism]], esp. [[as]] it relates [[to]] [[consciousness]] [[as]] [[a]] [[physiological]] / mechanical [[phenomenon]].  

@@ -1,1 +1,1 @@
-When [[he]] [[emerges]], the [[vision]] has become [[reality]]; all former allies in the dream become [[foes]]. 
+[[When]] [[he]] [[emerges]], the [[vision]] has [[become]] [[reality]]; all former allies in the dream [[become]] [[foes]]. 

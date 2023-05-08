@@ -1,0 +1,1 @@
+[[This]] [[is]] [[a]] [[story]] [[about]] motion. [[And]] [[in]] celebration [[of]] motion, [[I]] present [[to]] [[you]] [[three]] [[laws]] [[to]] [[hold]] near [[and]] [[dear]]. 

@@ -1,0 +1,1 @@
+Almost [[a]] [[complete]] overlap [[between]] [[people]] [[with]] authoritarian personalities ([[even]] incl. some libertarians [[I]] [[know]]) [[and]] those [[who]] think [[everything]] [[in]] [[life]] [[is]] [[political]] commentary.

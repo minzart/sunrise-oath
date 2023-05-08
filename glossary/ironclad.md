@@ -1,0 +1,1 @@
+[[Then]] [[the]] solar flare arrived. [[It]] [[was]] [[a]] [[fatal]] blow. [[Galatea]] [[was]] incapable [[of]] surviving [[without]] [[her]] electronic components, [[and]] [[was]] destroyed.

@@ -1,1 +1,1 @@
-So [[much]] [[of]] [[my]] [[life]] [[was]] holding onto [[things]].
+So [[much]] [[of]] [[my]] [[life]] [[was]] holding [[onto]] [[things]].

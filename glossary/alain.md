@@ -1,1 +1,1 @@
-Hyperion, [[father]] [[of]] Helios, [[Selene]], and Eos.
+Hyperion, [[father]] [[of]] Helios, [[Selene]], [[and]] Eos.

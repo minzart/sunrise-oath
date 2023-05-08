@@ -1,1 +1,1 @@
-The [[novel]] is structured [[around]] the lyrics of the art [[song]] of the [[same]] name by Edward [[Elgar]] and Caroline Alice Roberts, and follows Gale's emotional journey as he pursues Dawn and [[ultimately]] [[comes]] to realize the true [[nature]] of their relationship.
+The [[novel]] is structured [[around]] the lyrics of the art [[song]] of the [[same]] name by Edward [[Elgar]] and Caroline Alice Roberts, and follows Gale's emotional journey as he pursues Dawn and [[ultimately]] [[comes]] to realize the [[true]] [[nature]] of their [[relationship]].

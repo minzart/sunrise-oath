@@ -1,0 +1,1 @@
+[[Music]] [[is]] [[an]] [[analogy]] [[for]] [[how]] [[Western]] [[and]] Eastern metaphysics collide.

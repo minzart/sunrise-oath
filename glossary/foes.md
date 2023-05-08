@@ -1,1 +1,1 @@
-Angels come to aid in a [[fight]] against [[evil]].
+Angels [[come]] to aid in a [[fight]] [[against]] [[evil]].

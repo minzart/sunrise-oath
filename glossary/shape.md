@@ -1,0 +1,1 @@
+[[A]] [[masterpiece]] [[of]] [[mind]] [[and]] [[heart]].

@@ -1,4 +1,4 @@
-[[Use]] this document as a starting point, and make [[Duality]] your own! With agreement from both [[players]], anything goes.
+[[Use]] this document as a starting [[point]], and make [[Duality]] your own! With agreement from both [[players]], anything goes.
 
 # [[Objective]]
 

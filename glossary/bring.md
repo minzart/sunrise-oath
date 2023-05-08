@@ -1,0 +1,1 @@
+It was not about Newton that I wondered. “I [[take]] it you [[are]] a [[student]] of [[physics]]? Or maybe of mathematics?”

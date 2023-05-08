@@ -1,0 +1,1 @@
+[[The]] lunar disc, [[a]] slab [[of]] marble [[hung]] [[above]] [[the]] stage [[by]] [[invisible]] birds, carrying [[their]] [[treasure]] [[in]] [[the]] darkest hours. [[Come]] [[day]], [[they]] roost [[beyond]] [[the]] [[blue]].

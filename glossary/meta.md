@@ -1,0 +1,1 @@
+[[You]] are [[predestined]] [[to]] hear, or [[not]] hear, [[about]] Calvinism, [[and]] [[predestined]] [[to]] [[accept]], or [[reject]], its metaphysics.

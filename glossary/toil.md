@@ -1,0 +1,1 @@
+[[I]] [[am]] [[full]], surrounded [[by]] walls, [[and]] filled [[with]] abundance [[of]] [[all]] [[material]]. [[My]] room [[is]] [[my]] [[castle]], [[and]] [[for]] months [[the]] [[inspiration]] [[of]] [[my]] muses [[have]] sustained [[me]].

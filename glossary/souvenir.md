@@ -1,0 +1,1 @@
+[[I]] tried [[to]] think [[of]] [[a]] believable [[reason]] [[for]] [[turning]] him [[down]]. But [[I]] had [[not]] [[the]] [[heart]] [[to]] firmly [[turn]] [[down]] his request, [[impossible]] [[as]] it [[was]]. 

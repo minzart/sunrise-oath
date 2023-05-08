@@ -1,0 +1,1 @@
+[[Once]] [[my]] [[crying]] stopped, [[I]] [[got]] up [[from]] [[the]] [[table]] [[and]] raised [[my]] [[hand]]. Closing [[my]] [[eyes]] [[tight]], [[I]] [[channeled]] [[my]] [[mana]] [[for]] [[the]] [[last]] [[time]]. 

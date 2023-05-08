@@ -1,1 +1,1 @@
-[[Something]] [[we]] discussed [[last]] [[time]], [[of]] [[an]] elder/presbyter [[best]] [[being]] [[married]], came [[to]] [[mind]] when [[I]] [[read]] [[1]] Corinthians 7.
+[[Something]] [[we]] discussed [[last]] [[time]], [[of]] [[an]] elder/presbyter [[best]] [[being]] [[married]], [[came]] [[to]] [[mind]] when [[I]] [[read]] [[1]] Corinthians 7.

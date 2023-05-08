@@ -1,0 +1,1 @@
+sina olin e mi la, mi wile pali e poki jan tawa sina.

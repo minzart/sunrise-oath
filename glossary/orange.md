@@ -1,0 +1,1 @@
+[[Up]] [[close]], [[I]] [[saw]] [[the]] [[luster]] [[of]] [[her]] [[skin]]. 

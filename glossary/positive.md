@@ -1,0 +1,1 @@
+[[Art]] [[that]] [[comes]] [[from]] [[a]] [[spirit]] [[of]] advancement [[and]] distillation, rather [[than]] [[of]] subversion [[and]] deconstruction, tends [[to]] [[do]] [[a]] [[lot]] [[better]] [[at]] [[building]] [[on]] [[older]] [[work]]. [[There]] [[is]] [[a]] [[place]] [[for]] [[the]] [[latter]] mode, but [[the]] reinventing-[[the]]-wheel [[process]] [[is]] [[ugly]].

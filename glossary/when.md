@@ -1,0 +1,1 @@
+[[He]] waved his [[hand]]. “[[Much]] appreciated. But when [[is]] [[science]] [[ever]] [[over]]?“

@@ -1,0 +1,1 @@
+She hurried [[in]], [[her]] [[senses]] [[on]] high alert. She scanned the [[rubble]], [[looking]] [[for]] any signs [[of]] [[life]] or movement. But [[the]] [[ruins]] [[were]] silent, [[save]] [[for]] the [[howling]] wind and the distant sound of a scavenger's cries.

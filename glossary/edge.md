@@ -1,0 +1,1 @@
+[[At]] [[the]] border [[of]] [[my]] [[understanding]], [[I]] find [[myself]] [[having]] [[the]] [[joy]] [[of]] [[my]] [[life]], [[seeing]] [[everything]] [[as]] [[a]] [[marvel]] [[of]] [[mind]] [[and]] [[nature]]. 

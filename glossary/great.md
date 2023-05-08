@@ -1,1 +1,1 @@
-He [[never]] wrote anything of his [[full]] potential until he [[began]] to write about [[Dawn]], about the painful [[memory]] of the [[ghost]] [[he]] [[loved]].
+He [[never]] wrote anything of his [[full]] [[potential]] until he [[began]] to [[write]] about [[Dawn]], about the painful [[memory]] of the [[ghost]] [[he]] [[loved]].

@@ -1,1 +1,1 @@
-[[Being]] too caught up [[in]] [[utility]] and material [[is]] [[how]] [[one]] starts worshipping [[science]] [[as]] [[an]] [[idol]]. 
+[[Being]] too caught up [[in]] [[utility]] and [[material]] [[is]] [[how]] [[one]] starts worshipping [[science]] [[as]] [[an]] [[idol]]. 

@@ -1,1 +1,1 @@
-[[On]] cue, [[my]] mobile [[Nokia]] rang [[from]] [[under]] [[the]] [[bed]], clashing against [[the]] [[piano]] accompaniment. Dreading [[an]] earful [[from]] [[the]] engineer, [[I]] slept [[through]] [[the]] [[Nokia]], [[the]] Walkman, and [[the]] [[fireworks]]. 
+[[On]] cue, [[my]] mobile [[Nokia]] rang [[from]] [[under]] [[the]] [[bed]], clashing [[against]] [[the]] [[piano]] accompaniment. Dreading [[an]] earful [[from]] [[the]] [[engineer]], [[I]] slept [[through]] [[the]] [[Nokia]], [[the]] Walkman, and [[the]] [[fireworks]]. 

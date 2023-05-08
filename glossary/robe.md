@@ -1,1 +1,1 @@
-[[The]] [[angel]] [[was]] [[in]] [[the]] water, swimming and [[laughing]]. “[[I]] [[am]] [[free]].”  
+[[The]] [[angel]] [[was]] [[in]] [[the]] [[water]], swimming and [[laughing]]. “[[I]] [[am]] [[free]].”  

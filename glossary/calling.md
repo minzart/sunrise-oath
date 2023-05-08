@@ -1,0 +1,1 @@
+[[Life]] [[is]] [[an]] [[exit]] [[from]] [[a]] [[tunnel]]. [[Liberty]] [[is]] [[a]] [[plunge]] [[into]] [[abyss]].

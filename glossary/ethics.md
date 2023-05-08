@@ -1,0 +1,1 @@
+[[We]] understand God as a creator and as an enabler and as a savior because that is the human lens. Is the belief that humans [[are]] special also part of this [[lens]]?

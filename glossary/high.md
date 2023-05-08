@@ -1,0 +1,1 @@
+[[Man]] stood [[on]] two legs, [[and]] [[looked]] [[to]] [[the]] [[sky]] [[for]] perfection. [[Once]] [[there]], [[they]] [[saw]] [[heaven]] [[was]] [[a]] [[lie]].

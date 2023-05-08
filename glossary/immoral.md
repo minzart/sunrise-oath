@@ -1,1 +1,1 @@
-[[I]] think [[reason]] [[is]] lacking [[in]] [[native]] Christians. 
+[[I]] think [[reason]] [[is]] lacking [[in]] [[native]] [[Christians]]. 

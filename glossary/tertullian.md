@@ -1,0 +1,1 @@
+[[From]] Carthage [[rose]] [[a]] Latin [[Christian]] [[author]].

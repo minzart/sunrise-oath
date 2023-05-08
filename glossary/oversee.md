@@ -1,0 +1,1 @@
+“[[There]] [[is]] [[a]] [[prophecy]],” [[the]] elder [[said]], putting [[her]] pointed chin [[on]] [[a]] [[young]] [[hand]]. “[[A]] [[mage]] [[shall]] [[take]] [[the]] [[burden]] [[of]] [[the]] [[world]], [[and]] [[never]] [[be]] [[forgotten]].”

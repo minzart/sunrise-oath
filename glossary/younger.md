@@ -1,0 +1,1 @@
+[[Her]] [[head]] rests [[on]] [[my]] [[shoulder]], [[and]] [[there]] [[I]] [[let]] [[it]] [[stay]]. Tracing [[the]] [[hole]] [[in]] [[my]] [[chest]], [[her]] finger shows [[me]] [[where]] [[the]] [[pain]] resides—[[right]] [[where]] [[my]] lungs [[are]].

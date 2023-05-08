@@ -1,0 +1,1 @@
+“[[Why]] [[not]] [[live]] [[forever]]?” [[said]] [[the]] [[apprentice]]. “[[Could]] [[that]] [[not]] [[be]] [[our]] [[duty]] [[and]] [[our]] [[name]]? [[To]] [[oversee]] [[the]] currents [[of]] [[time]]?”

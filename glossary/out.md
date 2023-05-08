@@ -1,0 +1,1 @@
+[[After]] some fiddling around, I [[took]] five pictures of the family. The first was by accident, the second was out of focus, the third was slanted, and the fourth was great. The fifth, I [[took]] just in [[case]].

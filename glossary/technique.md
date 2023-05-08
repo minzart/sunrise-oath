@@ -1,1 +1,1 @@
-Til [[I]] [[was]] [[way]] [[older]] than [[I]] should [[have]] [[been]] before [[I]] [[knew]] [[better]], [[I]] [[thought]] this [[was]] [[art]] [[in]] and [[of]] [[itself]], [[without]] external [[reference]]. 
+Til [[I]] [[was]] [[way]] [[older]] than [[I]] [[should]] [[have]] [[been]] before [[I]] [[knew]] [[better]], [[I]] [[thought]] this [[was]] [[art]] [[in]] and [[of]] [[itself]], [[without]] external [[reference]]. 

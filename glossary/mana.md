@@ -1,0 +1,1 @@
+[[Watching]] [[a]] [[rabbi]] [[speak]] [[about]] [[the]] Ten [[Commandments]] [[as]] [[the]] Five [[Laws]] [[of]] [[Relationships]] [[changed]] [[everything]]. 

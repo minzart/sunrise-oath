@@ -1,0 +1,1 @@
+His [[mother]] giggled, but quickly composed herself. “[[No]], silly. [[Like]] frozen [[memories]]. Snapshots [[in]] [[time]] [[that]] [[fit]] [[in]] [[the]] [[palm]] [[of]] [[your]] [[hand]].“

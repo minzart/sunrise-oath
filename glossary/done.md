@@ -1,1 +1,1 @@
-[[God]] has [[answered]] and heard [[all]] prayers.
+[[God]] has [[answered]] and [[heard]] [[all]] prayers.

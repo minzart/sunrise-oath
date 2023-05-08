@@ -1,0 +1,1 @@
+[[I]] [[looked]] [[on]] [[in]] awe [[and]] horror [[as]] [[the]] boss blindly dumped beans [[into]] [[a]] [[machine]] [[that]] sputtered [[black]] drips. [[The]] pot [[looked]] [[like]] [[a]] mug [[in]] his paw [[as]] [[he]] [[spilled]] [[the]] hot liquid [[into]] two cups.

@@ -1,1 +1,1 @@
-[[I]] would go [[as]] [[far]] [[as]] saying [[there]] [[is]] little "morality" [[in]] what [[I]] mean. It's [[a]] sort [[of]] [[knowledge]], [[a]] fact so deeply resonant [[to]] [[our]] [[being]] that [[once]] [[we]] come across it [[we]] literally can't talk ourselves out.
+[[I]] would go [[as]] [[far]] [[as]] saying [[there]] [[is]] little "morality" [[in]] what [[I]] mean. It's [[a]] sort [[of]] [[knowledge]], [[a]] fact so deeply resonant [[to]] [[our]] [[being]] that [[once]] [[we]] [[come]] [[across]] it [[we]] literally can't [[talk]] ourselves out.

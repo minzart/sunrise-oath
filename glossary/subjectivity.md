@@ -1,0 +1,1 @@
+[[Gale]]'s [[new]] [[friends]] [[in]] [[Montreal]] [[fit]] [[the]] [[same]] archetypes [[as]] [[his]] [[friends]] [[in]] [[Waterloo]]. [[Gale]]'s [[friends]] [[in]] [[Montreal]] [[are]] generally [[more]] nuanced or [[jaded]] versions [[of]] [[the]] archetypes [[from]] [[Waterloo]]. 

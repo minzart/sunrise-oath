@@ -1,0 +1,1 @@
+I stared, stunned by his eloquence. He rubbed the back of his neck and [[shrugged]]. 

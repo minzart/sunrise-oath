@@ -1,0 +1,1 @@
+[[This]] [[feeling]] [[of]] mass [[that]] cannot [[be]] measured.

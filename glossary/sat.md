@@ -1,0 +1,1 @@
+There was a [[joke]] to be made about a Trinity College alumnus not believing in the Trinity, but I knew not [[how]] to [[make]] it. 

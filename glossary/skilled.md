@@ -1,0 +1,1 @@
+[[Over]] [[time]], [[Erisa]] [[became]] [[known]] [[for]] [[her]] combat prowess [[and]] [[her]] willingness [[to]] [[take]] [[on]] [[even]] [[the]] [[most]] dangerous [[of]] tasks. However, [[her]] [[life]] [[took]] [[a]] [[new]] [[turn]] [[when]] [[she]] [[stumbled]] [[upon]] [[a]] group [[of]] bandits [[who]] had [[taken]] [[a]] [[young]] girl [[hostage]].

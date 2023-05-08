@@ -1,0 +1,1 @@
+[[The]] [[allure]] [[of]] [[Christ]] [[is]] [[what]] [[redeemed]] [[her]]. 

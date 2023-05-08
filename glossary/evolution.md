@@ -1,1 +1,1 @@
-Both [[Darwin]] and creationists are [[right]].
+Both [[Darwin]] and creationists [[are]] [[right]].

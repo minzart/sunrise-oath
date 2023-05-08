@@ -1,1 +1,1 @@
-Make [[peace]] [[with]] where [[we]] came [[from]].
+Make [[peace]] [[with]] where [[we]] [[came]] [[from]].

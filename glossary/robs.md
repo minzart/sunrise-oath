@@ -1,1 +1,1 @@
-[[Takes|takes]] [[candy]] [[from]] [[a]] [[baby]]. [[A|a]] [[Robert|robert]] [[stole]] [[money]] [[from]] [[me]] [[once]]. [[He|he]] [[was]] [[my]] [[friend]].
+[[Takes]] [[candy]] [[from]] [[a]] [[baby]]. [[A]] [[Robert]] [[stole]] [[money]] [[from]] [[me]] [[once]]. [[He]] [[was]] [[my]] [[friend]].

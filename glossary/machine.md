@@ -1,0 +1,1 @@
+[[Since]] [[the]] [[start]] [[of]] [[time]] [[and]] [[space]] [[as]] [[we]] [[know]] [[it]], [[from]] [[the]] [[Big]] Bang [[that]] [[gave]] [[forth]] [[to]] [[the]] [[only]] [[world]] [[we]] [[may]] [[ever]] [[see]], [[everything]] [[was]] [[set]] [[in]] [[stone]]. 
