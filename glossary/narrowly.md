@@ -1,0 +1,1 @@
+[[In]] [[the]] seventh [[chapter]], "[[To]] [[his]] tawny mane [[and]] tangle [[of]] flush...Leapt [[the]] [[wind]] [[with]] [[a]] blast [[and]] [[a]] rush," [[Gale]] [[is]] despondent [[and]] [[lonely]] [[after]] [[seeing]] [[that]] [[Dawn]] [[is]] [[is|no]]t [[real]]. [[In]] [[a]] drunken episode [[on]] Christmas, [[he]] falls [[into]] [[the]] [[Saint]] [[Lawrence]] [[River]].

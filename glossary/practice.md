@@ -1,6 +1,6 @@
 INT. GENOISE ET THE
 
-[[GALE]] [[JONES]] [[enters]] the cafe and sits [[across]] from CHARLOTTE GAGNON.
+[[GALE]] [[JONES]] [[enters]] the cafe and sits [[across]] [[from]] CHARLOTTE GAGNON.
 
 [[GALE]] [[JONES]]
 Hello.

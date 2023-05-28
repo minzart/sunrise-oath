@@ -1,0 +1,1 @@
+[[There]] [[was]] [[no]] [[evidence]] [[of]] [[the]] [[painter]] [[in]] [[the]] [[frame]], yet [[I]] [[was]] sure [[he]] [[was]] [[there]], [[his]] [[legs]] [[out]] [[of]] [[view]], [[his]] canvas [[and]] paints behind [[the]] [[boundary]] [[of]] [[the]] [[image]]. Yet [[who]] [[told]] [[me]] [[this]]? 

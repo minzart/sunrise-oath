@@ -1,0 +1,1 @@
+[[The]] greatest thefts [[are]] silent. [[The]] loud ones [[pass]] [[by]] quick.

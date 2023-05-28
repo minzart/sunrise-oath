@@ -1,0 +1,1 @@
+[[The]] Pringle [[is]] [[a]] hyperbolic miracle [[made]] mundane [[by]] overexposure, disparate carbohydrates (potato, rice, wheat) [[formed]] [[into]] [[the]] [[perfect]] ideal [[of]] [[a]] [[great]] historical accident. [[Imagine]] [[if]] [[the]] diner [[never]] [[gave]] Crum [[a]] [[hard]] [[time]]. [[You]] can’t, because it was [[predestined]].

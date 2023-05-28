@@ -1,0 +1,1 @@
+[[Vera]] [[was]] [[his]] [[love]], [[before]] [[she]] died [[on]] [[an]] [[adventure]]. [[Yohani]] [[was]] [[heartbroken]]. [[By]] [[then]], [[the]] [[horn]] was stolen [[from]] the tavern. Of course it was when everything was gone, including the father he once thought was strong, that the voice told him: there was a way to bring her back.

@@ -1,0 +1,1 @@
+Volcanos, slayers of ancient civilizations, still erupt.

@@ -1,1 +1,1 @@
-[[An]] [[ocean]] [[of]] brown, [[is]] [[how]] [[I]] [[came]] [[to]] [[see]] [[the]] [[desert]]. More grains than [[the]] [[mind]] can fathom. [[Fewer]] than [[the]] [[number]] [[of]] stars [[in]] [[the]] [[universe]], but can [[we]] [[tell]] [[the]] [[difference]]?
+[[An]] [[ocean]] [[of]] brown, [[is]] [[how]] [[I]] [[came]] [[to]] [[see]] [[the]] [[desert]]. More grains [[than]] [[the]] [[mind]] can fathom. [[Fewer]] [[than]] [[the]] [[number]] [[of]] stars [[in]] [[the]] [[universe]], but can [[we]] [[tell]] [[the]] [[difference]]?

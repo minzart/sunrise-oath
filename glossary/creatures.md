@@ -1,0 +1,1 @@
+[[We]] [[are]] [[one]] [[humanity]], [[one]] [[people]] [[under]] [[God]].

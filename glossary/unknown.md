@@ -1,1 +1,1 @@
-[[So]] [[let]] us [[move]] [[ahead]] [[with]] hearts [[held]] [[high]], [[for]] [[our]] [[adventure]] has [[only]] [[just]] begun [[nigh]].
+[[So]] [[let]] [[us]] [[move]] [[ahead]] [[with]] hearts [[held]] [[high]], [[for]] [[our]] [[adventure]] has [[only]] [[just]] begun [[nigh]].

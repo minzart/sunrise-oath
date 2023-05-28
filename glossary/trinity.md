@@ -1,3 +1,3 @@
 [[Father]], [[Son]], [[Ghost]].
 
-Roleplaying [[skill]] [[system]].
+[[Roleplaying]] [[skill]] [[system]].

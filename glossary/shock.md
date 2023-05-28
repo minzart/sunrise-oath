@@ -1,1 +1,1 @@
-Diana calls Gale on her last [[day]]. Gale bumped [[into]] Selene at the front of the hotel. Selene tells him that Diana [[will]] find him [[later]].
+Diana calls Gale on her last [[day]]. Gale [[bumped]] [[into]] Selene at the [[front]] of the [[hotel]]. Selene tells him that Diana [[will]] find him [[later]].

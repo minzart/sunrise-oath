@@ -1,0 +1,1 @@
+[[Yohani]] obeyed. [[His]] notebooks, [[hidden]] [[from]] [[his]] [[father]], buried [[in]] [[the]] [[unfinished]] [[basement]] [[of]] [[the]] tavern, numbered hundreds [[of]] documents. [[Maybe]] thousands, [[if]] [[one]] includes [[the]] books [[in]] [[which]] [[he]] scribbled [[in]] [[the]] [[margins]].

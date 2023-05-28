@@ -1,1 +1,1 @@
-[[Morwenna]] paused [[for]] [[a]] [[moment]], staring [[off]] [[into]] [[the]] [[distance]]. [[She]] [[could]] [[see]] [[the]] [[hero]] [[in]] [[her]] [[mind]]'s [[eye]], [[his]] [[face]] etched [[with]] [[determination]] [[as]] [[he]] [[helped]] [[her]].
+[[Morwenna]] paused [[for]] [[a]] [[moment]], [[staring]] [[off]] [[into]] [[the]] [[distance]]. [[She]] [[could]] [[see]] [[the]] [[hero]] [[in]] [[her]] [[mind]]'s [[eye]], [[his]] [[face]] etched [[with]] [[determination]] [[as]] [[he]] [[helped]] [[her]].

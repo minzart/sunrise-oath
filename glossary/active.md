@@ -1,0 +1,1 @@
+All that is beyond comprehension is divine, yet I am but a man, a simple being. What meaning has the sunrise, the wind at dawn?

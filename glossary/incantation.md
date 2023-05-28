@@ -1,1 +1,1 @@
-[[When]] [[he]] opened [[his]] [[eyes]], [[he]] was in a [[dark]] [[forest]]. He could hear [[Sarah]]'s voice in the [[distance]], and [[he]] [[ran]] towards [[a]] [[clearing]], [[where]] [[he]] [[saw]] [[[[her]] [[standing]] in the center of a circle of women.
+[[When]] [[he]] opened [[his]] [[eyes]], [[he]] was in a [[dark]] [[forest]]. He could [[hear]] [[Sarah]]'s voice in the [[distance]], and [[he]] [[ran]] towards [[a]] [[clearing]], [[where]] [[he]] [[saw]] [[[[her]] [[standing]] in the center of a circle of women.

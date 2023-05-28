@@ -1,0 +1,1 @@
+I [[found]] [[my]] wet erase markers [[from]] Amazon in the melted snow beside the [[front]] [[porch]], caked in [[mud]]. I bought [[them]] last [[month]] and [[only]] [[thought]] this [[morning]] to check [[whether]] [[they]] would [[ever]] arrive. (I almost [[even]] ordered [[new]] ones, [[having]] [[forgotten]] of the original [[order]].)

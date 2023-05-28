@@ -1,1 +1,1 @@
-I smiled. “[[Mandarin]], right? What does it mean?”  
+I smiled. “[[Mandarin]], right? What does it [[mean]]?”  

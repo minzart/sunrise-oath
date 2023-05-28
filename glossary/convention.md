@@ -1,1 +1,1 @@
-[[Art]] [[peeks]] from all the [[senses]], hiding from the eyes of those who seek it not.  
+[[Art]] [[peeks]] [[from]] all the [[senses]], hiding [[from]] the [[eyes]] of those who [[seek]] it not.  

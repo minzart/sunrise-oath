@@ -1,0 +1,1 @@
+[[Life]] [[is]] [[a]] palace. Walk [[through]] its halls [[in]] [[grace]].

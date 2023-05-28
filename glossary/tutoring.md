@@ -1,0 +1,1 @@
+“[[We]]’ll [[manage]] [[on]] [[our]] own. [[It]]’s [[my]] [[turn]] [[to]] [[take]] care [[of]] you.”

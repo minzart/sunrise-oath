@@ -1,0 +1,1 @@
+[[Imagine]] [[speaking]] to the [[divine]] on [[amphetamines]].

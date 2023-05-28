@@ -1,0 +1,1 @@
+[[I]] [[soon]] [[forgot]] [[my]] [[sunrise]] [[oath]], [[the]] [[promise]] [[made]] [[in]] [[early]] [[July]].

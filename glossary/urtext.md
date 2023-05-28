@@ -1,0 +1,1 @@
+[[Seeing]] [[it]] [[was]] [[not]] [[enough]] [[to]] [[say]] [[it]], [[for]] [[no]] [[words]] [[could]] release [[the]] knot [[in]] [[my]] [[tongue]]. Nor [[can]] [[they]] [[now]], though [[closeness]] breeds [[illusion]] [[of]] [[a]] conduit [[from]] sense [[to]] [[heart]].

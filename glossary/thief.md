@@ -1,0 +1,1 @@
+[[His]] [[mind]]’s wandering [[was]] halted [[by]] Polly’s [[accusation]]. Damned creature! Hymar grabbed [[a]] handful [[of]] [[gold]] pieces—four or five [[more]] [[than]] covers [[the]] debt—[[and]] [[ran]] [[out]] [[the]] [[door]], attracting [[the]] attention [[of]] [[a]] few [[pointing]] denizens.

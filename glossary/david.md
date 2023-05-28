@@ -1,1 +1,1 @@
-Fell [[for]] [[Tara]] [[as]] Bathsheba.
+[[Fell]] [[for]] [[Tara]] [[as]] Bathsheba.

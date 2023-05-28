@@ -1,0 +1,1 @@
+“[[Let]] [[me]] [[be]] [[the]] [[light]] [[of]] [[your]] [[world]].” [[The]] [[flame]] [[was]] [[bright]]. “[[See]] [[me]], [[Gale]] [[Jones]], [[and]] [[I]] [[shall]] [[know]] [[you]].”

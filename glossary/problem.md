@@ -1,0 +1,1 @@
+[[She]] [[sets]] out to gather evidence of the official's corruption, hoping to bring him to justice and put an [[end]] to the bandit gang's operations. It's a risky move, but [[Elara]] knows that she's the only one who can do it.

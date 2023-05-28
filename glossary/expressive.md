@@ -1,0 +1,1 @@
+[[Took]] [[the]] [[carpet]] [[out]] [[of]] [[my]] [[room]] and [[moved]] it [[to]] [[the]] [[common]] room that [[my]] brother and [[I]] [[have]] [[been]] [[procrastinating]] [[on]]. [[Long]] [[time]] [[coming]], for sure. [[There]] [[was]] [[so]] [[much]] [[dust]] [[under]], [[I]] [[could]] [[have]] eaten [[a]] bowl [[of]] it [[as]] cereal.

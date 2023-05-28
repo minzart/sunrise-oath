@@ -1,0 +1,1 @@
+[[In]] [[a]] [[distant]] [[land]], [[nestled]] amidst rolling hills [[and]] shimmering streams, [[there]] [[existed]] [[a]] village renowned for its artistic heritage. 

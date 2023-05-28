@@ -1,0 +1,1 @@
+Awake, [[Yohani]]! Take the cosmos as your prize.

@@ -1,0 +1,1 @@
+[[Received]] [[wisdom]]: [[lying]] flat [[is]] based.

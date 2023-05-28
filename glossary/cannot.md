@@ -1,0 +1,1 @@
+Crawl [[along]] [[the]] edges [[of]] [[the]] points, [[and]] [[see]] [[where]] [[all]] [[the]] thoughts lead. [[How]] fold [[the]] [[words]] [[that]] jumble [[in]] [[my]] [[head]], animals [[in]] [[a]] zoo, [[marbles]] [[in]] [[a]] jar?

@@ -1,0 +1,1 @@
+[[The]] [[criticism]] [[that]] Mormons [[are]] [[not]] interested [[in]] talking [[about]] [[evidence]] or arguments lacks [[self]]-awareness, [[in]] the same vein as much of [[atheist]] [[criticism]] of Christians. 

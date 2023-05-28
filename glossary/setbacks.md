@@ -1,0 +1,1 @@
+[[Gale]] endures hardships [[in]] [[the]] [[years]] to [[come]], including the death of [[Alain]], but has given up his love for art. His friendships reward him, but cannot assuage the [[pain]] of the past he [[lost]]. By the [[end]] of the chapter, he is rewarded by the [[chance]] to [[meet]] his granddaughter for the [[first]] [[time]].

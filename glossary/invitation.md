@@ -1,0 +1,1 @@
+Consider [[this]] [[my]] sincere effort [[to]] quarantine [[my]] interests [[and]] cleanse [[the]] [[conversation]]. [[So]] [[long]] [[as]] [[you]] [[will]] [[have]] [[me]], [[I]] [[hope]] [[to]] [[show]] [[my]] depth [[of]] care [[by]] [[presence]] [[and]] [[action]]. [[I]] [[love]] [[you]] [[all]].

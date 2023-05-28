@@ -1,0 +1,1 @@
+[[I]] [[am]] [[happy]], [[and]] [[wish]] [[I]] [[was]] [[not]]. [[This]] [[is]] [[not]] [[enlightenment]], but [[a]] [[false]] [[land]] [[of]] [[sunshine]] [[and]] rainbows. [[I]] [[am]] [[so]] afraid [[of]] [[finding]] [[a]] [[home]] [[that]] [[I]] [[cannot]] [[leave]] [[in]] [[grace]].

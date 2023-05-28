@@ -1,1 +1,1 @@
-A piece has three stances as each color, for a total of six stances. A piece’s [[arrow]] always points in the [[direction]] of the opponent.
+A piece has three stances as [[each]] color, for a total of six stances. A piece’s [[arrow]] always points in the [[direction]] of the opponent.

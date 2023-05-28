@@ -1,0 +1,1 @@
+[[I]] [[keep]] [[silence]] [[on]] [[Thursdays]], excepting direct [[call]] [[to]] [[speak]] or [[noble]] [[need]]. [[I]] [[shall]] [[not]] volunteer [[my]] spoken thoughts [[to]] [[anyone]], [[in]] [[the]] group or otherwise, [[on]] this [[day]] of the week. I [[will]] answer pertinent questions by [[assent]].  

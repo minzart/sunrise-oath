@@ -1,1 +1,1 @@
-[[Thought]] that [[creeps]] [[around]] in the [[night]]: a [[person]] faces [[God]] in [[restless]] sleep, when [[conscience]] keeps the regicide awake. No [[better]] [[is]] the [[sinner]] than a [[slave]], and slithers [[where]] the [[dust]] blocks out his [[sight]].  
+[[Thought]] that [[creeps]] in the [[night]]: a [[person]] faces [[God]] in [[restless]] sleep, when [[conscience]] keeps the regicide awake. No [[better]] [[is]] the [[sinner]] [[than]] a [[slave]], and slithers [[where]] the [[dust]] blocks out his [[sight]].  

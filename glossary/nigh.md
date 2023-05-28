@@ -1,1 +1,1 @@
-[[In]] [[the]] [[deep]] [[woods]], [[the]] spirits [[call]] [[to]] [[me]], Their voices [[soft]] [[and]] [[full]] [[of]] mystery. [[I]] [[am]] but [[a]] traveler [[on]] their [[path]], Yet [[I]] feel their [[presence]] [[in]] [[my]] [[heart]].
+[[In]] [[the]] [[deep]] [[woods]], [[the]] spirits [[call]] [[to]] [[me]], Their voices [[soft]] [[and]] [[full]] [[of]] mystery. [[I]] [[am]] but [[a]] traveler [[on]] their [[path]], Yet [[I]] [[feel]] their [[presence]] [[in]] [[my]] [[heart]].

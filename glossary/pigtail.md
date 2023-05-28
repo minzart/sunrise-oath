@@ -1,1 +1,1 @@
-“[[I]] don’t.” [[I]] [[rest]] next [[to]] [[her]], [[my]] legs [[sore]] [[and]] tingling. “[[I]] [[miss]] [[you]]. [[Is]] [[that]] [[reason]] [[enough]]?”
+“[[I]] don’t.” [[I]] [[rest]] next [[to]] [[her]], [[my]] [[legs]] [[sore]] [[and]] tingling. “[[I]] [[miss]] [[you]]. [[Is]] [[that]] [[reason]] [[enough]]?”

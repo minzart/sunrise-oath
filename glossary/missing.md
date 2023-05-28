@@ -1,0 +1,1 @@
+[[The]] [[edge]] [[of]] [[the]] canvas [[is]] frayed, I noticed. It was the center work, a landscape [[from]] the perspective of a man in a boat. Or at least, I [[imagined]] it was a man. 

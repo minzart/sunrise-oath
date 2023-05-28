@@ -1,0 +1,1 @@
+[[Seeing]] as [[there]] [[is]] no [[reasonable]] way of going [[back]] and connecting all of them, I [[can]] [[only]] [[begin]] to [[link]] [[everything]] as I see [[fit]].

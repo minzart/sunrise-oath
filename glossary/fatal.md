@@ -1,1 +1,1 @@
-[[From]] [[the]] ashes [[of]] [[their]] former [[ruler]], [[humanity]] [[rose]] anew. They looked towards the sun, revering its destructive power and life-giving warmth. It was a sacred force that they could trust, unlike the once-benevolent but ultimately flawed overlord.
+[[From]] [[the]] ashes [[of]] [[their]] former [[ruler]], [[humanity]] [[rose]] anew. They looked towards the sun, revering its destructive power and life-giving warmth. It was a sacred force that they could trust, unlike the once-benevolent but ultimately [[flawed]] overlord.

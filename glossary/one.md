@@ -1,0 +1,1 @@
+Abstractions [[are]] arbitrary. [[Multitude]], or solitude? Crowd, or [[self]]?

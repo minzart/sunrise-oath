@@ -1,0 +1,1 @@
+[[If]] [[only]] [[I]] [[could]] [[always]] [[hear]] [[the]] [[ocean]], [[the]] mermaids singing. O [[bright]] waters [[and]] scaly rocks, [[how]] [[you]] seduced [[me]] [[with]] [[the]] [[midday]] [[crashes]] [[of]] [[the]] waves, [[the]] dreamy continent [[past]] atmosphere [[and]] [[curvature]], [[the]] [[promise]] [[of]] [[a]] [[new]] [[realization]].  

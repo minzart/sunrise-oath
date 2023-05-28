@@ -1,1 +1,1 @@
-Each player presents a dualist. [[One]] player chooses the starting positions of the avatars and decides which [[is]] [[white]] and which [[is]] [[black]]. The [[other]] player selects a dualist.
+[[Each]] player presents a dualist. [[One]] player chooses the starting positions of the avatars and decides which [[is]] [[white]] and which [[is]] [[black]]. The [[other]] player selects a dualist.

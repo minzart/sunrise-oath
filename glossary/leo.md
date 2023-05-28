@@ -1,5 +1,5 @@
 [[2023-04-30]]
-[[Create]] [[a]] paradigm [[of]] [[love]],
+[[Create]] [[a]] [[paradigm]] [[of]] [[love]],
 [[of]] [[grace]] [[and]] [[majesty]] [[of]] [[soul]],
 so [[that]] [[the]] lambs [[of]] [[God]] [[may]] [[reach]] their [[Lord]].
 
@@ -7,7 +7,7 @@ so [[that]] [[the]] lambs [[of]] [[God]] [[may]] [[reach]] their [[Lord]].
 [[It]] [[took]] [[me]] [[many]] [[years]].
 
 [[2023-04-21]]
-[[The]] [[toll]] [[of]] twenty-six has reached [[my]] ear.
+[[The]] [[toll]] [[of]] [[twenty]]-six has reached [[my]] ear.
 
 [[2023-04-12]]
 [[In]] August, [[she]] [[will]] [[celebrate]] [[her]] birthdays [[with]] [[her]] husband.

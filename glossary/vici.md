@@ -1,4 +1,4 @@
-Elaine Vici, eldest [[sister]], gave [[birth]] [[to]] [[Eroica]] out [[of]] wedlock.  [[Eroica]] bought [[the]] [[house]] and kicked us out. 
+Elaine Vici, eldest [[sister]], gave [[birth]] [[to]] [[Eroica]] out [[of]] wedlock.  [[Eroica]] bought [[the]] [[house]] and kicked [[us]] out. 
   
 [[Elena]] Robles, middle [[sister]], [[married]] [[first]] and had [[Tara]].  
   

@@ -1,0 +1,1 @@
+[[She]] grew [[up]] [[in]] [[a]] small farming village, [[where]] [[she]] [[learned]] [[to]] hunt [[and]] track [[from]] [[her]] [[father]]. [[As]] [[a]] teenager, [[she]] discovered [[her]] [[skill]] [[with]] [[a]] bow [[and]] [[practiced]] [[in]] [[secret]], honing [[her]] abilities until [[she]] [[became]] [[an]] expert marksman.

@@ -1,3 +1,3 @@
-Attending [[the]] opening [[of]] [[the]] Canadian Clay and Glass Gallery [[is]] what [[first]] [[sparked]] [[Tara]]'s interest [[in]] architecture. [[She]] [[also]] noticed [[the]] [[different]] buildings [[at]] [[the]] University [[of]] [[Waterloo]].  
+Attending [[the]] opening [[of]] [[the]] Canadian Clay and Glass [[Gallery]] [[is]] what [[first]] [[sparked]] [[Tara]]'s interest [[in]] architecture. [[She]] [[also]] noticed [[the]] [[different]] buildings [[at]] [[the]] University [[of]] [[Waterloo]].  
   
-([[Maybe]] [[they]] [[see]] [[Louise]] and [[Catherine]] [[at]] [[the]] opening too? Then [[Louise]] invites them [[along]] [[to]] [[dance]]. This leads [[into]] them watching movies [[together]], too.)  
+([[Maybe]] [[they]] [[see]] [[Louise]] and [[Catherine]] [[at]] [[the]] opening too? Then [[Louise]] [[invites]] them [[along]] [[to]] [[dance]]. This leads [[into]] them watching movies [[together]], too.)  

@@ -1,0 +1,1 @@
+[[Our]] [[school]]’s [[cheerleaders]] [[performed]] [[not]] [[again]]. [[My]] [[friend]] mentioned [[an]] [[after]]-[[party]] [[at]] [[an]] upper [[year]]’s [[house]], but [[I]] [[made]] [[an]] [[excuse]] [[and]] [[went]] [[to]] [[search]] [[for]] [[Tara]] Robles [[in]] [[the]] [[dispersing]] crowd [[outside]] [[the]] arena.

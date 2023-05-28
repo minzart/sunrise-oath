@@ -1,1 +1,1 @@
-[[In]] [[the]] [[spirit]] [[of]] [[friendship]], [[I]] [[answered]] [[a]] [[question]] [[from]] [[yesterday]]. “[[About]] [[your]] [[dress]], [[that]] [[shade]] [[of]] [[blue]] [[is]] [[my]] favorite [[color]].”
+[[In]] [[the]] [[spirit]] [[of]] [[friendship]], [[I]] [[answered]] [[a]] [[question]] [[from]] [[yesterday]]. “[[About]] [[your]] [[dress]], [[that]] [[shade]] [[of]] [[blue]] [[is]] [[my]] [[favorite]] [[color]].”

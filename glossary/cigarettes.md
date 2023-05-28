@@ -1,0 +1,1 @@
+“[[Give]] [[them]] [[to]] [[the]] [[guy]] asking [[for]] [[change]] [[outside]] Schwartz’s. Before skid [[row]], Ryan [[Larkin]] almost won [[an]] Oscar [[for]] [[an]] animation [[of]] [[people]] [[walking]], [[and]] had [[his]] own office [[down]] [[at]] [[Place]] des Arts.”

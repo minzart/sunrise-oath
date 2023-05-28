@@ -1,1 +1,1 @@
-From [[there]] [[came]] [[epistemology|‘Epistemology’]], the [[best]] [[writing]] I [[ever]] produced.
+[[From]] [[there]] [[came]] [[epistemology|‘Epistemology’]], the [[best]] [[writing]] I [[ever]] produced.

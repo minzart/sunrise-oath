@@ -1,0 +1,1 @@
+[[Ancra]] [[fell]] [[in]] [[love]] [[with]] [[a]] [[goddess]] [[of]] [[song]]. [[Having]] [[gained]] minor renown [[as]] [[an]] academic, [[he]] [[came]] [[to]] [[see]] [[that]] [[this]] [[was]] [[not]] [[his]] [[calling]]. [[With]] [[the]] [[lawyer]]'s encouragement, [[he]] starts [[to]] recover [[his]] [[old]] interests.

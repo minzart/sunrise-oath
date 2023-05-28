@@ -1,0 +1,1 @@
+[[The]] female [[knight]] [[was]] [[beautiful]], [[Yohani]] [[thought]]. [[That]] [[night]], [[he]] [[thought]] [[of]] [[the]] male [[mage]].

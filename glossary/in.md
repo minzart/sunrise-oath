@@ -1,1 +1,1 @@
-[[I]] [[was]] [[always]] [[part]] [[of]] [[the]] [[big]] [[group]]. [[When|when]] [[i|I]] [[was]] [[twenty-four]], [[i|I]] [[decided]] [[to]] [[try]] [[being]] [[one]] [[of]] [[the]] [[few]].
+[[I]] [[was]] [[always]] [[part]] [[of]] [[the]] [[big]] [[group]]. [[When|when]] [[i|I]] [[was]] [[twenty]]-[[four]], [[i|I]] [[decided]] [[to]] [[try]] [[being]] [[one]] [[of]] [[the]] [[few]].

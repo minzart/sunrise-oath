@@ -1,0 +1,1 @@
+[[They]] [[enter]] [[a]] [[church]], [[where]] [[he]] [[found]] [[a]] lead [[for]] [[someone]] [[who]] [[he]] [[was]] speaking [[to]] during [[his]] [[mission]].

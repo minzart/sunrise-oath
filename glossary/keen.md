@@ -1,0 +1,1 @@
+Driven [[by]] [[her]] innate [[curiosity]], [[she]] embarked [[on]] [[a]] [[quest]] [[to]] [[uncover]] [[the]] [[hidden]] [[essence]] [[of]] [[art]]. 

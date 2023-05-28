@@ -1,0 +1,1 @@
+On Canada Day, he [[writes]] then goes to bed.

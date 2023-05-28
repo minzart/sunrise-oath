@@ -1,0 +1,1 @@
+Somatic [[resonance]] [[is]] [[one]] of those [[concepts]] I [[know]] [[is]] [[real]] and [[true]], but which I think [[is]] [[better]] [[learned]] [[from]] [[experience]] [[than]] [[from]] a motivated [[guru]].

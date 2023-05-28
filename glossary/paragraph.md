@@ -1,0 +1,1 @@
+[[Say]] [[sorry]] [[to]] [[a]] [[stranger]]. [[Get]] [[on]] [[the]] [[wrong]] bus. Stick [[with]] [[the]] mistake. [[Meet]] [[the]] [[love]] [[of]] [[my]] [[life]]. [[See]] too [[late]] [[she]] [[is]] [[my]] [[shadow]]. Carry [[a]] flashlight [[for]] [[the]] [[rest]] [[of]] [[my]] [[days]].

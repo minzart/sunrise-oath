@@ -1,0 +1,1 @@
+[[The]] [[Red]] [[Dragon]], rival [[to]] [[the]] [[Horn]], [[is]] [[a]] pub [[of]] low repute [[in]] [[Starhaven]].

@@ -1,0 +1,1 @@
+[[the]] [[mother]] [[opens]] [[every]] [[wound]], [[the]] [[wound]] [[opens]] [[every]] [[word]]

@@ -1,8 +1,8 @@
-[[In]] [[1992]], [[Gale]] [[met]] [[Dawn]] [[on]] [[the]] [[day]] [[of]] [[the]] [[feast]] [[of]] Nicodemus. [[In]] 1999, he [[dreams]] of the car accident with [[Louise]] right [[after]] he finds out of her death. 
+[[In]] [[1992]], [[Gale]] [[met]] [[Dawn]] [[on]] [[the]] [[day]] [[of]] [[the]] [[feast]] [[of]] Nicodemus. [[In]] 1999, he [[dreams]] of the car accident with [[Louise]] right [[after]] he [[finds]] out of her death. 
 
 * * *
 Aladdin ([[1992]])  
-Weezer formed in [[1992]], of course.  
+Weezer [[formed]] in [[1992]], of course.  
 Karla Homolka [[1992]]  
 [[1992]] Canadian Airborne Regiment  
 My Cousin Vinny ([[1992]])  
@@ -22,5 +22,5 @@ Amy Fisher was seventeen when she shot [[someone]] out of love.
 Parallels to Gale [[Jones]].  
   
 American [[Beauty]]  
-South of the Border, West of the [[Sun]]  
+South of the [[Border]], West of the [[Sun]]  
 Bill Nye, the [[Science]] [[Guy]].

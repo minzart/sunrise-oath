@@ -1,1 +1,1 @@
-The second player draws a [[card]] at the [[start]] of the [[game]] before the [[first]] player [[moves]].
+The [[second]] player draws a [[card]] at the [[start]] of the [[game]] before the [[first]] player [[moves]].

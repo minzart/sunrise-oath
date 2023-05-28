@@ -1,0 +1,1 @@
+[[They]] traveled [[through]] [[a]] [[desert]] [[without]] [[rations]], yet [[in]] [[a]] [[forest]] [[of]] melting [[stone]] [[she]] [[could]] [[not]] [[hold]] [[onto]] [[life]].

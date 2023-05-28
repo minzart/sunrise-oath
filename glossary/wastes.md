@@ -1,0 +1,1 @@
+In the UN ET DEMI, Gale's [[daily]] life is told through diary entries [[overlay]]. He [[changes]] through fonts and settles on Garamond. (Charlotte is [[missing]] [[from]] these [[scenes]], but is hinted at somehow.)

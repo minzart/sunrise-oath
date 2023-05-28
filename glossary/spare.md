@@ -1,0 +1,1 @@
+[[As]] [[she]] sits [[up]], thunder claps. [[She]] smiled [[at]] [[the]] pattering. [[Once]] dressed, [[she]] wanders [[into]] [[the]] rain, [[armed]]. [[The]] rain [[shall]] drown [[their]] cries, [[their]] pleas [[for]] [[death]]. 

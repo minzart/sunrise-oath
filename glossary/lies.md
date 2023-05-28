@@ -1,0 +1,1 @@
+[[Keep]] [[the]] [[dagger]] [[ready]]. [[Set]] [[the]] [[bait]]. [[Craft]] [[a]] [[false]] [[truth]].

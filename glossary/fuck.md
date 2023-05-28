@@ -1,0 +1,1 @@
+[[Look]] [[at]] [[no]] [[one]] [[how]] [[you]] [[shall]] [[not]] [[look]] [[at]] [[your]] [[father]] [[and]] [[mother]].

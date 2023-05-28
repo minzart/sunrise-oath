@@ -1,0 +1,1 @@
+[[Love]] [[the]] ones [[who]] [[got]] [[away]]. [[Make]] [[them]] [[my]] eternal harem, [[my]] adorable brides [[in]] [[the]] sealed palace. Treat [[them]] [[like]] princesses, making sure [[they]] [[each]] [[get]] [[their]] [[turn]] (oops, [[forgot]] [[about]] Clara). Sigh [[so]] [[they]] [[can]] [[hear]] [[it]], loud [[and]] [[clear]].  

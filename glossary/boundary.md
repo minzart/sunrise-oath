@@ -1,0 +1,1 @@
+Knowledge of the viewer came to me, and was taken by [[faith]]. Such was the [[power]] of my epistemology, that it could [[create]] facts out of [[thin]] air.

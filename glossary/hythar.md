@@ -1,0 +1,1 @@
+[[He]] [[could]] [[not]] [[stop]] [[looking]] [[at]] Ingberta, which [[is]] [[why]] [[he]] could never stay long at the Queen’s Staff Tavern. That was how he ended up at the Lost Stone, and how he [[went]] on the good run of a lifetime in a fateful night of [[gambling]]. 

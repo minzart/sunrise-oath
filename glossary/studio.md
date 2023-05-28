@@ -1,0 +1,1 @@
+[[Within]] [[the]] [[immaculate]] [[space]], [[a]] [[presence]] manifested.

@@ -1,0 +1,1 @@
+[[Gale]] commits [[to]] [[searching]] [[for]] [[that]] which [[is]] [[lost]]. [[Coming]] [[across]] [[Alain]], [[the]] owner [[of]] [[the]] cafe, [[he]] is reprimanded for [[pushing]] [[aside]] those who [[want]] what is [[best]] for him. By the [[end]] of the chapter, he [[sees]] the [[truth]] for what it is but [[struggles]] [[alone]].  

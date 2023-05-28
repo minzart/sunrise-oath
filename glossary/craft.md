@@ -1,0 +1,1 @@
+[[I]] [[like]] [[how]] [[my]] sentences [[dance]] [[on]] [[the]][[dance| page]], [[painting]] [[in]] [[the]] [[space]] [[between]] [[the]] beats. Performing [[a]] persona [[I]] [[never]] [[use]] [[at]] [[home]]—[[that]] marks [[the]] tone [[of]] [[how]] [[I]] [[act]] [[in]] [[the]] [[world]].

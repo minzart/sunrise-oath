@@ -1,0 +1,1 @@
+L'[[écriture]] n'est le début ni la fin d'une pensée. C'est plutôt une façon [[pour]] l'écrivain de se prouver, se réprouver. Voilà, c'est ça que je pense! Et alors? Quoi faites-vous, les bons gens du monde? Maintenant, tout s'est mis en lumière, présenté [[avec]] la lustrerie d'or et de l'argent, créé au nouveau par la [[main]] de l'esprit.

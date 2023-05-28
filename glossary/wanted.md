@@ -1,0 +1,1 @@
+[[The]] [[unicorn]] [[horn]] [[was]] [[Saad]]'s [[to]] [[have]], yet [[he]] [[thought]] [[nothing]] [[of]] its [[holy]] [[power]]. [[From]] [[the]] [[moment]] [[Yohani]] [[saw]] [[it]], [[he]] [[knew]] [[that]] [[destiny]] [[was]] [[at]] [[hand]].

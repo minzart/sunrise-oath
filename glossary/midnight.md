@@ -1,3 +1,3 @@
 “What are [[you]]?”
 
-“[[The]] admirer, protégé, and [[sister]] [[of]] Spring [[Moon]], [[Selene]]; [[the]] [[secret]] [[heiress]] [[of]] [[the]] Baumans, [[an]] Australian [[high]] [[school]] valedictorian [[at]] fifteen.” Her cadence [[was]] [[even]]. “[[A]] burnout, her [[father]]’s [[disappointment]], her [[mother]]’s disgrace; [[a]] runaway, [[expected]] [[in]] Hong Kong [[for]] her twentieth [[birthday]], her [[reveal]] [[at]] [[the]] Mid-[[Autumn]] Festival.”
+“[[The]] admirer, protégé, and [[sister]] [[of]] [[Spring]] [[Moon]], [[Selene]]; [[the]] [[secret]] [[heiress]] [[of]] [[the]] Baumans, [[an]] Australian [[high]] [[school]] valedictorian [[at]] fifteen.” Her cadence [[was]] [[even]]. “[[A]] burnout, her [[father]]’s [[disappointment]], her [[mother]]’s disgrace; [[a]] runaway, [[expected]] [[in]] Hong Kong [[for]] her twentieth [[birthday]], her [[reveal]] [[at]] [[the]] Mid-[[Autumn]] Festival.”

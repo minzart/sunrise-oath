@@ -1,0 +1,1 @@
+[[What]] [[she]] discovers [[there]] [[is]] shocking: [[the]] bandits are being supplied with weapons and provisions by a corrupt official in the nearby town. [[Elara]] realizes that this is a bigger [[problem]] than she thought.

@@ -1,0 +1,1 @@
+Who dares to say we are not the sinners of the venerable religions? Holy texts speak of the wayward children, those who make light of God and dark of truth. [[Tradition]] carries out the heresy of progress, the lie of human ingenuity. [[Ash]] shall feed the new body of Adam, and bless the dust by fire’s consecration. 

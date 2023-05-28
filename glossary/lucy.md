@@ -1,1 +1,1 @@
-[[Gale]] reads South [[of]] [[the]] Border, West [[of]] [[the]] [[Sun]] [[and]] [[sees]] [[a]] "[[special]] gift" [[from]] [[Selene]]. [[He]] [[takes]] [[it]], writes [[in]] [[a]] fervor, [[and]] falls asleep [[without]] [[the]] [[machine]].
+[[Gale]] reads South [[of]] [[the]] [[Border]], West [[of]] [[the]] [[Sun]] [[and]] [[sees]] [[a]] "[[special]] [[gift]]" [[from]] [[Selene]]. [[He]] [[takes]] [[it]], [[writes]] [[in]] [[a]] fervor, [[and]] falls asleep [[without]] [[the]] [[machine]].

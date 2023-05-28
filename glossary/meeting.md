@@ -1,1 +1,1 @@
-At Génoise et Thé, [[we]] [[held]] [[an]] [[emergency]] session. Presiding, Juniper announced: “[[We]] can’t lose this [[café]]. [[There]]’s too [[much]] at [[stake]].”  
+[[At]] Génoise et Thé, [[we]] [[held]] [[an]] [[emergency]] [[session]]. Presiding, Juniper announced: “[[We]] [[cannot]] lose [[this]] [[café]]. [[There]] [[is]] too [[much]] [[at]] [[stake]].”  

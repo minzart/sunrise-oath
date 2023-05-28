@@ -1,0 +1,1 @@
+To [[Lewis]]: I [[hope]] to [[speak]] [[soon]]. [[We]] [[live]] [[so]] [[close]], [[so]] I [[regret]] that [[we]] see [[each]] [[other]] not as often as I [[wish]]. The days of Rob's [[game]] [[are]] [[well]] behind [[us]], yet [[they]] [[stay]] [[with]] [[me]] as [[my]] fondest [[memories]] of [[friendship]], of brotherhood, of trust. 

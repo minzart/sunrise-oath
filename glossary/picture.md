@@ -1,1 +1,1 @@
-Time was of the [[essence]]. I recalibrated the [[camera]]’s settings, and raised it to my eye once again.
+Time was of the [[essence]]. I recalibrated the [[camera]]’s settings, and [[raised]] it to my eye once again.

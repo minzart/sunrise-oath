@@ -1,0 +1,1 @@
+[[Pointing]] [[out]] [[for]] [[the]] sake [[of]] [[clarity]]: [[you]] [[and]] [[I]] [[are]] speaking [[different]] languages [[right]] [[now]], [[this]] [[second]]. 

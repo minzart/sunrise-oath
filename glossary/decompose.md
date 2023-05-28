@@ -1,0 +1,1 @@
+[[The]] [[adventurer]] [[lies]] [[under]] [[the]] [[sun]] [[when]] [[a]] [[man]] [[comes]] [[by]] [[with]] equipment [[and]] provisions. [[There]] [[is]] [[a]] [[dungeon]] [[a]] dozen miles north, [[he]] [[says]]. [[And]] [[so]] [[the]] [[two]] teamed [[up]] [[to]] [[go]] explore.

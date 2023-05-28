@@ -1,0 +1,1 @@
+To [[whom]] [[do]] I [[write]], and for [[what]]? [[Futility]], and [[vanity]], and pride. That was [[my]] [[master]], til I knew the [[truth]]. For all [[my]] life I [[lived]] a lie, and [[lies]] [[are]] all I [[gained]] [[from]] sinful life. I [[found]] the [[truth]] by the [[light]] of the sunrise, led to God by [[his]] angels. 

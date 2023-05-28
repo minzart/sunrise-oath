@@ -1,1 +1,1 @@
-Soon [[after]] [[he]] [[brought]] [[the]] book [[home]], [[strange]] [[things]] [[started]] to happen. Objects moved on their own, and shadows seemed to dance around the room. [[Daniel]] dismissed it all as his [[imagination]], but deep down, he knew that something was wrong.
+[[Soon]] [[after]] [[he]] [[brought]] [[the]] [[book]] [[home]], [[strange]] [[things]] [[started]] to happen. Objects moved on their own, and shadows seemed to dance around the room. [[Daniel]] dismissed it all as his [[imagination]], but deep down, he knew that something was wrong.

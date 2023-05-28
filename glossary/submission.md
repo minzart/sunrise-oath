@@ -1,0 +1,1 @@
+Trampled on the sidewalk in the rain, squashed by blind and heavy feet, the new human transcends the primate form, frees itself of hierarchical chains, lets go of silly child’s play. The dried [[husk]], a corpse that claims no heritage or legacy, returns to empty matter as it should. 

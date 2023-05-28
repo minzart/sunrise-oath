@@ -1,0 +1,1 @@
+[[This]] [[took]] [[a]] [[whole]] [[new]] [[dimension]] [[upon]] [[my]] [[new]] [[understanding]] [[of]] [[Calvin]], [[of]] [[religion]], [[of]] [[God]], [[of]] [[Christ]].

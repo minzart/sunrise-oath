@@ -1,0 +1,1 @@
+[[Oneness]] [[apart]] [[from]] [[lie]].

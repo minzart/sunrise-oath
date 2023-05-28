@@ -1,0 +1,1 @@
+[[On]] [[earth]] [[as]] [[in]] [[heaven]], [[God]]’s [[children]] walk [[as]] [[they]] [[wish]].

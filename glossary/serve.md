@@ -1,0 +1,1 @@
+[[My]] [[whole]] [[life]], [[I]] resisted [[having]] [[a]] [[master]]. [[One]] [[day]], [[I]] [[took]] [[myself]] [[as]] [[a]] [[slave]]. Yet [[now]] [[I]] [[have]] sold [[myself]] [[to]] [[the]] [[great]] [[sovereign]], [[the]] [[one]] [[with]] [[dominion]] [[over]] [[all]].

@@ -16,6 +16,6 @@ WIL: 11
 -   **Weapon:** Crossbow (bulky).
 -   **Gear, tools & trinkets:** Hourglass, Repellent, and [[Lens]].
 -   **Bonus item:** Net (stacks).
--   **Starting supplies:** 11 [[gold]], a torch, and three days' rations.
+-   **Starting supplies:** 11 [[gold]], a torch, and three days' [[rations]].
 -   **Inventory:** using **8** out of **10** available slots.
   

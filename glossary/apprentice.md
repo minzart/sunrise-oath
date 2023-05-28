@@ -1,1 +1,1 @@
-[[Chapter]] Three [[Tara]] and [[Gale]] [[talk]] about [[Eroica]]'s kids.
+[[Tara]] and [[Gale]] [[talk]] about [[Eroica]]'s kids.

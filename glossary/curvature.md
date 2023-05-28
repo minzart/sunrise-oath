@@ -1,0 +1,1 @@
+Taking all the memories I have and forcing them out makes music out of noise, rhythm out of knocks. They all squeeze out the tube and form a blob, a pretty one wth the stripe down the middle, the part that tastes the [[mintiest]] or so I imagined as a growing boy.  

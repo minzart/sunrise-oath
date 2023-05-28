@@ -1,1 +1,1 @@
-A [[shy]] [[kiss]], a [[brush]].
+[[A]] [[shy]] [[kiss]], [[a]] [[brush]].

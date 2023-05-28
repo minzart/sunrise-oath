@@ -1,1 +1,1 @@
-Wrote [[a]] [[message]] [[to]] [[the]] [[friend]] [[I]] talked about [[last]] [[time]], perhaps too subversively [[to]] be [[honest]], but [[in]] [[the]] [[spirit]] [[of]] criticizing his [[prescription]] that [[an]] elder/presbyter ought [[to]] be [[married]]. 
+[[Wrote]] [[a]] [[message]] [[to]] [[the]] [[friend]] [[I]] talked about [[last]] [[time]], perhaps too subversively [[to]] be [[honest]], but [[in]] [[the]] [[spirit]] [[of]] criticizing his [[prescription]] that [[an]] elder/presbyter [[ought]] [[to]] be [[married]]. 

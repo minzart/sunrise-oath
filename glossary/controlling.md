@@ -1,0 +1,1 @@
+[[Fellowship]] [[is]] [[beautiful]], [[if]] not [[rare]]. 

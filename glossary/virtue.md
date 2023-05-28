@@ -1,7 +1,7 @@
 ### ID
 Temperance  
 Diligence  
-Patience
+[[Patience]]
 
 ### EGO
 Humility

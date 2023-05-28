@@ -1,0 +1,2 @@
+Trying to write in my [[school]] French is best compared to being high, or visiting a damp overgrown temple. Weeds peek through the concrete floor, and vines drape the monuments that I once saw in history books. A [[glimpse]] of truth, then darkness. Light, then the knowledge of nothing. The [[meaning]] of the words sits far outside the words I know, the sentences that come to the [[tip]] of the finger—the point of the thought, dulled by a cloud of muscle memory. 
+

@@ -1,0 +1,1 @@
+Voila, c''est Horace. Que faites-vous, marchand de nuit qui m'accoste [[pour]] une dernière vente? Je n'[[ai]] du temps ni de l'occasion [[pour]] vous amuser [[avec]] mes trompes et mes torts, mes malgrés et mes [[malices]]. L'heure arrive [[for]] ma mort en honte, déprivé des plaisirs du jour [[jouissant]].

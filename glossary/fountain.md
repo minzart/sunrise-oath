@@ -1,1 +1,1 @@
-[[The]] [[gargoyle]] [[is]] [[waiting]] [[for]] [[a]] conversation.
+[[The]] [[gargoyle]] [[is]] [[waiting]] [[for]] [[a]] [[conversation]].

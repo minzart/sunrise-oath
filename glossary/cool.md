@@ -1,1 +1,1 @@
-[[Power]] structures [[self]]-[[reinforce]]. [[How]] [[does]] [[the]] diversity [[regime]] [[do]] so?
+[[Power]] [[structures]] [[self]]-[[reinforce]]. [[How]] [[does]] [[the]] diversity [[regime]] [[do]] so?

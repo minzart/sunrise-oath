@@ -1,0 +1,1 @@
+[[I]] offer [[invitation]] [[to]] [[join]] [[me]] on Sundays [[from]] 1 [[and]] 5, to make art and [[speak]] of anything we please.  

@@ -1,3 +1,3 @@
 “That’s what I want.” She tempted me with her smile. “What can a writer [[give]] to a woman who has forgotten the past?”
 
-I smoked. Inhale, hold, [[exhale]]. What could I [[give]] her? Inhale, hold, [[exhale]]. What could a writer offer this [[beautiful]] stranger in a [[blue]] dress? Inhale, hold . . . [[Eureka]], a greater man than me exclaimed, streaking through the streets of Syracuse. I [[exhaled]] and cleared my [[throat]]. “I offer something better than a name: a story.”
+I smoked. [[Inhale]], hold, [[exhale]]. What could I [[give]] her? [[Inhale]], hold, [[exhale]]. What could a writer offer this [[beautiful]] stranger in a [[blue]] dress? [[Inhale]], hold . . . [[Eureka]], a greater man [[than]] me exclaimed, streaking through the streets of Syracuse. I [[exhaled]] and cleared my [[throat]]. “I offer something better [[than]] a name: a story.”

@@ -1,1 +1,1 @@
-“[[Thank]] [[you]].“ His bonus [[was]] [[all]] but signed. [[After]] giving [[a]] [[nod]] [[that]] [[he]] [[could]] [[not]] [[see]], [[I]] went [[ahead]] [[by]] [[myself]]. 
+“[[Thank]] [[you]].“ His bonus [[was]] [[all]] but signed. [[After]] giving [[a]] [[nod]] [[that]] [[he]] [[could]] [[not]] [[see]], [[I]] [[went]] [[ahead]] [[by]] [[myself]]. 

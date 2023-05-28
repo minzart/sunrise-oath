@@ -1,1 +1,1 @@
-[[My]] [[friends]], [[remember]] [[that]] [[God]] chose [[you]] [[as]] [[his]] [[child]] [[and]] [[saved]] [[you]] [[out]] [[of]] [[love]]. [[Let]] us [[give]] thanks [[to]] [[God]] [[for]] [[everything]]. 
+[[My]] [[friends]], [[remember]] [[that]] [[God]] chose [[you]] [[as]] [[his]] [[child]] [[and]] [[saved]] [[you]] [[out]] [[of]] [[love]]. [[Let]] [[us]] [[give]] thanks [[to]] [[God]] [[for]] [[everything]]. 

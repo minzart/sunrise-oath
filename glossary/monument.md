@@ -1,0 +1,1 @@
+[[Other]] [[young]] [[people]], [[friends]] [[and]] strangers [[my]] [[age]], [[saw]] [[the]] [[same]] [[sights]] [[as]] [[me]] [[that]] evening. [[Maybe]] [[only]] [[I]] [[saw]] [[beauty]] [[as]] [[it]] [[was]], or [[maybe]] [[I]] [[was]] drunk [[with]] [[love]].

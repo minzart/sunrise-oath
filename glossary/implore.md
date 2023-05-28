@@ -1,1 +1,1 @@
-[[I]] [[came]] [[to]] [[faith]] recently, and so [[am]] more pious than [[the]] pope, and [[as]] [[such]] this [[is]] [[at]] [[the]] forefront [[of]] [[my]] [[mind]].
+[[I]] [[came]] [[to]] [[faith]] recently, and so [[am]] more pious [[than]] [[the]] pope, and [[as]] [[such]] this [[is]] [[at]] [[the]] forefront [[of]] [[my]] [[mind]].

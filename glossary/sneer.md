@@ -1,0 +1,1 @@
+The way that asshole walked out of the Lost Stone with that look on his face, Hythar might have killed Sylvius if [[Stebilia]] had not blocked the way.

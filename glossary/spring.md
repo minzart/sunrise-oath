@@ -1,1 +1,1 @@
-[[Only]] those [[you]] viscerally [[wish]] [[to]] [[defend]] are "[[your]] [[people]]". [[In]] [[that]] [[regard]], [[habit]] contrarians [[do]] [[a]] [[good]] [[impression]] [[of]] [[egalitarians]].
+[[Only]] those [[you]] viscerally [[wish]] [[to]] [[defend]] [[are]] "[[your]] [[people]]". [[In]] [[that]] [[regard]], [[habit]] contrarians [[do]] [[a]] [[good]] [[impression]] [[of]] [[egalitarians]].

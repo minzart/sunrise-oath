@@ -1,4 +1,4 @@
-A genius is the zenith of his strokes.
+A genius is the zenith of his [[strokes]].
 
 - - -
 

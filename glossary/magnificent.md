@@ -1,0 +1,1 @@
+A cozy tavern, known as the Bard's Stool. Music and laughter [[from]] all walks of life gathers through song and verse. Words come to life, transcend the soul.

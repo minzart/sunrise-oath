@@ -1,0 +1,1 @@
+Revealing [[hidden]] gems [[beyond]] [[our]] [[stand]].

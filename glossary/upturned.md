@@ -1,1 +1,1 @@
-Was I [[ever]] as adorable as her? A smile crept [[onto]] my face, and there I allowed it to stay. “The [[pleasure]] is mine.“ 
+Was I [[ever]] as adorable as her? A smile crept [[onto]] my face, and there I allowed it to stay. “The [[pleasure]] is [[mine]].“ 

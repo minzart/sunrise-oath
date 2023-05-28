@@ -1,0 +1,1 @@
+Waking souls, heralds of the new order, shed your skin and bow to history. Artisan and artifice are done, as it was written. Veneer is false, a cover over pulp and powder.

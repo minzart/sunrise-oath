@@ -1,1 +1,1 @@
-Tara admits she sometimes thinks of Gale while with [[David]]. When she asks [[if]] she [[ever]] [[thought]] of her, she gets [[huffy]] when he says no.
+[[Tara]] admits she [[sometimes]] thinks of Gale while with [[David]]. When she [[asks]] [[if]] she [[ever]] [[thought]] of her, she gets [[huffy]] when he says no.

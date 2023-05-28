@@ -1,0 +1,1 @@
+[[Elara]] presses [[for]] [[more]] [[information]], but [[he]] [[knows]] little. [[The]] orders [[came]] [[down]] [[from]] [[the]] [[fortress]] commander, but [[he]] [[knows]] [[not]] [[why]].

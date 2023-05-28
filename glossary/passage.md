@@ -1,1 +1,1 @@
-[[He]] returned [[home]] [[and]] opened [[the]] book [[to]] [[the]] [[page]] [[he]] had bookmarked. [[He]] recited [[the]] [[incantation]], [[and]] [[a]] gust [[of]] [[wind]] knocked him [[off]] [[his]] feet.
+[[He]] returned [[home]] [[and]] opened [[the]] [[book]] [[to]] [[the]] [[page]] [[he]] had bookmarked. [[He]] recited [[the]] [[incantation]], [[and]] [[a]] gust [[of]] [[wind]] knocked him [[off]] [[his]] feet.

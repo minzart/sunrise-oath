@@ -1,0 +1,1 @@
+[[The]] [[adventurer]] declines, [[and]] [[leaves]]. [[His]] ally [[says]] [[that]] [[a]] [[curse]] [[shall]] [[fall]] [[upon]] him, [[and]] disappears. [[After]] some [[time]], [[a]] monster ambushes [[the]] [[adventurer]] [[from]] [[the]] [[dark]]. ([[It]] [[is]] [[the]] [[true]] [[form]] [[of]] [[the]] ally!)

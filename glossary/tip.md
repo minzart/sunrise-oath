@@ -1,0 +1,1 @@
+[[It]] [[is]] [[said]] [[that]] [[the]] [[tongue]] [[is]] [[the]] strongest muscle [[in]] [[the]] [[body]], [[that]] [[nature]]'s genius [[has]] [[us]] [[use]] [[it]] twice: [[for]] [[food]], [[and]] [[for]] [[speech]]. [[So]] [[we]] choke [[on]] our words, and speak our gluttony.

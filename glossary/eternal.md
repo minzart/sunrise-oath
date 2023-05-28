@@ -1,0 +1,20 @@
+I walk [[through]] [[an]] [[overgrown]] schoolyard, [[where]] [[all]] [[my]] [[dreams]] and misadventures lead [[me]]. A portable classroom, covered in vines, [[is]] a [[shrine]] in the [[forgotten]] [[corner]] of the campus. Who [[else]] [[comes]] here at this hour? [[Only]] [[me]]. I sit on the wooden steps, and [[remember]] [[when]] I was [[there]] [[with]] [[another]]. I [[wonder]] [[how]] [[she]] [[is]] [[doing]], that maiden of the [[sun]] and the [[sea]].
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+

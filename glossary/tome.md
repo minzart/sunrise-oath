@@ -1,1 +1,1 @@
-[[Daniel]] [[was]] fascinated [[by]] rare books. [[He]] [[spent]] [[his]] [[days]] scouring bookstores [[and]] estate sales, [[looking]] [[for]] [[that]] [[one]] book [[that]] would [[change]] [[his]] [[life]]. [[One]] [[day]], [[he]] [[found]] [[it]].
+[[Daniel]] [[was]] fascinated [[by]] rare books. [[He]] [[spent]] [[his]] [[days]] scouring bookstores [[and]] estate sales, [[looking]] [[for]] [[that]] [[one]] [[book]] [[that]] would [[change]] [[his]] [[life]]. [[One]] [[day]], [[he]] [[found]] [[it]].

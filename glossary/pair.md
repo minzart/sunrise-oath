@@ -1,0 +1,1 @@
+[[The]] [[gallery]] [[was]] clean [[and]] [[proper]]. [[I]] fixed [[my]] tie and, seeing that my fly was not zipped all the way, made a quick adjustment when the security [[guard]] checked his phone.

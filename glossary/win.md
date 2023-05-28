@@ -1,0 +1,1 @@
+[[I]] fucked [[his]] [[high]] [[school]] girlfriend. [[Never]] [[told]] him.

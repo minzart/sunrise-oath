@@ -1,0 +1,1 @@
+[[Language]] [[has]] [[no]] [[meaning]]. [[All]] [[our]] desperate gestures [[at]] [[the]] [[moon]] [[and]] [[the]] stars. [[Words]] [[are]] buckets, [[and]] [[meaning]] [[is]] [[the]] shimmer [[of]] [[the]] waters [[of]] [[the]] [[world]]. [[Who]] [[knows]] [[what]] [[anyone]] [[ever]] [[means]]!

@@ -1,1 +1,1 @@
-[[The]] [[sunrise]] [[oath]], [[the]] [[one]] [[I]] [[made]] [[my]] own, has [[me]] its [[avatar]] amd [[holy]] [[man]]. 
+[[The]] [[sunrise]] [[oath]], [[the]] [[one]] [[I]] [[made]] [[my]] own, [[has]] [[me]] its [[avatar]] [[and]] [[holy]] [[man]]. 

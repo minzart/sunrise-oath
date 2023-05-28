@@ -1,1 +1,1 @@
-[[He]] believed [[not]] [[in]] [[magic]] or [[the]] supernatural, but [[he]] [[could]] [[not]] [[resist]] [[the]] [[allure]] [[of]] the book. He spent all of his savings to [[acquire]] it—using the untouched inheritance from his uncle—and was without regret.
+[[He]] believed [[not]] [[in]] [[magic]] or [[the]] supernatural, but [[he]] [[could]] [[not]] [[resist]] [[the]] [[allure]] [[of]] the [[book]]. He spent all of his savings to [[acquire]] it—using the untouched inheritance [[from]] his uncle—and was without regret.

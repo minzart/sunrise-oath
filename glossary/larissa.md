@@ -1,0 +1,1 @@
+In the [[meantime]], the widow [[spent]] [[her]] wealth on [[material]], among them alabaster statues. 

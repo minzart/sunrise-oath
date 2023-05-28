@@ -1,0 +1,1 @@
+[[Gale]] [[is]] [[ready]] [[to]] [[move]] [[on]] [[and]] enjoy [[a]] [[new]] life, but is stopped by a stumble. The appearance of [[Tara]] gives him [[pause]], and he [[examines]] the ways in which he has [[ran]] [[from]] his past. By the [[end]] of the chapter, he has [[doubts]] about the life he has chosen to [[live]].  

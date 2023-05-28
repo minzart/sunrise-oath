@@ -1,0 +1,1 @@
+[[Lea]] [[takes]] [[up]] [[the]] [[sword]] [[and]] learns [[the]] [[Word]]. [[She]] [[is]] [[in]] [[a]] [[daze]]. [[A]] [[dream]], [[a]] nightmare, [[she]] doesn't [[know]] which. [[She]] stands [[with]] [[her]] [[sword]] [[in]] [[hand]], [[staring]] [[at]] [[a]] [[young]] [[man]]. [[His]] [[lips]] [[move]] silently.

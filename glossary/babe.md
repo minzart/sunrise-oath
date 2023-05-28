@@ -2,4 +2,4 @@
 
 “You can’t [[give]] me any [[old]] name,” she said, and flailed her [[arms]]. “Gosh. A man [[must]] consider a woman’s feelings.”
 
-Inhale, hold, [[exhale]]. Lots of [[oxygen]].
+[[Inhale]], hold, [[exhale]]. Lots of [[oxygen]].

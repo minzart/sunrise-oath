@@ -1,0 +1,1 @@
+[[The]] Peter [[principle]], [[in]] [[short]], damns [[us]] [[to]] suffer.

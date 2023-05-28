@@ -1,1 +1,1 @@
-[[Despite]] [[his]] [[arrogance]] [[and]] [[carnal]] [[knowledge]], [[he]] [[is]] [[in]] [[love]] [[with]] [[the]] [[heiress]] [[of]] [[a]] [[family]] [[that]] [[his]] [[family]] [[despises]], a [[tribe]] of low-[[birth]] magicians from a distant land. 
+[[Despite]] [[his]] [[arrogance]] [[and]] [[carnal]] [[knowledge]], [[he]] [[is]] [[in]] [[love]] [[with]] [[the]] [[heiress]] [[of]] [[a]] [[family]] [[that]] [[his]] [[family]] [[despises]], a [[tribe]] of low-[[birth]] magicians [[from]] a [[distant]] [[land]]. 

@@ -1,0 +1,1 @@
+[[Skill]] [[is]] [[power]]. [[Can]] [[is]] [[shall]], [[and]] [[shall]] [[is]] [[will]].

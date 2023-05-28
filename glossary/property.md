@@ -1,1 +1,1 @@
-[[Second]]: [[matter]] accelerates [[in]] [[the]] [[direction]] [[of]] [[force]]. Push [[to]], pull fro — [[we]] go [[as]] [[we]] are forced [[to]] go.
+[[Second]]: [[matter]] accelerates [[in]] [[the]] [[direction]] [[of]] [[force]]. Push [[to]], pull fro — [[we]] go [[as]] [[we]] are [[forced]] [[to]] go.

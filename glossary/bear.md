@@ -1,1 +1,1 @@
-Currently inhabiting [[Donne]]'s [[human]] [[body]]
+Inhabiting [[Donne]]'s [[human]] [[body]], [[the]] cub [[was]] [[cold]], [[and]] naked, [[and]] terrified.

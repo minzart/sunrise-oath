@@ -1,1 +1,1 @@
-Dogs [[have]] [[alignment]] issues [[with]] humans. [[They]] [[have]] evolved [[to]] maximize [[the]] resources [[we]] afford [[them]], [[and]] each [[generation]] has had strong [[selection]] [[pressure]] [[to]] [[further]] increase their symbiosis [[with]] us.
+Dogs [[have]] [[alignment]] issues [[with]] humans. [[They]] [[have]] evolved [[to]] maximize [[the]] resources [[we]] afford [[them]], [[and]] [[each]] [[generation]] has had [[strong]] [[selection]] [[pressure]] [[to]] [[further]] increase their symbiosis [[with]] [[us]].

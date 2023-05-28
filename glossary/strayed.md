@@ -1,1 +1,1 @@
-Gale lived not a normal life. He lived the [[best]] of lives. He never appreciated his past life, because he was so [[happy]] he knew not [[even]] what [[there]] was to be [[thankful]] for. 
+Gale [[lived]] not a normal life. He [[lived]] the [[best]] of lives. He never appreciated his past life, because he was so [[happy]] he knew not [[even]] what [[there]] was to be [[thankful]] for. 

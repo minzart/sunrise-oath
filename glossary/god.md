@@ -13,13 +13,13 @@ Perseus - [[Athena]] / Arachne / Nike
   
 [[Endymion]] - Hera / Myia / Artemis  
   
-[[Pygmalion]] - [[Aphrodite]] / Daphne / Hestia  
+[[Pygmalion]] - [[Aphrodite]] / Daphne / [[Hestia]]  
   
 Narcissus & Echo  
   
 (Dione is [[Athena]], Hera, and [[Aphrodite]] at once.)
 
-Hestia Vesta  
+[[Hestia]] Vesta  
 Artemis Diana  
 [[Aphrodite]]  
   

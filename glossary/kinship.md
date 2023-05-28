@@ -1,1 +1,1 @@
-[[Even]] where families [[still]] hold [[power]], it’s hard [[to]] sustain any [[old]]-fashioned [[illusion]] that it’s [[the]] blood holding [[the]] [[power]] [[together]] and [[not]] [[the]] money.
+[[Even]] where families [[still]] hold [[power]], it’s [[hard]] [[to]] sustain any [[old]]-fashioned [[illusion]] that it’s [[the]] blood holding [[the]] [[power]] [[together]] and [[not]] [[the]] money.

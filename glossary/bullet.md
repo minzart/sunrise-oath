@@ -1,0 +1,1 @@
+[[A]] hooded caster uses [[words]] [[like]] psychic ammo.

@@ -2,7 +2,7 @@
 [[Hortus]] Brisbois - the [[manager]]  
 [[Timothy]] Clement - the [[physicist]]  
 [[Alain]] Tremblay - the [[owner]]  
-Tara Robles - the [[architect]]  
+[[Tara]] Robles - the [[architect]]  
 [[Eroica]] [[Vici]] - the [[lawyer]]  
 Selene Bauman - the [[curator]]  
 Catherine Shanks - the [[engineer]]  
@@ -14,5 +14,5 @@ Charlotte Simone Gagnon - the [[doctor]]
 Maximilian Meyer - the politician  
 Peter [[Rose]] - the professor  
 Natalie Lepore - the teacher  
-Alacrity Sharp - the student  
+Alacrity Sharp - the [[student]]  
 Sarah Carice [[Beaulieu]] - the love of his [[dreams]]

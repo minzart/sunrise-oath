@@ -1,1 +1,1 @@
-[[A]] mermaid stared [[at]] [[me]], [[and]] tried [[to]] [[speak]]. [[I]] [[could]] [[not]] hear [[a]] [[word]], yet [[her]] [[lips]] [[moved]], [[and]] [[moved]] [[me]].  
+[[A]] mermaid stared [[at]] [[me]], [[and]] tried [[to]] [[speak]]. [[I]] [[could]] [[not]] [[hear]] [[a]] [[word]], yet [[her]] [[lips]] [[moved]], [[and]] [[moved]] [[me]].  

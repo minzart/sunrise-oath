@@ -1,0 +1,1 @@
+[[The]] [[tree]] refused [[to]] [[give]] [[fruit]] [[if]] [[left]] [[on]] [[a]] [[lawn]], [[alone]].

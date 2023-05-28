@@ -1,1 +1,1 @@
-[[In]] [[1999]], [[I]] finished [[my]] smoke break. Retracing my steps to where I left the [[beautiful]] stranger, I found the calls of [[seagulls]]. As she said, we were forced to wait another [[day]].
+[[In]] [[1999]], [[I]] finished [[my]] smoke break. Retracing my steps to where I left the [[beautiful]] stranger, I found the calls of [[seagulls]]. As she said, we were [[forced]] to [[wait]] another [[day]].

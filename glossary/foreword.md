@@ -6,7 +6,7 @@ the emotions [[are]] [[real]]
   
 law treatise  
 WAY  
-eroica  
+[[eroica]]  
 [[ancra]]  
   
 scripture  
@@ -20,7 +20,7 @@ madeleine
 xuqing  
   
 metafiction  
-THE WATERLOO RECORD  
+THE WATERLOO [[RECORD]]  
 conor  
 hofstadter  
   
@@ -39,7 +39,7 @@ COLLIS
 selene  
 médée  
   
-fast food franchise  
+fast [[food]] franchise  
 MCDONALDS  
 [[alain]]  
 carice  
@@ -72,7 +72,7 @@ shaft
 aurora  
   
 animated film  
-SOUTH OF THE BORDER, WEST OF THE [[SUN]]  
+SOUTH OF THE [[BORDER]], WEST OF THE [[SUN]]  
 shinkai  
 murakami  
   
@@ -92,7 +92,7 @@ a1
 gale  
   
 animated film  
-[[ONE]] THOUSAND LIES  
+[[ONE]] THOUSAND [[LIES]]  
 ufotable  
 abrams  
   

@@ -1,1 +1,1 @@
-His [[image]] [[fell]] in my lap [[without]] my [[ever]] asking for it. The [[perfect]] [[love]] of [[God]] the [[Son]] overwhelmed [[me]], and by [[force]] [[took]] [[me]] [[from]] [[the]] [[life]] I [[knew]]. [[could|Could]] I follow him? I [[love]] him. [[Maybe]] that is enough. 
+His [[image]] [[fell]] in my lap [[without]] my [[ever]] asking for it. The [[perfect]] [[love]] of [[God]] the [[Son]] overwhelmed [[me]], and by [[force]] [[took]] [[me]] [[from]] [[the]] [[life]] I [[knew]]. [[could|Could]] I [[follow]] him? I [[love]] him. [[Maybe]] that is enough. 

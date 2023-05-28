@@ -1,1 +1,1 @@
-Gale is the [[one]] who [[named]] the [[beautiful]] [[stranger]] (or, at least, the [[illusion]] of her) Dawn. Their sunrise oath went as follows: she would [[help]] him love the [[sunrise]], and he would [[help]] her find her name.
+Gale is the [[one]] who [[named]] the [[beautiful]] [[stranger]] (or, at [[least]], the [[illusion]] of her) Dawn. Their sunrise oath [[went]] as follows: she would [[help]] him love the [[sunrise]], and he would [[help]] her find her name.

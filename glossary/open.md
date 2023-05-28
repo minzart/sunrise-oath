@@ -1,0 +1,1 @@
+Marie [[the]] [[personal]] [[companion]] [[AI]] [[who]] [[in]] [[her]] economy / basic bitch [[version]] [[will]] [[try]] [[to]] sell [[you]] fluoride-less toothpaste.

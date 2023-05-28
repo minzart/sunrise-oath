@@ -1,0 +1,1 @@
+What I have are my ideas, my way, my God.

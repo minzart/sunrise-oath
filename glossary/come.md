@@ -1,1 +1,1 @@
-“[[This]] [[is]] [[the]] final [[destination]],” [[she]] [[said]], pointing [[at]] [[the]] [[shining]] [[end]] [[of]] [[the]] [[world]]. “[[Dreams]] [[are]] [[death]], [[and]] [[there]] [[the]] [[magic]] [[of]] [[our]] [[ancestors]] [[shall]] [[reign]].”
+“[[This]] [[is]] [[the]] final [[destination]],” [[she]] [[said]], [[pointing]] [[at]] [[the]] [[shining]] [[end]] [[of]] [[the]] [[world]]. “[[Dreams]] [[are]] [[death]], [[and]] [[there]] [[the]] [[magic]] [[of]] [[our]] [[ancestors]] [[shall]] [[reign]].”

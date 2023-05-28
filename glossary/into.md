@@ -1,1 +1,1 @@
-“It’s not rocket science. She had fuck-me eyes going.” He shuffled his king, and groaned when he was in [[mate]]. “How did you find that?”
+“It’s not rocket science. She had [[fuck]]-me [[eyes]] going.” He shuffled his king, and groaned when he was in [[mate]]. “How did you find that?”

@@ -1,1 +1,1 @@
-[[No]] [[more]] than [[pen]] [[on]] [[paper]]. [[That]] it [[is]], [[all]] it [[is]]: thoughts [[in]] [[time]], [[sword]] [[in]] [[stone]].
+[[No]] [[more]] [[than]] [[pen]] [[on]] [[paper]]. [[That]] it [[is]], [[all]] it [[is]]: thoughts [[in]] [[time]], [[sword]] [[in]] [[stone]].

@@ -4,7 +4,7 @@
 
 [[He]] grunted. “[[A]] [[good]] [[night]]’s [[sleep]] staves [[off]] eternal [[rest]]. [[Do]] [[you]] [[need]] [[the]] Mademoiselle [[to]] [[give]] [[you]] [[an]] earful?”
 
-“[[Does]] [[he]] mean [[me]]?” [[Dawn]] asked.
+“[[Does]] [[he]] [[mean]] [[me]]?” [[Dawn]] asked.
 
 “[[The]] [[doctor]].” [[I]] glanced [[over]], [[and]] [[saw]] [[her]] [[eyes]] flit [[away]]. “[[She]] has [[a]] [[habit]] [[of]] spying.”
 

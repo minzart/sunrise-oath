@@ -5,4 +5,4 @@ Vampire - [[Eroica]], [[Tara]]
 [[Witch]] - [[Catherine]], [[selene|Selene]]  
 - loves garlic, thanks to the Shanks [[line]]  
 Prophet - [[louise|Louise]], [[Charlotte]]  
-- bans garlic for spiritual awakening
+- bans garlic for spiritual [[awakening]]

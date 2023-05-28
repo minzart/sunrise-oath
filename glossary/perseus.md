@@ -1,1 +1,1 @@
-[[Medusa]]'s [[head]] turned [[Atlas]] to [[stone]].  
+[[Medusa]]'s [[head]] [[turned]] [[Atlas]] to [[stone]].  

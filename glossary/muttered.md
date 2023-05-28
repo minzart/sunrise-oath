@@ -1,0 +1,1 @@
+For no [[reason]] [[other]] [[than]] [[vanity]], the [[word]] of the [[day]] [[is]] [[metempsychosis]]. ([[Note]], I knew not [[what]] this [[word]] [[even]] [[meant]] til I [[thought]] to [[make]] it [[my]] [[brief]] [[passing]] focus.)

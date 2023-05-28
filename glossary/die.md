@@ -1,1 +1,1 @@
-[[fate|Fate]] [[has]] [[cast]] us [[in]] [[a]] [[part]].
+[[fate|Fate]] [[has]] [[cast]] [[us]] [[in]] [[a]] [[part]].

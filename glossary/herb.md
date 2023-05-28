@@ -1,0 +1,1 @@
+Ghaznavi [[is]] [[a]] football [[player]] [[from]] Esunia [[who]] grew [[up]] [[in]] Lion’s [[Keep]]. [[He]] beat Anton [[the]] Menace [[in]] [[a]] [[game]] [[of]] [[one]]-[[on]]-[[one]] football, [[at]] [[the]] [[cost]] [[of]] breaking [[a]] [[bone]] [[and]] encountering [[a]] cultist [[who]] [[corrupted]] [[his]] [[mind]].

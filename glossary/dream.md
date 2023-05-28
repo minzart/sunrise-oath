@@ -7,8 +7,8 @@ the tunnels lead to various places
   
 [[high]] tech station  
   
-a [[run]]-[[down]] school w/ [[old]] hallways, dirty washrooms, and [[high]] tech  
+a [[run]]-[[down]] [[school]] w/ [[old]] hallways, dirty washrooms, and [[high]] tech  
   
-a futuristic [[city]] [[with]] a large hotel [[living]] population  
+a futuristic [[city]] [[with]] a large [[hotel]] [[living]] population  
   
 [[an]] aircraft [[flying]] at [[high]] altitudes

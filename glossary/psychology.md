@@ -1,0 +1,1 @@
+DEFINITELY [[needed]] [[to]] preface [[this]] [[with]], [[I]] meant EMERGENT GAMEPLAY [[LORE]] and not PRESCRIBED [[FLAVOR]] [[LORE]]. I realized that I was conflating the two in my [[thinking]], just testing ideas.

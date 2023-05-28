@@ -1,0 +1,1 @@
+[[God]] [[let]] [[light]] [[be]] [[made]], [[and]] [[Man]] [[raised]] [[his]] [[head]].

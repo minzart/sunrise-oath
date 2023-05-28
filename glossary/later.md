@@ -1,1 +1,1 @@
-[[We]] [[left]] halfway [[through]] the [[second]] part of Mockingjay, argued in the parking lot, and never [[saw]] each [[other]] [[again]]. [[Our]] anniversary, and overall a fitting [[memorial]] service.  
+[[We]] [[left]] halfway [[through]] the [[second]] part of Mockingjay, argued in the parking lot, and never [[saw]] [[each]] [[other]] [[again]]. [[Our]] anniversary, and overall a fitting [[memorial]] service.  

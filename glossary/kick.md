@@ -1,1 +1,1 @@
-[[This]] [[is]] [[the]] [[rest]] [[of]] [[my]] afternoon.
+[[This]] [[is]] [[the]] [[rest]] [[of]] [[my]] [[afternoon]].

@@ -1,0 +1,1 @@
+[[Fluffy]] [[never]] [[expected]] those [[four]] adventurers [[to]] [[betray]] [[her]]. [[They]] [[wanted]] [[to]] [[help]] [[her]], [[she]] [[thought]]. [[The]] [[tears]] [[of]] [[the]] rogue [[were]] [[real]], [[she]] [[thought]]. [[Turns]] [[out]], [[she]] [[was]] [[the]] [[most]] twisted [[of]] [[them]] [[all]].

@@ -1,1 +1,1 @@
-[[All|all]] [[and]] [[each]], [[all]] [[at]] [[once]].
+[[All]] [[and]] [[each]] [[at]] [[once]].

@@ -1,0 +1,1 @@
+[[Gold]] [[must]] [[mean]] [[something]] [[else]], [[one]] among [[many]] measures. [[The]] [[lie]] [[shall]] [[not]] hide [[death]] [[by]] pitting [[God]] [[and]] Satan, [[not]] [[in]] [[one]] [[ring]]. [[Make]] [[meaning]] [[that]] [[will]] [[not]] fold [[into]] [[gold]]. [[Lies]] grate [[upon]] [[lies]], [[and]] [[are]] [[joined]] [[in]] [[a]] sad [[search]] [[for]] “[[is]]”.

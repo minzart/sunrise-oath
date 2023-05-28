@@ -1,0 +1,1 @@
+[[Man]] [[on]] [[his]] [[island]] [[finds]] [[a]] [[solitary]] [[truth]].

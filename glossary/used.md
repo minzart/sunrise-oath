@@ -1,0 +1,1 @@
+[[She]] [[understood]] [[me]] [[without]] [[missing]] [[a]] beat, [[confirming]] [[that]] [[she]] [[was]] pretending [[not]] [[to]] during [[my]] [[time]] serving [[her]] [[at]] [[the]] [[café]]. 

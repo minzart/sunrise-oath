@@ -1,1 +1,1 @@
-With the viewpoint that I [[may]] never [[know]] [[if]] others [[are]] [[conscious]], the [[realization]] that everything was a lie, I [[came]] to [[find]] [[an]] eternal [[companion]]—[[my]] [[Christ]]!
+With the viewpoint that I [[may]] never [[know]] [[if]] [[others]] [[are]] [[conscious]], the [[realization]] that everything was a lie, I [[came]] to [[find]] [[an]] [[eternal]] [[companion]]—[[my]] [[Christ]]!

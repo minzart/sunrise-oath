@@ -1,0 +1,1 @@
+The gleam of sunset on her silhouette let out the tear I never cried before.

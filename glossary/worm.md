@@ -1,0 +1,1 @@
+Such majesty in this display. One may see the limbless invertebrate with pity or scorn, yet in it I find a noble ideology, a subtle way of being. The firefly is proud, the cicada is loud; neither knows humility nor quiet, [[submission]] nor peace. 

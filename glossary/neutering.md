@@ -1,1 +1,1 @@
-[[A]] strong prior exists [[for]] rural areas [[not]] [[having]] [[that]] [[many]] skills [[for]] gathering large groups [[and]] [[doing]] stuff, since [[they]] are [[living]] [[in]] tiny [[and]] mostly disconnected communities.
+[[A]] [[strong]] prior [[exists]] [[for]] rural areas [[not]] [[having]] [[that]] [[many]] skills [[for]] [[gathering]] large groups [[and]] [[doing]] stuff, since [[they]] are [[living]] [[in]] tiny [[and]] mostly disconnected communities.

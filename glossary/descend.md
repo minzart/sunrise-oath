@@ -1,0 +1,1 @@
+[[Let]] go of old ancestral charm, Take hold the fated victor's arm. Give up the old and weary way, Do what the cloying demons say.

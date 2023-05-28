@@ -1,1 +1,1 @@
-[[A]] [[card]] [[may]] [[have]] [[text]] [[for]] [[esthetic]] [[purposes]]. 
+[[A]] [[card]] [[may]] [[have]] [[text]] [[for]] [[esthetic]] [[purposes]]. What is more decorative than rules?

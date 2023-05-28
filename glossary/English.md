@@ -1,0 +1,1 @@
+[[He]] [[is]] [[taken]] [[aback]] [[by]] [[her]] [[lack]] [[of]] [[accent]].

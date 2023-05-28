@@ -1,0 +1,1 @@
+[[She]] [[sought]] [[the]] [[wisdom]] [[of]] [[the]] village elders, [[who]] [[spoke]] [[in]] riddles [[and]] cryptic tales.

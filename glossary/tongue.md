@@ -1,1 +1,1 @@
-[[Shame]] distorts [[truth]], [[and]] turns [[from]] [[God]].  
+[[Shame]] distorts [[truth]], [[and]] [[turns]] [[from]] [[God]].  

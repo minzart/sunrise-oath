@@ -1,0 +1,1 @@
+"[[Lena]]," [[I]] repeated. "[[I]]'m [[David]]."

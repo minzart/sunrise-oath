@@ -1,0 +1,1 @@
+A clear case of a beam in one’s eye, yet now I challenge you, the reader, to see how your own [[bias]] (dirty word, but alas) is entrenched and celebrated. Social and material (incl. biological) conditions, as tuned and set in motion by God, [[dictate]] what we may come to know (see: believe) about the world. 

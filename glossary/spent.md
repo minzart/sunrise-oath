@@ -1,1 +1,1 @@
-“Oh, wow! Is that an [[actual]] Polaroid?” A [[young]] [[man]] with stylish [[glasses]] approached. “I’ve [[never]] [[seen]] [[one]] [[with]] my own two eyes.”
+“Oh, wow! Is that an [[actual]] Polaroid?” A [[young]] [[man]] with stylish [[glasses]] approached. “I’ve [[never]] [[seen]] [[one]] [[with]] my own two [[eyes]].”

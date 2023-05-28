@@ -1,0 +1,1 @@
+Signal [[in]] [[the]] fugue, [[merry]] [[in]] [[the]] slosh.

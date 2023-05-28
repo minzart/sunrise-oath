@@ -1,1 +1,1 @@
-Lena drew her hunting knife and crept forward, her heart pounding. The [[building]] was empty - no traps, no ambushes, no surprises. Lena let out a breath that unwound with a creak, and searched the [[rubble]].
+[[Lena]] drew her hunting knife and crept forward, her heart pounding. The [[building]] was empty - no traps, no ambushes, no surprises. [[Lena]] let out a breath that unwound with a creak, and searched the [[rubble]].

@@ -1,0 +1,1 @@
+I see a giant spider with face of my dead mother. A foul stench emanates from her. From her abdomen, slime covered goops of rotting corpses drop to the ground and begin to rise.

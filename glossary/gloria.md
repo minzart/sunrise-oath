@@ -1,0 +1,1 @@
+[[Elara]] looks around the room, trying to take in her surroundings. She feels disoriented and confused, but tries not to show it.

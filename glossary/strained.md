@@ -1,0 +1,1 @@
+Charlotte becomes his [[only]] remaining connection to [[the]] [[outside]] world, but he pushes her away with his [[obsession]].

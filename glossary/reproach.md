@@ -1,0 +1,1 @@
+A movement ought to be inclusive. Its leadership ought to be exclusive. Leadership weirdness is only useful when relevant or is a useful test.

@@ -1,0 +1,1 @@
+"[[We]] [[each]] [[live]] [[in]] [[another]]’s [[painting]]," [[she]] whispered. "[[It]]'s [[like]] [[we]]'re [[all]] characters [[in]] [[a]] [[story]] [[without]] [[a]] [[plot]]."

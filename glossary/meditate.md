@@ -1,0 +1,1 @@
+[[Read]] [[the]] news. Skim [[past]] [[all]] topical [[references]]. Present [[the]] [[past]] [[and]] [[future]] [[to]] Mom. [[Hear]] [[the]] [[same]] nervous tirade. [[Pick]] [[the]] cheapest item [[on]] [[the]] menu. [[Order]] [[in]] [[a]] [[voice]] [[that]] almost sells [[the]] [[act]]. [[Say]] [[I]] [[am]] [[on]] [[a]] diet. [[Mean]] [[it]] half [[the]] [[time]].  

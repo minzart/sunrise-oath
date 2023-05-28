@@ -1,0 +1,1 @@
+The [[occult]] was a double-edged [[sword]], unlocking mysteries at a price. As she left, she knew the risks and that the path was [[dark]].

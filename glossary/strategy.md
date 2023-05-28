@@ -1,1 +1,1 @@
-Each of its strengths as [[white]] [[is]] a weakness as [[black]], and [[vice]] versa. 
+[[Each]] of its strengths as [[white]] [[is]] a weakness as [[black]], and [[vice]] versa. 

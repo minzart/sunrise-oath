@@ -1,0 +1,1 @@
+[[The]] insect rests [[upon]] [[the]] final [[word]], revealing [[his]] intrusion, [[waiting]] [[for]] [[his]] [[execution]], demanding [[his]] [[salvation]].

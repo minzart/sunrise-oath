@@ -1,0 +1,1 @@
+Pure [[worship]], [[heart]]'s [[language]], transcending barriers.

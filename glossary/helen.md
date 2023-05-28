@@ -1,0 +1,1 @@
+[[Of]] [[summer]] lullabies (flute [[in]] [[bird]]), [[I]] [[take]] [[the]] [[wind]] [[at]] [[dawn]], [[the]] breeze [[that]] passed [[me]] [[by]] [[come]] [[sunrise]], [[as]] [[urtext]] [[for]] [[a]] testimony, [[the]] [[great]] [[truth]] [[that]] [[I]] [[know]]. 

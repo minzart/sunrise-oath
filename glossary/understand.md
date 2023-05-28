@@ -1,1 +1,1 @@
-His laughter [[left]] me [[completely]] mystified. Non-[[magical]] adults — no, perhaps all adults — were incomprehensible beasts. But who was I to [[talk]]?
+His laughter [[left]] me [[completely]] mystified. Non-[[magical]] [[adults]] — no, perhaps all [[adults]] — were incomprehensible beasts. But who was I to [[talk]]?

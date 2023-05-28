@@ -1,1 +1,2 @@
-Bienvenue au Vieux-[[Port]] de Montréal. [[I]] saluted [[the]] John [[Young]] Monument, and [[continued]] [[to]] where [[I]] watched [[the]] [[sunrise]] [[seven]] [[years]] [[ago]].
+[[Business]] slowed [[down]], [[so]] [[it]] [[was]] [[time]] [[to]] pivot. [[History]] [[was]] [[a]] fickle, wanton [[machine]], [[and]] [[so]] [[it]] [[went]].
+

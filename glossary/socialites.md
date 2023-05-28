@@ -1,1 +1,1 @@
-The third [[rule]], the one I [[needed]] not learn. I was glad, so glad to not sleep. The questions multiplied, as she said they would. Those thoughts kept me up. So [[terrifying]] were their answers, I [[should]] never fall to [[sleep]] with a drop of her [[insight]].
+The third [[rule]], the [[one]] I [[needed]] not learn. I was [[glad]], so [[glad]] to not sleep. The questions multiplied, as she said they would. Those thoughts kept me up. So [[terrifying]] were their [[answers]], I [[should]] never fall to [[sleep]] with a drop of her [[insight]].

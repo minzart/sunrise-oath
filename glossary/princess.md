@@ -1,0 +1,1 @@
+[[Yohani]] [[carried]] [[Vera]] [[to]] [[a]] hill, laid [[her]] [[on]] [[the]] grass, [[and]] [[kissed]] [[her]]. [[She]] [[later]] [[died]] [[in]] [[that]] [[same]] spot, [[remembering]] him.

@@ -1,0 +1,1 @@
+[[Hera]] [[is]] [[the]] [[Father]] -> prevented Artemis  

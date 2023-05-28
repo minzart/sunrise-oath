@@ -1,0 +1,1 @@
+Goddesses—[[Athena]], [[Hera]], [[Aphrodite]]—I [[shall]] not [[speak]] to you in [[prayer]], as I [[must]] [[keep]] a [[proper]] oath to [[Jesus]]. But I [[shall]] [[keep]] you in [[my]] reveries, as guardians of the [[faith]] that I was gifted. The [[wind]] [[is]] [[mind]], and [[mind]] [[is]] [[God]].

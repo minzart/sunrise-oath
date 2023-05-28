@@ -1,1 +1,1 @@
-[[At]] twenty-eight, [[she]] [[was]] [[a]] respiratory [[specialist]].
+[[At]] [[twenty]]-eight, [[she]] [[was]] [[a]] [[respiratory]] [[specialist]].

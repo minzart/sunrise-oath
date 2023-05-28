@@ -1,1 +1,1 @@
-[[The]] de facto leader [[of]] [[the]] household, [[Eroica]] [[Vici]], [[sought]] [[to]] make [[the]] opposite trade. [[She]] [[was]] [[a]] [[seeker]], [[restless]] [[in]] Eden, [[and]] [[lost]] her [[song]].
+[[The]] de facto leader [[of]] [[the]] household, [[Eroica]] [[Vici]], [[sought]] [[to]] make [[the]] opposite trade. [[She]] [[was]] [[a]] [[seeker]], [[restless]] [[in]] [[Eden]], [[and]] [[lost]] her [[song]].

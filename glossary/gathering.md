@@ -1,0 +1,1 @@
+Hildegard's [[divine]] [[warrant]] to [[write]] appeals to [[me]]. Though I [[have]] no illusion of matching her in her triumphs, [[may]] I [[learn]] [[from]] her example. She [[was]] a [[woman]] of [[God]], a [[small]] miracle in the [[body]] of a terranean primate.

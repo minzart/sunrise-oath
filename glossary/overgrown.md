@@ -1,0 +1,1 @@
+I [[have]] a bag of [[dice]]. [[They]] [[help]] [[me]] on [[my]] journey, giving [[me]] [[something]] to cling to. [[Sometimes]], making choices [[is]] too [[much]] to [[bear]]. I [[shall]] [[leave]] the [[verdict]], the voice of [[truth]], [[up]] to fate.

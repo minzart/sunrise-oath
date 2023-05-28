@@ -1,0 +1,1 @@
+Consider the life of the [[worm]]—burrowing and squirming in the dirt, hiding from the sun lest birds are watching. 

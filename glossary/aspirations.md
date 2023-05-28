@@ -1,0 +1,1 @@
+[[Jesus]] [[has]] [[the]] [[patience]] [[of]] [[a]] [[monk]] [[to]] suffer [[all]] [[the]] constant instigations [[from]] those [[who]] [[see]] themselves [[as]] wise [[and]] [[righteous]].

@@ -1,1 +1,1 @@
-For all intents and [[purposes]], we are [[kings]], [[far]] greater than any before us. Yet we are weak, nothing before [[God]].
+For all intents and [[purposes]], we are [[kings]], [[far]] greater [[than]] any before [[us]]. Yet we are weak, nothing before [[God]].

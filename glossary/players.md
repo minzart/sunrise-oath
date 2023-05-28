@@ -1,1 +1,1 @@
-[[Choose]]: cooperative [[campaign]], or [[solo]] solitaire? [[Such]] is the [[game]] of [[life]].
+Cooperative [[campaign]], or [[solo]] solitaire? [[Such]] is the [[game]] of [[life]].

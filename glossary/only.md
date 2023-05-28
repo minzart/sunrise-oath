@@ -1,1 +1,1 @@
-[[Who]] [[else]] can [[they]] seek, except [[another]] [[who]] loves them [[as]] [[you]] do? 
+[[Who]] [[else]] can [[they]] [[seek]], except [[another]] [[who]] loves them [[as]] [[you]] do? 

@@ -1,0 +1,1 @@
+[[My]] [[heart]] [[is]] [[to]] [[God]] [[what]] [[a]] pepperoni [[is]] [[to]] [[a]] cheese-covered bread wedge.

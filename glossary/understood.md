@@ -1,0 +1,1 @@
+Speaking [[in]] [[my]] [[native]] [[tongue]], [[I]] [[came]] [[to]] [[see]] [[her]] [[as]] [[a]] [[friend]].

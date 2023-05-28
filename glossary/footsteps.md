@@ -1,0 +1,1 @@
+[[She]] [[turned]], [[her]] [[eyes]] [[meeting]] [[mine]]. "[[Lena]]," [[she]] [[said]], [[offering]] [[a]] [[thin]] smile.

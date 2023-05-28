@@ -1,1 +1,1 @@
-[[Way]] [[and]] [[art]] [[of]] [[form]] within [[the]] context [[of]] [[society]].
+[[Way]] [[and]] [[art]] [[of]] [[form]] [[within]] [[the]] [[context]] [[of]] [[society]].

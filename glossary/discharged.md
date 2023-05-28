@@ -36,7 +36,7 @@ the color [[pink]],
 
 the [[new]] morn;
 
-the distant past,
+the [[distant]] past,
 
 the sunrise oath;
 

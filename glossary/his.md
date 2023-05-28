@@ -1,1 +1,1 @@
-[[She]] lived [[in]] [[the]] [[mind]] [[of]] [[her]] creator, [[and]] hoped [[to]] [[never]] [[leave]].
+[[She]] [[lived]] [[in]] [[the]] [[mind]] [[of]] [[her]] creator, [[and]] hoped [[to]] [[never]] [[leave]].

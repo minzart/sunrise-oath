@@ -1,0 +1,1 @@
+[[The]] [[Weaver]]’s [[Gaze]] [[is]] [[a]] [[forgotten]] [[ancient]] [[legend]] [[from]] [[the]] [[old]] [[kingdom]]. [[As]] pilgrims [[revive]] [[the]] area [[and]] restore [[what]] [[was]] [[once]] [[a]] [[great]] civilization, [[the]] [[full]] [[picture]] [[of]] [[the]] [[epic]] [[is]] [[found]] [[anew]]. 

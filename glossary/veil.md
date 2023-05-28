@@ -1,1 +1,1 @@
-“Turns you on?” she quipped, then [[met]] my eyes without a hint of [[humor]]. “[[Will]] you, Gale Jones, love and [[honor]] me for all the days of your life?”
+“[[Turns]] [[you]] [[on]]?” [[she]] [[quipped]], [[then]] [[met]] [[my]] [[eyes]] [[without]] [[a]] [[hint]] [[of]] [[humor]]. “[[Will]] [[you]], [[Gale]] [[Jones]], [[love]] [[and]] [[honor]] [[me]] [[for]] [[all]] [[the]] [[days]] [[of]] [[your]] [[life]]?”

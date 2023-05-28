@@ -1,1 +1,2 @@
-Tara wanted to [[call]] him when she [[got]] [[pregnant]], but had not his [[number]] (Eroica refused to [[help]], wanting to [[keep]] the peace). She [[could]] not [[ask]] [[anyone]] for his [[number]] and she preferred it this way, so she can [[know]] Gale's answer to her [[question]]. This [[selfishness]] is [[something]] she [[regrets]].
+[[Death]] [[is]] [[the]] [[passage]] [[to]] [[perfection]].
+

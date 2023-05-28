@@ -1,1 +1,1 @@
-In spite of its momentous value, I held it up and squinted, scanning all the faces in the [[picture]]. None of them looked like Isaac Newton, I [[thought]]. Not that I knew what his face looked like.
+In spite of its [[momentous]] value, I [[held]] it up and squinted, scanning all the faces in the [[picture]]. None of them looked like Isaac Newton, I [[thought]]. Not that I knew what his face looked like.

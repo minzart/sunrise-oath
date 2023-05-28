@@ -1,0 +1,1 @@
+[[What]] [[bliss]], to create [[with]] [[an]] [[open]] [[heart]] [[and]] expect [[that]] [[none]] of it [[shall]] [[ever]] [[be]] [[seen]]! Yet [[soon]] as I [[am]] aware of the [[audience]], the auditor of [[my]] [[soul]], I [[could]] no sooner [[drop]] [[dead]].

@@ -1,1 +1,1 @@
-Feel [[good]] [[that]] [[things]] [[are]] hard.
+[[Feel]] [[good]] [[that]] [[things]] [[are]] [[hard]].

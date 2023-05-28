@@ -1,1 +1,1 @@
-[[That]] humans are [[special]] [[to]] [[the]] [[part]] of God we can perceive is [[irrefutable]], since that part of God is humanity itself. But I wonder of the part of God that is the grass in the field, the river in the valley, the [[transit]] of wanderers.
+[[That]] humans are [[special]] [[to]] [[the]] [[part]] of God we can perceive is [[irrefutable]], since that part of God is humanity itself. But I wonder of the part of God that is the grass in the [[field]], the river in the valley, the [[transit]] of wanderers.

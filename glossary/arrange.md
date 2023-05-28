@@ -1,0 +1,1 @@
+I [[leave]] [[my]] [[writings]] [[there]] [[for]] [[now]]. A journal that doubles as a letter jotpad . . . among the few [[great]] [[ideas]] I had while [[completely]] sober. This [[is]] a precious discovery, that altered [[consciousness]] [[is]] always relative.

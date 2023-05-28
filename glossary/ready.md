@@ -2,8 +2,8 @@
 
 She thought, and [[answered]]: “Our first reunion, the [[morning]] after Canada [[Day]].”
 
-“Nothing from before?”
+“Nothing [[from]] before?”
 
-“My brain’s a picky eater. I don’t know what I had for breakfast, yet I recall every [[word]] of our conversations.”
+“My [[brain]]’s a picky eater. I don’t know what I had for breakfast, yet I recall [[every]] [[word]] of our [[conversations]].”
 
 “This is [[incredible]] to me.”

@@ -1,0 +1,1 @@
+[[Copied]] over the in-[[development]] [[glossary]] for *[[Duality]]*. [[Also]], experimenting [[with]] more rules [[changes]], [[after]] [[having]] [[played]] the [[game]] [[many]] [[times]] [[with]] [[different]] [[people]].

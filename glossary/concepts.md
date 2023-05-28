@@ -1,0 +1,5 @@
+[[God]] chose [[us]] [[to]] [[be]] [[his]] [[children]] before [[he]] [[made]] [[the]] [[world]]. "[[Even]] before [[he]] [[made]] [[the]] [[world]], [[God]] [[loved]] [[us]] [[and]] chose [[us]] [[in]] [[Christ]] [[to]] [[be]] [[holy]] [[and]] [[without]] [[fault]] [[in]] [[his]] [[eyes]]. [[God]] decided [[in]] advance [[to]] adopt [[us]] [[into]] [[his]] own [[family]] [[by]] bringing [[us]] [[to]] himself [[through]] [[Jesus]] [[Christ]]. [[This]] [[is]] [[what]] [[he]] wanted [[to]] [[do]], [[and]] [[it]] [[gave]] him [[great]] [[pleasure]]." 
+
+[[If]] [[God]] chose [[us]] [[to]] [[be]] [[saved]], [[then]] [[nothing]] [[can]] [[take]] [[that]] [[away]] [[from]] [[us]]. "And I [[am]] [[convinced]] that nothing [[can]] [[ever]] [[separate]] [[us]] [[from]] God’s love. Neither death nor life, neither angels nor demons, neither [[our]] [[fears]] for [[today]] nor [[our]] worries about [[tomorrow]]—not [[even]] the powers of [[hell]] [[can]] [[separate]] [[us]] [[from]] God’s love."
+
+[[We]] [[should]] [[worship]] him and be grateful for everything he's [[done]] for [[us]].

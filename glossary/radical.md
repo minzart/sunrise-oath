@@ -1,0 +1,1 @@
+[[Imagine]] [[a]] [[translation]] [[game]] [[where]] [[you]] [[have]] [[to]] [[imagine]] [[that]] [[every]] [[sentence]] [[someone]] [[says]] [[is]] [[something]] [[you]] would [[agree]] [[with]] [[if]] [[translated]] [[from]] "[[their]] [[language]]" [[to]] "[[your]] [[language]]". 

@@ -1,0 +1,1 @@
+[[Meeting]] [[Primo]] [[for]] [[the]] [[first]] [[time]] [[changed]] [[Yohani]]. [[He]] [[saw]] [[magic]], [[real]] [[magic]]. [[The]] sorcerer [[took]] [[a]] dying [[man]], [[and]] [[gave]] him [[peace]]. [[It]] [[was]] [[beautiful]].

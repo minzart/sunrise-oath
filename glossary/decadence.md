@@ -1,0 +1,1 @@
+Pleasures [[of]] [[the]] [[earth]] [[were]] [[not]] [[enough]]. [[I]] [[sought]] [[wisdom]] [[in]] [[the]] air, [[from]] [[the]] [[space]] [[in]] [[my]] lungs [[and]] breath. [[Back]] [[to]] [[the]] [[ground]] [[I]] [[am]], [[ready]] [[to]] [[lie]] [[down]].

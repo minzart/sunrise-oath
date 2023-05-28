@@ -1,0 +1,1 @@
+[[A]] hundred paces [[away]], [[I]] lit [[a]] Belmont. [[My]] [[eyes]] faced [[forward]], but [[I]] [[never]] stopped [[looking]] [[back]]. 

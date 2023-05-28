@@ -1,0 +1,1 @@
+Roy [[the]] [[guard]] is a petty man with guilty pleasures, including a penchant for mystic [[herb]]. Off duty, he enjoys the [[food]] [[from]] a [[vegetarian]] stall near the town square in Lion’s Keep. 

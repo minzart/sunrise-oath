@@ -1,0 +1,1 @@
+[[In]] [[the]] [[end]], [[our]] side [[lost]] [[the]] [[game]] [[by]] [[one]] [[point]] — [[a]] [[rouge]], [[said]] [[Timothy]]. [[The]] [[field]] [[became]] [[a]] [[gold]]-beige-brown [[victory]] display, [[and]] [[we]] [[the]] [[conquered]] [[looked]] [[on]] [[bitterly]] [[and]] booed Canadian football [[rules]]. 

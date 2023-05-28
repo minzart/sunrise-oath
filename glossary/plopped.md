@@ -1,1 +1,1 @@
-[[That]] [[was]] [[how]] [[I]] [[found]] [[out]] [[Tara]] Robles [[was]] [[back]]. [[I]] [[could]] scarcely recognize [[who]] [[she]] [[became]] [[in]] one [[year]]. We first [[spoke]] to each other at a [[high]] school football game in [[1989]]. 
+[[That]] [[was]] [[how]] [[I]] [[found]] [[out]] [[Tara]] Robles [[was]] [[back]]. [[I]] [[could]] scarcely recognize [[who]] [[she]] [[became]] [[in]] [[one]] [[year]]. We first [[spoke]] to [[each]] other at a [[high]] [[school]] football game in [[1989]]. 

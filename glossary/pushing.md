@@ -1,0 +1,2 @@
+
+In the sixth chapter, "And the [[sea]] streamed red [[from]] the kiss of his [[brow]]...[[There]] was [[glory]] and [[light]] enow," Gale's [[search]] for Dawn puts [[off]] [[Alain]], but earns the sympathy of [[Hortus]]. Selene reveals that she is a [[witch]] and curses Gale to be [[bound]] to his greatest lie, though he does not yet [[know]] what it is.  

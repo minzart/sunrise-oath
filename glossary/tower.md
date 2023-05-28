@@ -1,0 +1,1 @@
+Crumbling [[stone]] surrounds [[the]] [[restless]] [[sage]], [[who]] sips [[the]] fungus beer [[from]] [[an]] ivory [[cup]] [[and]] [[knows]] [[that]] [[something]] [[is]] amiss.

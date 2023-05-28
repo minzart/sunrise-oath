@@ -1,0 +1,1 @@
+[[A]] [[writer]] [[sees]] [[for]] [[another]]'s [[behalf]], [[and]] thinks [[for]] [[one]]'s own [[behalf]]. Or [[maybe]] [[the]] [[other]] [[way]]? [[Thinking]] [[for]] [[another]]'s [[behalf]], [[seeing]] [[for]] [[one]]'s own [[behalf]].

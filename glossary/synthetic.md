@@ -1,0 +1,1 @@
+diet coke [[is]] prometheus. coke zero [[is]] a bitter and capricious zeus. diet coke is advaita. coke zero is deferent hare-krishnaism. diet coke is humanism. coke zero is anti-natalism

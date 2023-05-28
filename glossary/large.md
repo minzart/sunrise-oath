@@ -1,0 +1,1 @@
+[[I]] [[feel]] [[ill]]. [[If]] [[I]] [[fall]] [[to]] [[death]], [[may]] [[the]] [[world]] [[know]] [[that]] [[I]] [[have]] [[no]] [[regrets]].

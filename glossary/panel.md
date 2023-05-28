@@ -1,0 +1,1 @@
+[[An]] [[elegy]] composed [[by]] tender [[strokes]], sounding [[only]] [[through]] [[the]] [[voice]] [[of]] [[the]] [[engineer]]. 

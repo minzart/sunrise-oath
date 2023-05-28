@@ -1,1 +1,1 @@
-[[Standard]] [[and]] food [[of]] [[faith]].
+[[Standard]] [[and]] [[food]] [[of]] [[faith]].

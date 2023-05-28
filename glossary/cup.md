@@ -1,0 +1,1 @@
+[[The]] [[soul]] [[is]] [[never]] [[big]] [[enough]] [[for]] [[all]] [[that]] [[life]] [[shall]] [[seek]] [[to]] [[pour]] [[in]] [[it]]. [[And]] [[so]] [[the]] [[heart]] [[must]] [[break]].

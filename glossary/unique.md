@@ -1,0 +1,1 @@
+[[In]] [[that]] fleeting [[moment]] [[of]] [[uncertainty]], [[when]] [[reality]] [[and]] [[illusion]] converge, [[art]] manifests.

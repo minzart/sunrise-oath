@@ -1,0 +1,1 @@
+[[Amen]] [[to]] [[that]]. [[His]] dad [[was]] [[cool]].  

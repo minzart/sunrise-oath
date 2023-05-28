@@ -1,0 +1,1 @@
+[[A]] [[sculptor]] chiseling [[away]] [[at]] [[stone]], catalyst [[of]] [[raw]] [[potential]].

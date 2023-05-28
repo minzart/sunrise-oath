@@ -1,0 +1,1 @@
+Poems find the moment in the passing hours, take them as a prize, and force them on display in simple words.

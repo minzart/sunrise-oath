@@ -1,1 +1,1 @@
-His mood brightened. “It fell because [[of]] [[gravity]], [[you]] [[know]]!“
+His mood brightened. “It [[fell]] because [[of]] [[gravity]], [[you]] [[know]]!“

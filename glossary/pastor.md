@@ -1,0 +1,1 @@
+[[Take]] [[no]] [[word]] [[on]] its [[face]], [[and]] peel its [[rind]]. 

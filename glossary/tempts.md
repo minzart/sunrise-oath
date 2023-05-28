@@ -1,0 +1,1 @@
+[[The]] [[only]] books worth [[reading]] communicate [[through]] [[their]] very [[structure]]. Which [[is]] [[why]] [[fiction]] [[has]] [[so]] [[much]] [[value]] [[beyond]] [[the]] distilled "morals" [[and]] "lessons" [[one]] derives.

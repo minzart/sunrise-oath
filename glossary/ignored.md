@@ -1,1 +1,1 @@
-Soon [[as]] [[Eroica]] [[hurt]] [[Martin]], Aurora [[and]] Vesper hated [[her]] [[forever]], [[and]] [[could]] [[never]] [[learn]] [[to]] [[forgive]] their [[mother]].
+[[Soon]] [[as]] [[Eroica]] [[hurt]] [[Martin]], Aurora [[and]] Vesper [[hated]] [[her]] [[forever]], [[and]] [[could]] [[never]] [[learn]] [[to]] [[forgive]] their [[mother]].

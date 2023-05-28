@@ -1,1 +1,1 @@
-After some more idle [[talk]] — I learned that they were Canadians [[visiting]] family in Lincolnshire — we parted ways. As they headed to the farmhouse, the boy spoke to his [[parents]] loudly enough for me to [[overhear]].
+After some more [[idle]] [[talk]] — I learned that they were Canadians [[visiting]] family in Lincolnshire — we parted ways. As they headed to the [[farmhouse]], the boy spoke to his [[parents]] loudly enough for me to [[overhear]].

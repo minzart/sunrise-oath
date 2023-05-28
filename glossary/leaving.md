@@ -1,1 +1,1 @@
-[[He]] lived too [[well]] [[to]] realize [[how]] deeply [[someone]] can [[love]]. 
+[[He]] [[lived]] too [[well]] [[to]] realize [[how]] deeply [[someone]] can [[love]]. 

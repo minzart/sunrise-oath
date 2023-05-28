@@ -1,0 +1,1 @@
+Avant le stylo, il y fut le bâton. L'homme marcha en ligne, comme mots sur papier. Et quand il mourut, ce fut dans l'espace entre les lettres qu'il resta [[pour]] tout [[jamais]].

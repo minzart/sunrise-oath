@@ -1,0 +1,2 @@
+[[Could]] [[it]] [[be]] [[said]] [[that]] metaphysics [[are]] lesser? [[In]] fact, [[everything]] [[we]] [[have]] [[came]] [[from]] skills trained [[in]] [[religion]], clearly outlined [[through]] forceful [[and]] normative autodialectical [[conversation]] [[in]] [[the]] [[form]] [[of]] traditional metacommentary. [[A]] [[social]] project [[of]] exdoctrination, [[of]] making [[one]]'s ideology [[and]] [[ontology]] plain, [[shall]] build towers [[out]] [[of]] [[the]] [[mud]].
+

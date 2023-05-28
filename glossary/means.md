@@ -1,0 +1,1 @@
+[[Take]] [[me]] [[on]] [[a]] [[space]] ship, [[and]] [[put]] [[me]] [[in]] [[a]] [[cosmic]] wonderland, [[a]] wild frontier [[in]] [[haunting]] [[silence]] [[and]] dizzying expanse.

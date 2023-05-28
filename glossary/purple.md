@@ -1,0 +1,1 @@
+[[Read]] [[a]] [[criticism]] [[of]] [[rhetoric]] [[against]] [[caffeine]]. [[I]] [[am]] tempted [[to]] [[have]] [[a]] [[coffee]]. Instead, enjoying [[my]] [[nicotine]] [[vape]]. [[The]] [[two]] [[shall]] alternate, [[not]] coincide.

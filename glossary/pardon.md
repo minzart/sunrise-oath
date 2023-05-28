@@ -1,1 +1,1 @@
-“Or [[maybe]] [[of]] [[the]] two [[of]] us [[together]]. [[A]] [[souvenir]] [[for]] [[me]] [[to]] [[keep]] [[of]] [[you]].“ 
+“Or [[maybe]] [[of]] [[the]] two [[of]] [[us]] [[together]]. [[A]] [[souvenir]] [[for]] [[me]] [[to]] [[keep]] [[of]] [[you]].“ 

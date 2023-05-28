@@ -1,0 +1,1 @@
+Skeptical [[as]] [[I]] [[was]], [[now]] [[I]] [[know]] [[the]] [[truth]]: [[everything]] [[that]] [[happened]] [[then]] [[was]] [[predestined]], [[as]] [[was]] [[the]] [[day]] [[that]] [[I]] would [[come]] [[to]] [[write]] [[this]] [[scene]].

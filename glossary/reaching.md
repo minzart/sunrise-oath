@@ -1,0 +1,1 @@
+[[Dawn]] [[represents]] [[the]] [[full]] [[conscious]] [[awakening]] [[and]] personification [[of]] [[his]] inner [[voice]], [[leading]] him [[to]] [[God]].

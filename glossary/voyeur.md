@@ -1,0 +1,1 @@
+[[Northern]] flakes [[and]] southern scales, [[a]] [[sitting]] [[monument]] [[of]] decorated [[flesh]] [[and]] [[bone]], striking square buttons [[to]] etch [[runes]] [[on]] [[a]] [[shining]] [[panel]]. 

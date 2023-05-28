@@ -1,0 +1,1 @@
+Madeleine biscuits [[with]] masala chai, classical [[music]] [[on]] cassettes and vinyls, [[fireworks]] during the festive summer months of the bilingual [[metropolis]] — [[from]] Canada [[Day]] to the [[New]] [[Year]], the last six months of the [[old]] millennium mark their last [[chance]] to [[live]] in the [[hazy]] past. 

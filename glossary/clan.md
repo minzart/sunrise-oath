@@ -1,1 +1,1 @@
-Alacrity [[is]] [[stewarded]] by Ishmael and Médée.
+Alacrity [[is]] [[stewarded]] by [[Ishmael]] and Médée.

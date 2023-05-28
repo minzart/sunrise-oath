@@ -1,1 +1,1 @@
-[[Got]] [[sword]] from Uncle Farrow, who doted on him unlike the rest of his family.  
+[[Corrin]] [[got]] [[his]] [[sword]] [[from]] Uncle Farrow, [[who]] doted [[on]] him unlike [[the]] [[rest]] [[of]] [[the]] [[family]].  

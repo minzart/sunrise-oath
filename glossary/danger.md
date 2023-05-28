@@ -1,0 +1,1 @@
+[[Self]] [[as]] [[journey]], [[man]] [[as]] shifting [[form]], taking [[to]] stage [[and]] trial, scales [[the]] [[last]] wall [[as]] a warped [[quest]] [[leads]] [[to]] [[dark]].

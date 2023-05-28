@@ -1,1 +1,1 @@
-[[No]] more, [[never]] [[again]]. [[My]] hands are [[open]].
+[[No]] [[more]], [[never]] [[again]]. [[My]] [[hands]] [[are]] [[open]].

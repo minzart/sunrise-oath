@@ -1,0 +1,1 @@
+[[You]] assume [[you]] [[understand]] [[when]] [[I]] type [[in]] [[English]] [[and]] not when I type in Chinese. In reality, you do not have direct access to what I [[mean]], regardless of what language I use. You are simulating the [[meaning]] that you think I [[mean]], using your understanding of how I am using English.

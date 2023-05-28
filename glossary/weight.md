@@ -1,1 +1,1 @@
-Stranded [[in]] [[the]] [[lonely]] present, [[a]] hundred [[years]] [[is]] more than plenty.
+Stranded [[in]] [[the]] [[lonely]] present, [[a]] hundred [[years]] [[is]] more [[than]] plenty.

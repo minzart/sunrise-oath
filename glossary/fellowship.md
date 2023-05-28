@@ -1,0 +1,1 @@
+[[Today]] [[shall]] be for [[friendship]] and [[gathering]]. 

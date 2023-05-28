@@ -1,1 +1,1 @@
-Spirits [[fall]] in love as their [[true]] selves, away from the world of the waking bodies.
+Spirits [[fall]] in love as their [[true]] selves, away [[from]] the world of the waking bodies.

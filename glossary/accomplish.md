@@ -2,7 +2,7 @@
 
 “You shall [[fulfill]] your duty,” she [[insisted]]. “Do or do not. There is no [[try]].”
 
-I scratched my [[head]]. “First time hearing that.”
+I scratched [[my]] [[head]]. “First time hearing that.”
 
 “The Empire Strikes Back,” she said. “[[Long]] way to [[go]].”
 

@@ -1,0 +1,1 @@
+[[Radical]] [[empathy]] allows [[for]] [[disagreement]]. But [[it]] [[means]] [[you]] [[have]] [[to]] [[actually]] fully understand how their mind came to say those words, and in what sense you do [[agree]] if you do. 

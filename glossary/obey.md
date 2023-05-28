@@ -1,0 +1,2 @@
+[[After]] [[the]] [[death]] [[of]] [[her]] [[parents]], [[she]] [[came]] [[under]] [[the]] care [[of]] [[a]] [[Church]] elder. [[In]] [[her]] youth, [[she]] grew [[up]] [[to]] [[be]] [[a]] [[strong]] [[and]] [[self]]-sufficient [[child]]. [[She]] feels she [[must]] take charge of her life and make her own decisions. She [[knows]] her [[parents]] died fighting for the [[church]], but [[they]] weren't [[happy]] [[doing]] so, and she has [[felt]] their loss [[ever]] since.
+

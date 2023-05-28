@@ -1,0 +1,1 @@
+Mostly, [[I]] [[want]] [[people]] [[to]] [[stop]] torturing themselves.

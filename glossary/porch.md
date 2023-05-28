@@ -1,0 +1,1 @@
+[[The]] [[home]] [[is]] those animals [[who]] [[eat]] [[and]] keep trying. Two parents, a little sister, the trusted friendship of crimson azaleas.

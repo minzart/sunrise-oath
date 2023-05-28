@@ -1,1 +1,3 @@
-All those days [[spent]] [[lying]] on my hammock, [[thinking]] of [[how]] I would take the warmer [[days]] for granted and [[come]] to [[regret]] it in the winter. I [[said]] it, yet I fell to my own [[nature]].
+A week before orientation, a [[year]] after our first kiss, [[Tara]] and I lay in her [[bed]], [[staring]] at her [[ceiling]].“I wonder if [[Eroica]] can keep [[tutoring]] [[us]].”
+
+

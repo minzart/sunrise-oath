@@ -1,0 +1,1 @@
+"[[We]]'re [[under]] [[lockdown]]," [[the]] [[guard]] replies gruffly. "[[No]] [[one]]'s allowed [[in]] or [[out]] until [[further]] notice."

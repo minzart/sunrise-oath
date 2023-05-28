@@ -1,0 +1,1 @@
+diet coke's superiority over coke zero [[lies]] in its unabashed embrace of the [[synthetic]]. whilst coke zero (as the name implies) seeks to minimise itself, blend into nature as a predator would, diet coke recognises that the creations of humans are inherently natural

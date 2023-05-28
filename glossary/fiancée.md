@@ -2,6 +2,6 @@
 
 I was confused. “That’s Louise.”
 
-“Interesting, you chose the other.” [[We]] traded knights. “[[Must]] be [[nice]], to take your [[pick]].”
+“Interesting, you chose the other.” [[We]] [[traded]] knights. “[[Must]] be [[nice]], to take your [[pick]].”
 
 “Me and Catherine? No way.” I set up a [[tactic]].

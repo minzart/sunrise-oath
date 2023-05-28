@@ -1,0 +1,1 @@
+[[As]] [[long]] [[as]] [[I]] [[speak]] [[it]] [[will]] [[record]] [[everything]] [[I]] [[say]].

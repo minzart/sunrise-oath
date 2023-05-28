@@ -1,1 +1,1 @@
-[[I]] walk [[under]] [[a]] fragmented sky [[thinking]] [[how]] [[like]] [[a]] [[white]] [[god]] [[is]] [[the]] [[moon]] that sometimes walks [[with]] us, [[how]] [[the]] ashes [[of]] ancients [[rise]] [[again]] [[as]] [[children]], [[how]] [[unseen]] [[music]] follows everywhere.
+[[I]] walk [[under]] [[a]] fragmented sky [[thinking]] [[how]] [[like]] [[a]] [[white]] [[god]] [[is]] [[the]] [[moon]] that [[sometimes]] walks [[with]] [[us]], [[how]] [[the]] ashes [[of]] ancients [[rise]] [[again]] [[as]] [[children]], [[how]] [[unseen]] [[music]] follows everywhere.

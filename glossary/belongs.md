@@ -1,0 +1,5 @@
+I [[wonder]] [[what]] I [[meant]].
+
+[[Saw]] Rennie [[today]] at the plaza near University of [[Waterloo]]. [[Her]] exam [[went]] [[well]], I [[heard]]. [[We]] had Korean [[food]] and talked about recent interests, the weather, [[our]] families, [[culture]], [[politics]], and lifestyle. She [[is]] [[doing]] [[well]]. I often think that [[my]] [[future]] kids would love [[her]] as a family [[friend]]. That drives [[me]] to be a [[better]] [[friend]].
+
+[[We]] played [[my]] [[game]], starting [[from]] [[Starhaven]] with a rabbit [[named]] [[Fluffy]] who goes to [[The]] [[Horn]] in [[search]] of [[hay]] [[beer]]. While [[there]], a [[kind]], playful, and powerful tinkerer [[named]] [[Vera]] casts [[an]] enslavement charm and acquires [[her]] as a [[slave]]. [[Vera]] [[later]] dies in the [[woods]] [[outside]] the [[Dungeon]] of [[Himero]], [[leaving]] [[Fluffy]] free but [[alone]].

@@ -1,6 +1,6 @@
 « [[A]] ‹ spoon ›? »
 
-« [[Something]] used [[to]] mix [[drinks]] and eat soup? »
+« [[Something]] [[used]] [[to]] mix [[drinks]] and [[eat]] soup? »
 
 « Bless [[technology]]. [[Hortus]], do [[we]] [[have]] [[a]] ‹ spoon ›? »
 

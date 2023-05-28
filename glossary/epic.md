@@ -1,0 +1,1 @@
+Some adventurers, hoping [[to]] restore [[a]] [[great]] [[work]] [[of]] literature, [[have]] [[started]] [[to]] safeguard fragments [[and]] publish transcriptions [[of]] [[their]] [[text]]. However, forgeries [[have]] [[started]] [[to]] pollute [[these]] [[earnest]] [[early]] efforts.

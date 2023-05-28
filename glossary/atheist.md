@@ -1,0 +1,1 @@
+[[The]] [[rationalist]] [[humanist]] [[sees]] [[both]] [[Christians]] [[and]] Mormons [[as]] [[closed]] [[to]] [[evidence]], yet himself would [[not]] [[admit]] any [[evidence]] provided [[to]] [[say]] [[that]] [[he]] [[cannot]] [[prove]] [[the]] [[consciousness]] [[of]] [[other]] [[fellow]] humans. 

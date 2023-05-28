@@ -2,5 +2,6 @@
   "accentColor": "#ffffff",
   "enabledCssSnippets": [
     "link-no-underline"
-  ]
+  ],
+  "baseFontSize": 14
 }

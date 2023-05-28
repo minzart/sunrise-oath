@@ -1,0 +1,1 @@
+Innoculated [[cowardice]], [[learned]] cuckoldry, [[watching]] [[the]] [[thin]] [[French]] [[girl]] [[hum]] [[on]] screen, panning [[past]] [[the]] bottles [[of]] wine, [[the]] rising steam, [[the]] raving [[boy]] who talks over the scream of a kettle.

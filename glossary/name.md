@@ -15,14 +15,14 @@ Cards [[have]] no official [[names]], so name them anything you [[want]].
 Gale  
 Mister  
   
-Friend  
+[[Friend]]  
 Anglo / mon ami  
   
 [[Jones]]  
 Gale [[Jones]]  
   
 Abigail ("My father's [[joy]]")  
-Master [[Jones]]  
+[[Master]] [[Jones]]  
   
 Ma grande  
 Petit monsieur  

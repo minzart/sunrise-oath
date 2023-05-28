@@ -1,0 +1,1 @@
+[[World]] inside [[a]] [[drop]] [[of]] [[water]], [[multitude]] [[in]] [[multitude]].

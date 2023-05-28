@@ -1,1 +1,1 @@
-[[Use]] [[a]] sign [[to]] [[gain]] [[mana]] of [[that]] sign, [[take]] [[damage]] [[if]] lose; or, win [[with]] [[a]] sign [[to]] [[gain]] [[mana]] [[of]] [[that]] sign.
+[[Use]] [[a]] sign [[to]] [[gain]] [[mana]] of [[that]] sign, [[take]] [[damage]] [[if]] lose; or, [[win]] [[with]] [[a]] sign [[to]] [[gain]] [[mana]] [[of]] [[that]] sign.

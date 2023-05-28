@@ -1,0 +1,1 @@
+[[I]] bought 2500 [[basic]] lands [[for]] $25. [[This]] [[may]] [[as]] [[well]] [[be]] [[infinite]]. 

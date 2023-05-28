@@ -1,1 +1,1 @@
-[[home]] [[prismata]] 
+[[My]] childhood [[home]] [[is]] [[a]] [[kaleidoscope]] [[of]] [[memories]], [[a]] [[prismata]] [[of]] connections.

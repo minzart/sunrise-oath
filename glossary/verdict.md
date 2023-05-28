@@ -1,1 +1,1 @@
-[[The]] professor responded [[not]] [[to]] [[the]] pupil’s [[question]], [[and]] fixed [[her]] [[eye]] [[on]] [[the]] [[shining]] [[horizon]]. “[[Magic]] [[is]] [[a]] passing [[storm]]. [[Against]] [[a]] strong opponent, [[time]] [[is]] [[on]] [[your]] side.”
+[[The]] professor responded [[not]] [[to]] [[the]] pupil’s [[question]], [[and]] fixed [[her]] [[eye]] [[on]] [[the]] [[shining]] [[horizon]]. “[[Magic]] [[is]] [[a]] passing [[storm]]. [[Against]] [[a]] [[strong]] opponent, [[time]] [[is]] [[on]] [[your]] side.”

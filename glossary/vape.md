@@ -1,0 +1,1 @@
+[[The]] [[color]] [[of]] [[love]] [[is]] [[purple]].

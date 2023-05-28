@@ -14,21 +14,21 @@ Mark Musa [[1992]] Dante Vita Nuova
 Flora MacDonald / Prince Charles Edward Stuart  
 Life of Maria Montessori  
 DeWitt - The Last Samurai  
-House of Leaves  
+House of [[Leaves]]  
 Toibin - The Heather Blazing  
 Findlay - The [[Value]] of Art  
-From the Towers of the [[Moon]]  
+[[From]] the Towers of the [[Moon]]  
 Cormac McCarthy - The [[Road]]  
 The God of Small [[Things]]  
-Dylan - The Philosophy of Modern [[Song]]  
+Dylan - The [[Philosophy]] of Modern [[Song]]  
 Bachmann - Malina  
 Fleur Jaeggy - The [[Water]] Statues  
-Professing Criticism  
+Professing [[Criticism]]  
 Professing Literature  
 Laxness - Under the Glacier  
 Laxness - Salka Valka  
 Studies [[into]] Darkness (epub)  
-Ted Chiang - The [[Evolution]] of [[Human]] [[Science]] (Stories of Your Life and Others)  
+Ted Chiang - The [[Evolution]] of [[Human]] [[Science]] (Stories of Your Life and [[Others]])  
 Confidentially [[Yours]]  
 Eddie Izzard [[Great]] Expectations  
 When [[We]] Cease to [[Understand]] the World  
@@ -53,8 +53,8 @@ Claire Denis - Both Sides of the Blade
 Robert Alter - Genesis to Acts  
 Tournier - The Judgment of Solomon  
 Beardsley  
-Wartime Elegy  
+Wartime [[Elegy]]  
 Infinite Jest  
 [[Gravity]]'s Rainbow  
-HBO The Last of Us  
+HBO The Last of [[Us]]  
 Edwin Wong - When Life Gives You Risk

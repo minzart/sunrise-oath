@@ -1,1 +1,1 @@
-Her [[embrace]] threw [[me]] [[off]] balance. On my [[bed]], collapsed and tangled [[with]] [[me]], her whisper [[betrayed]]: “Thanks, but no thanks.”
+[[Her]] [[embrace]] threw [[me]] [[off]] [[balance]]. [[On]] [[my]] [[bed]], collapsed [[and]] [[tangled]] [[with]] [[me]], [[her]] whisper [[betrayed]]: “Thanks, but [[no]] thanks.”

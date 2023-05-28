@@ -1,1 +1,1 @@
-Though [[maybe]] [[he]] wants [[me]] [[to]] [[never]] pay, or [[at]] least delay it [[enough]] [[to]] [[cause]] grief. [[In]] which [[case]], [[I]] [[shall]] indulge. ([[Just]] [[kidding]], [[will]] [[do]] [[that]] soon.)
+Though [[maybe]] [[he]] wants [[me]] [[to]] [[never]] pay, or [[at]] [[least]] delay it [[enough]] [[to]] [[cause]] grief. [[In]] which [[case]], [[I]] [[shall]] indulge. ([[Just]] [[kidding]], [[will]] [[do]] [[that]] [[soon]].)

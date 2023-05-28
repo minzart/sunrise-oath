@@ -1,4 +1,4 @@
-“[[I]] wrote a lot of trash like that.”
+“[[I]] [[wrote]] a lot of trash like that.”
 
 “What do you [[write]] [[now]]?”
 

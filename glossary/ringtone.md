@@ -1,0 +1,1 @@
+ [[I]] [[shall]] [[stay]] [[awake]] — [[my]] quota [[for]] [[the]] [[month]] — [[to]] [[read]] Alice Munro’s Runaway, [[and]] [[watch]] [[the]] Japanese [[film]] Drive [[My]] Car [[if]] [[I]] [[have]] [[time]]. 

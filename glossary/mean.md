@@ -1,0 +1,1 @@
+[[Regret]] [[the]] [[things]] [[I]] [[did]] [[at]] twelve. [[Convict]] [[myself]] [[of]] [[everything]] [[left]] unsaid. [[Right]] [[the]] [[wrong]] [[that]] haunts [[me]]. [[Write]] [[about]] [[it]].  

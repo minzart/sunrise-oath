@@ -1,0 +1,1 @@
+In the fifth chapter, "Then the [[sun]] upleapt in might and in power...And the worlds [[woke]] to hail the hour," Gale isolates himself and [[only]] Charlotte is [[there]] for him. When he finally [[sees]] Dawn [[again]] and satisfies their sunrise oath, his [[obsession]] with her [[pushes]] Charlotte away.

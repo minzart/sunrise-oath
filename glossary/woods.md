@@ -1,1 +1,1 @@
-[[The]] [[forest]] [[is]] [[alive]] [[with]] ancient lore, its stories [[woven]] [[through]] [[the]] trees. [[In]] [[this]] [[magic]] realm, [[I]] [[find]] [[my]] [[way]], guided [[by]] [[a]] priestess [[and]] [[her]] kin.
+[[The]] [[forest]] [[is]] [[alive]] [[with]] ancient [[lore]], its stories [[woven]] [[through]] [[the]] trees. [[In]] [[this]] [[magic]] realm, [[I]] [[find]] [[my]] [[way]], guided [[by]] [[a]] priestess [[and]] [[her]] kin.

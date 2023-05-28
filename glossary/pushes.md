@@ -1,0 +1,1 @@
+[[Selene]] plays [[lea|Lea]], and [[hortus|Hortus]] [[plays]] [[primo|Primo]]. [[They]] [[start]] the [[campaign]]. Both of them [[are]] at [[home]] [[acting]] in roles, characters [[coterminous]] [[with]] [[their]] [[real]] selves. [[sarah|Sarah]], playing [[Dawn]], [[is]] adopting the image that [[Gale]] imposed on [[her]].

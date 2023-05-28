@@ -1,0 +1,2 @@
+
+[[In]] [[one]] sense, [[all]] religions [[necessarily]] [[have]] t[[the|he ]][[same]] [[foundation]]: [[God]]'s [[creation]] Adam. [[The]] [[faith]] [[comes]] [[from]] saying [[that]] [[the]] Gospel [[is]] [[the]] [[one]] closest [[to]], [[and]] favored [[by]], [[the]] creator [[of]] [[all]]. [[I]] [[agree]] [[that]] [[the]] Gospel [[is]] [[to]] [[be]] defended. However, [[the]] [[best]] defense [[is]] [[radical]] [[empathy]] [[for]] [[the]] [[other]]. 

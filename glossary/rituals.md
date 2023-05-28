@@ -1,0 +1,1 @@
+[[The]] [[sacred]] [[dance]] shows mysteries [[of]] [[truth]].

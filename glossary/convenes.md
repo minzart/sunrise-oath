@@ -1,1 +1,1 @@
-[[Those]] [[who]] [[go]] [[to]] [[bed]] [[late]] [[are]] [[playing]] [[truant]]. 
+Sleeping late is playing truant.

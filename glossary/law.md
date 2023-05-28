@@ -5,7 +5,7 @@
 
 #### [[Players]]
 
-*[[Magic]]: [[the]] Gathering* fans that [[like]] kitchen [[table]] sealed - [[draft]] - cube [[pack]] wars league.
+*[[Magic]]: [[the]] [[Gathering]]* fans that [[like]] kitchen [[table]] sealed - [[draft]] - cube [[pack]] wars league.
 
 #### Organizers
 
@@ -16,11 +16,11 @@
 ### [[Magic]]
 
 Richard Garfield’s [[card]] [[game]], [[created]] [[in]] 1993, ft. mages, scientists, elves, robots.
-[[Not]] [[only]] *: [[the]] gathering* [[as]] conceived. [[Card]] [[back]] has [[pen]] smudge.
+[[Not]] [[only]] *: [[the]] [[gathering]]* [[as]] conceived. [[Card]] [[back]] has [[pen]] smudge.
 
 #### League
 
-[[A]] collective that owns [[the]] *[[Magic]]: [[the]] Gathering* cube, registers [[player]] pools, manages cash box.
+[[A]] collective that owns [[the]] *[[Magic]]: [[the]] [[Gathering]]* cube, registers [[player]] pools, manages cash box.
 
 ## When
 
@@ -30,7 +30,7 @@ Discuss plans for lunch [[at]] noon.
 
 #### [[Rise]]
 
-And [[the]] [[wind]], [[the]] [[wind]] went out [[to]] meet [[with]] [[the]] [[sun]] . . .
+And [[the]] [[wind]], [[the]] [[wind]] [[went]] out [[to]] [[meet]] [[with]] [[the]] [[sun]] . . .
 . . . [[At]] [[the]] [[dawn]] when [[the]] [[night]] [[is]] [[done]].
 
 #### Noon
@@ -39,7 +39,7 @@ Midpoint [[of]] [[day]], [[sun]] [[time]].
 
 #### Lunch
 
-[[Players]] eats food [[as]] everyone needs.
+[[Players]] eats [[food]] [[as]] everyone needs.
 
 #### [[Set]]
 
@@ -52,24 +52,24 @@ Midpoint [[of]] [[day]], [[sun]] [[time]].
 
 ## Where
 
-#### Location
+#### [[Location]]
 
-[[No]] [[session]] [[may]] follow [[at]] [[the]] [[same]] [[space]] [[from]] [[last]].
+[[No]] [[session]] [[may]] [[follow]] [[at]] [[the]] [[same]] [[space]] [[from]] [[last]].
 
 #### [[Chapter]]
 
-Find [[a]] location by [[writing]] [[to]] [[me]].
+Find [[a]] [[location]] by [[writing]] [[to]] [[me]].
 
 #### [[Session]]
 
-Open [[to]] [[friends]] and [[family]].
+[[Open]] [[to]] [[friends]] and [[family]].
 
 
 ## [[Why]]
 
 #### [[Mission]]
 
-[[Players]] greet each [[other]] [[at]] [[games]] [[with]] [[the]] sign.
+[[Players]] greet [[each]] [[other]] [[at]] [[games]] [[with]] [[the]] sign.
 
 #### [[Oath]]
 
@@ -87,20 +87,20 @@ Open [[to]] [[friends]] and [[family]].
 
 #### [[Rules]]
 
-***[[Magic]]: [[the]] Gathering*: Arena** [[is]] [[an]] online educational [[tool]]. [[Events]] are Casual and are [[not]] associated [[with]] Wizards [[of]] [[the]] Coast or Duelists' Convocation International.
+***[[Magic]]: [[the]] [[Gathering]]*: Arena** [[is]] [[an]] online educational [[tool]]. [[Events]] are Casual and are [[not]] associated [[with]] Wizards [[of]] [[the]] Coast or Duelists' Convocation International.
 
 ### [[Enter]]
 
-[[Players]] add [[one]] retail booster [[pack]] and [[three]] [[of]] each basic land.
+[[Players]] add [[one]] retail booster [[pack]] and [[three]] [[of]] [[each]] basic [[land]].
 These cards are his [[pool]].
 
 ### [[Magic]]
 
-Richard Garfield’s [[card]] [[game]], [[created]] [[in]] 1993, ft. mages, scientists, elves, robots. [[Not]] [[only]] *: [[the]] gathering* [[as]] conceived. [[Card]] [[back]] has [[pen]] smudge. 
+Richard Garfield’s [[card]] [[game]], [[created]] [[in]] 1993, ft. mages, scientists, elves, robots. [[Not]] [[only]] *: [[the]] [[gathering]]* [[as]] conceived. [[Card]] [[back]] has [[pen]] smudge. 
 
 ### Entry 
 
-[[Players]] [[enter]] [[the]] league by adding [[one]] retail booster [[pack]] and [[three]] [[of]] each basic land. These cards are [[a]] [[pool]]. 
+[[Players]] [[enter]] [[the]] league by adding [[one]] retail booster [[pack]] and [[three]] [[of]] [[each]] basic [[land]]. These cards are [[a]] [[pool]]. 
 
 #### [[Player]]
 
@@ -116,7 +116,7 @@ Richard Garfield’s [[card]] [[game]], [[created]] [[in]] 1993, ft. mages, scie
 
 ### [[Game]] 
 
-For each loss, [[a]] [[player]]'s opponent loses [[1]] [[life]] [[at]] [[the]] [[start]] [[of]] [[the]] [[game]]. For each win, [[a]] [[player]]'s opponent gains [[1]] [[life]].
+For [[each]] loss, [[a]] [[player]]'s opponent loses [[1]] [[life]] [[at]] [[the]] [[start]] [[of]] [[the]] [[game]]. For [[each]] [[win]], [[a]] [[player]]'s opponent gains [[1]] [[life]].
 
 ### [[Draft]]
 
@@ -126,7 +126,7 @@ For each loss, [[a]] [[player]]'s opponent loses [[1]] [[life]] [[at]] [[the]] [
 
 [[Players]] retain [[only]] up [[to]] thirty cards [[in]] their [[pool]] [[at]] [[the]] [[end]] [[of]] [[an]] event. [[The]] [[rest]] [[of]] [[the]] cards are [[placed]] [[in]] [[a]] [[draft]] for [[the]] next event. [[Players]] [[must]] sign [[in]] their pools.
 
-### [[Lifetime]] Win
+### [[Lifetime]] [[Win]]
 
 ### [[Session]]
 
@@ -145,4 +145,4 @@ Retired cards are kept [[aside]] and treated [[as]] cash.
 
 ### [[Magic]]
 
-Richard Garfield’s [[card]] [[game]], [[created]] [[in]] 1993, ft. mages, scientists, elves, robots. [[Not]] [[only]] *: [[the]] gathering* [[as]] conceived. [[Card]] [[back]] has [[pen]] smudge. 
+Richard Garfield’s [[card]] [[game]], [[created]] [[in]] 1993, ft. mages, scientists, elves, robots. [[Not]] [[only]] *: [[the]] [[gathering]]* [[as]] conceived. [[Card]] [[back]] has [[pen]] smudge. 

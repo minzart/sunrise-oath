@@ -1,0 +1,1 @@
+Pictures [[in]] shapes [[and]] [[color]], [[spread]] [[across]] [[the]] [[space]] [[between]] [[the]] edges [[of]] [[a]] [[frame]], fading [[into]] [[everything]] behind [[it]].

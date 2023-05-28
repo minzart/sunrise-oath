@@ -1,2 +1,2 @@
-I wrote [[an]] [[article]] using [[an]] OpenAI API. 
+I [[wrote]] [[an]] [[article]] using [[an]] OpenAI API. 
 

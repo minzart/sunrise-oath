@@ -1,5 +1,5 @@
 [[2023-05-05]]
-[[The]] [[tracks]] [[run]] [[through]] [[the]] [[empty]] field
+[[The]] [[tracks]] [[run]] [[through]] [[the]] [[empty]] [[field]]
 [[where]] [[long]] [[ago]] [[the]] [[children]] [[played]],
 [[laughing]] [[and]] singing [[under]] [[the]] [[moon]]
 [[still]] [[shining]] [[high]] [[up]] [[in]] [[the]] [[sky]].

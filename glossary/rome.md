@@ -1,5 +1,5 @@
 
-Follow the [[yellow]] [[brick]] [[road]].
+[[Follow]] the [[yellow]] [[brick]] [[road]].
 
 I [[found]] [[my]] [[old]] Baha’i texts. 
 Opening [[them]] would remind [[me]] [[of]] [[her]], 

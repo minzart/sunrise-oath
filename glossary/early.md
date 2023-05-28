@@ -2,4 +2,4 @@
 
 “[[You]] bet [[I]] [[am]].”
 
-[[She]] pet [[my]] hair, tugged [[my]] ear, pinched [[my]] [[cheek]]. “[[My]] [[sweetheart]] [[disciple]].”
+[[She]] [[pet]] [[my]] hair, tugged [[my]] ear, pinched [[my]] [[cheek]]. “[[My]] [[sweetheart]] [[disciple]].”

@@ -1,1 +1,1 @@
-Fall would [[give]] way to winter, and winter to spring. So I bravely rose, as did the morning sun every [[day]] in the thirteen [[years]] [[thereafter]].
+Fall would [[give]] way to winter, and winter to [[spring]]. So I bravely rose, as did the morning sun [[every]] [[day]] in the thirteen [[years]] [[thereafter]].

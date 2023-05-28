@@ -8,7 +8,7 @@ Soldiers are not captured.
 Instead, they are ripped up.  
 [[Put]] their remains [[aside]] facedown.  
   
-Rip up a civilian from the top of the [[dead]] soldier's deck.  
+Rip up a civilian [[from]] the top of the [[dead]] soldier's deck.  
 Do not [[reveal]] them. They [[will]] not be [[remembered]].  
 [[Put]] their remains [[aside]] facedown in a [[separate]] pile.  
   

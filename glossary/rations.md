@@ -1,0 +1,1 @@
+[[Ishmael]], playing [[as]] [[Lea]], loves [[to]] track [[her]] resources. [[If]] [[she]] [[cannot]] [[eat]] [[her]] [[gold]], [[why]] earn [[it]]?

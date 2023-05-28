@@ -1,1 +1,1 @@
-“That it is.” I glanced at his stylish book bag, stuffed with textbooks and [[course]] [[notes]]. “How humbling it must be to study at the alma mater of so many great men of [[history]].”
+“That it is.” I glanced at his stylish [[book]] bag, stuffed with textbooks and [[course]] [[notes]]. “How humbling it must be to study at the alma mater of so many great men of [[history]].”

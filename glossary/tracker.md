@@ -1,0 +1,1 @@
+[[One]] [[day]], [[a]] band [[of]] [[raiders]] attacked [[the]] village, killing Erisa's [[parents]] [[and]] [[burning]] [[her]] [[home]] [[to]] [[the]] [[ground]]. 

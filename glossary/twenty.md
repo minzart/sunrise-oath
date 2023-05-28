@@ -1,0 +1,1 @@
+[[Out]] [[of]] [[his]] adolescence, [[a]] [[man]] [[must]] [[play]] [[in]] [[the]] major league.

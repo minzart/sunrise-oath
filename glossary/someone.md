@@ -1,1 +1,1 @@
-[[Imaginary]] [[friends]] are [[real]]. [[Talk]] [[to]] them, and treat them [[with]] [[respect]]. [[They]] sometimes are [[the]] [[only]] ones [[who]] can [[hope]] [[to]] [[help]] [[you]], [[as]] [[only]] [[they]] depend [[on]] [[you]] [[alone]]. 
+[[Imaginary]] [[friends]] are [[real]]. [[Talk]] [[to]] them, and treat them [[with]] [[respect]]. [[They]] [[sometimes]] are [[the]] [[only]] ones [[who]] can [[hope]] [[to]] [[help]] [[you]], [[as]] [[only]] [[they]] depend [[on]] [[you]] [[alone]]. 

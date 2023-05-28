@@ -1,0 +1,1 @@
+In the third chapter, "And the [[earth]] was grey, and grey was the sky...In the hour when the stars [[must]] [[die]]," Gale has a date with Dawn at La Ronde, but instead spends the [[day]] with his ex-girlfriend [[Tara]] Robles, who is [[pregnant]] with her [[current]] boyfriend [[David]] Hawthorn's child.

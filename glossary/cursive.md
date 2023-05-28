@@ -1,0 +1,1 @@
+[[Catherine]] swears [[the]] [[sunrise]] [[oath]] [[second]]. [[Louise]] swears [[it]] [[right]] [[after]], [[as]] [[her]] swearing [[was]] conditional [[on]] [[Catherine]]. [[Eroica]] swore [[it]] [[first]], [[as]] [[a]] [[show]] [[of]] [[faith]] [[and]] dedication.

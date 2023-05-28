@@ -1,1 +1,1 @@
-[[The]] [[negation]] [[of]] weak [[evidence]] [[for]] [[is]] strong [[evidence]] [[against]]. [[The]] [[negation]] [[of]] strong [[evidence]] [[for]] [[is]] weak [[evidence]] [[against]].
+[[The]] [[negation]] [[of]] weak [[evidence]] [[for]] [[is]] [[strong]] [[evidence]] [[against]]. [[The]] [[negation]] [[of]] [[strong]] [[evidence]] [[for]] [[is]] weak [[evidence]] [[against]].

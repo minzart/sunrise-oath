@@ -2,4 +2,4 @@
 
 “Explain [[the]] [[name]], mon gars.”
 
-« It refers [[to]] [[the]] [[first]] [[volume]] [[of]] [[In]] Search [[of]] [[Lost]] [[Time]]. »
+« It refers [[to]] [[the]] [[first]] [[volume]] [[of]] [[In]] [[Search]] [[of]] [[Lost]] [[Time]]. »

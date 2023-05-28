@@ -1,0 +1,1 @@
+[[Wrote]] a [[story]] about [[enil|Enil]], a [[traveler]] who goes to [[an]] island [[city]] and regains [[his]] [[old]] [[faith]] in a [[religion]] [[he]] knew to be [[imperfect]].

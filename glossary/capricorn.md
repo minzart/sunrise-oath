@@ -1,4 +1,4 @@
-What the hell is a sea goat?
+What the [[hell]] is a sea goat?
 
 [[2023-04-03]]
 A [[lonely]] [[day]], [[never]] too unwelcome, slows life to a crawl.

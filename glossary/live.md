@@ -1,1 +1,1 @@
-[[The]] [[only]] [[greater]] [[fear]] [[I]] [[have]] than that [[of]] [[being]] [[forgotten]] [[is]] that [[of]] [[being]] [[remembered]]. 
+[[The]] [[only]] [[greater]] [[fear]] [[I]] [[have]] [[than]] that [[of]] [[being]] [[forgotten]] [[is]] that [[of]] [[being]] [[remembered]]. 

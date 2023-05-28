@@ -1,0 +1,1 @@
+[[She]] [[wanted]] [[to]] [[be]] [[a]] [[princess]]. [[Her]] [[second]] choice, a close silver, was to be an adventurer.

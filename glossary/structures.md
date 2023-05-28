@@ -1,0 +1,1 @@
+[[Crawling]] [[out]] [[of]] [[bed]], [[I]] [[feel]] [[like]] [[the]] [[skunk]] [[I]] [[saw]] [[last]] [[night]]. 

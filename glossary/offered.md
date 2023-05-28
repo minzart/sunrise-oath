@@ -1,1 +1,1 @@
-That was how on the Fourth of July, [[day]] ninety-five, I found a [[convenient]] [[excuse]] to be in [[Old]] Montreal every [[day]].
+That was how on the Fourth of July, [[day]] ninety-five, I found a [[convenient]] [[excuse]] to be in [[Old]] Montreal [[every]] [[day]].

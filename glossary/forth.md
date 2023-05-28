@@ -1,3 +1,3 @@
-Paul Graham's article notes that there [[are]] objective answers to questions but clarifies not that the questions asked come from bias. Mind is bias, no [[matter]] how cosmopolitan or [[woke]] or based one is.  
+Paul Graham's article [[notes]] that there [[are]] objective [[answers]] to questions but clarifies not that the questions asked come [[from]] [[bias]]. Mind is [[bias]], no [[matter]] how cosmopolitan or [[woke]] or based [[one]] is.  
 A "small [[identity]]" mindset serves the more transparent common lenses of a group of people, esp. those in our culture favoring empiricism, [[logic]], rights, and egalitarianism. Due to their contextual ubiquity, they [[are]] not even [[seen]] as [[identity]].  
 The idea that we alone have no accent and no culture is an arrogant meme. In fact, it is the height of hubris. What can we expect? At the base of [[identity]] is our sense of self. (I am a [[contrarian]].)  

@@ -1,0 +1,1 @@
+[[Christians]] [[cannot]] [[separate]] themselves [[from]] [[their]] [[epistemology]], [[which]] [[is]] [[why]] [[they]] [[make]] [[terrible]] arguments.

@@ -13,13 +13,13 @@ I [[now]] [[know]] the difference [[between]] sunset and sunrise. [[Hope]]. That
 
 GALE
 (Not a shred of sarcasm.)
-Looks like your confidence is back.
+Looks like your [[confidence]] is back.
 
 CATHERINE
-No more doubts. Everything is [[clear]] as [[day]].
+No more [[doubts]]. Everything is [[clear]] as [[day]].
 
 
-I [[know]] that I [[will]] never [[forget]] her tears under the [[light]] of the [[moon]]. But for two minutes, I [[put]] the [[thought]] [[aside]] and [[watch]] the sunrise with the [[engineer]]. [[After]] a [[restless]] [[night]], the rays stung my eyes.
+I [[know]] that I [[will]] never [[forget]] her tears under the [[light]] of the [[moon]]. But for two minutes, I [[put]] the [[thought]] [[aside]] and [[watch]] the sunrise with the [[engineer]]. [[After]] a [[restless]] [[night]], the rays stung my [[eyes]].
 
 ~In [[other]] [[words]], I love you.
 

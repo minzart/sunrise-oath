@@ -1,0 +1,1 @@
+Altar [[on]] wheels, [[divinity]] [[on]] [[demand]].

@@ -1,0 +1,1 @@
+[[The]] [[second]] [[brain]] [[is]] [[made]] [[up]] of all the computing equipment, hard drives and papers in our home. This is a private brain that each person can access in order to be professionally productive at the office or in the home office. This [[second]] brain also allows a person to be functional socially and thrive in their personal lives. 

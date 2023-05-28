@@ -1,1 +1,1 @@
-[[Today]] [[shall]] [[test]] [[me]]. [[Last]] [[time]], did I fail? I [[wonder]]. Nothing [[shall]] take from [[me]] the [[glory]] of the [[Lord]].
+[[Today]] [[shall]] [[test]] [[me]]. [[Last]] [[time]], did I fail? I [[wonder]]. Nothing [[shall]] take [[from]] [[me]] the [[glory]] of the [[Lord]].

@@ -1,0 +1,1 @@
+[[Past]] [[the]] trivial [[and]] [[the]] quadrivial, contradiction [[and]] confusion—indeed, [[even]] nonsense [[and]] non sequitur!—[[is]] [[more]] dialectic [[than]] [[the]] insistence [[on]] [[a]] futile hunt [[for]] [[firm]] [[common]] [[ground]].

@@ -1,4 +1,4 @@
-The Chinese [[church]], a red-brown [[building]] [[across]] the street from a [[private]] bilingual grade [[school]], was in the neighborhood before the Wal-Mart and the bus terminal. 
+The Chinese [[church]], a red-brown [[building]] [[across]] the street [[from]] a [[private]] bilingual grade [[school]], was in the neighborhood before the Wal-Mart and the bus terminal. 
   
 
   

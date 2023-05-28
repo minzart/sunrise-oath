@@ -1,6 +1,6 @@
 [[Seven]] Houses of the North  
   
-Trivium  
+[[Trivium]]  
   
 [[Logic]] - Atlas  
 Grammar - Clement  

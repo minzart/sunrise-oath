@@ -1,0 +1,1 @@
+[[The]] [[number]] [[of]] [[death]], [[in]] [[each]] [[and]] [[every]] [[world]]. [[One]] [[only]] [[forgets]] [[once]].

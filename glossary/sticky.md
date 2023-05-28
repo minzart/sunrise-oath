@@ -1,6 +1,6 @@
 [[Charlotte]] [[helped]] [[Gale]] [[in]] achieving [[his]] [[Galatea]] [[by]] placing [[his]] pre-[[written]] [[notes]] [[for]] him. ([[She]] [[knows]] [[the]] [[purpose]].)  
   
-[[Selene]] [[took]] [[away]] [[notes]] [[to]] remove [[the]] lies. ([[She]] [[knows]] [[the]] handwriting.)  
+[[Selene]] [[took]] [[away]] [[notes]] [[to]] remove [[the]] [[lies]]. ([[She]] [[knows]] [[the]] handwriting.)  
   
 [[Tara]] [[saw]] [[the]] [[note]] [[and]] [[figured]] [[out]] [[the]] [[plan]]. ([[She]] [[knows]] [[the]] [[mage]].)  
   

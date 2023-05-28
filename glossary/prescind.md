@@ -1,0 +1,1 @@
+[[we]] appreciate diet coke [[not]] [[for]] some meager calorie tradeoff but because [[it]] [[is]] liquid [[gold]] spun [[off]] [[the]] lathe [[of]] [[heaven]], accessible [[to]] the masses. [[it]] is impressive not due to the absence of sugar but because of the transcendence of sugar

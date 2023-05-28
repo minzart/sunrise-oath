@@ -1,0 +1,1 @@
+[[The]] villagers possessed [[a]] [[deep]] [[appreciation]] [[for]] [[beauty]], expressed [[through]] various forms [[of]] [[art]]. 

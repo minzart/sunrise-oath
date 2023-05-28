@@ -1,0 +1,1 @@
+[[My]] [[grandfather]] taught me how to brush my teeth. Now I do it without remembering the name of the man I thought of as my father. Heaven knows I love that saint, and see him in his highness despite his [[lowness]]. Yet I have placed him out of mind and shall not ever make him into an [[idol]]. Never again shall I kneel to a human, dead or alive.  

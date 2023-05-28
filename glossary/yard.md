@@ -1,0 +1,1 @@
+[[Outside]] [[my]] window, [[no]] [[soul]] [[in]] [[sight]]. [[Where]] [[I]] [[last]] [[saw]] [[that]] creature, [[I]] [[see]] [[only]] [[the]] [[yellow]] caucuses [[of]] [[dandelions]], rising [[in]] [[spring]] [[revolt]].

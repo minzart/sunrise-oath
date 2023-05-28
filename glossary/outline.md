@@ -1,1 +1,1 @@
-What greater [[distance]] is there than [[between]] is, and is not?
+What greater [[distance]] is there [[than]] [[between]] is, and is not?

@@ -1,0 +1,1 @@
+[[Ancra]] stood atop [[the]] [[tower]], [[seeing]] [[that]] [[the]] [[other]] [[world]] [[was]] [[also]] past redemption. 

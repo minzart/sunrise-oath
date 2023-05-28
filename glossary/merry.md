@@ -1,1 +1,1 @@
-I [[held]] her, inches from [[an]] [[edge]]. “Let’s [[calm]] [[down]]. [[Come]], sit.”
+I [[held]] her, inches [[from]] [[an]] [[edge]]. “Let’s [[calm]] [[down]]. [[Come]], sit.”

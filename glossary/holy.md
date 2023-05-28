@@ -1,1 +1,1 @@
-Conflict [[between]] [[the]] [[heaven]] [[I]] [[am]] [[in]], [[and]] [[what]] [[the]] [[world]] has [[made]] [[my]] [[special]] hell.
+Conflict [[between]] [[the]] [[heaven]] [[I]] [[am]] [[in]], [[and]] [[what]] [[the]] [[world]] has [[made]] [[my]] [[special]] [[hell]].

@@ -1,0 +1,1 @@
+Less money [[sitting]] [[in]] low APR savings accounts, [[more]] money going [[to]] Cessna [[for]] Kenneth Copeland's [[private]] jet.

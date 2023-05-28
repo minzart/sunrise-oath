@@ -1,0 +1,1 @@
+[[With]] [[that]], [[she]] [[turned]] [[and]] walked [[away]], disappearing [[into]] [[the]] shadows [[of]] [[the]] [[gallery]]. [[I]] stood [[there]], [[watching]] [[her]] [[go]], before [[turning]] [[back]] [[to]] [[the]] [[triptych]] [[on]] [[the]] wall.

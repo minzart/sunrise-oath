@@ -1,0 +1,1 @@
+[[The]] [[heart]] has [[a]] scale, [[and]] some [[things]] [[are]] too [[heavy]] [[to]] [[ever]] [[make]] [[right]].

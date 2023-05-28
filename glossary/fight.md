@@ -1,1 +1,1 @@
-The widow intervenes, and [[is]] [[corrupted]] by the demon of dust. She turns to darkness, eschewing the lessons of her former master and secret love. She leads [[an]] army of alabaster golems.
+The widow intervenes, and [[is]] [[corrupted]] by the demon of [[dust]]. She [[turns]] to darkness, eschewing the lessons of her former [[master]] and secret love. She leads [[an]] army of alabaster golems.

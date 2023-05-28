@@ -1,0 +1,1 @@
+[[Passion]] faded, [[and]] [[left]] [[was]] [[the]] [[bitter]] [[memory]], [[right]] [[was]] [[the]] touch [[of]] [[destiny]].

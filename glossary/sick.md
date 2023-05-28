@@ -1,1 +1,1 @@
-On ideas: "Would I take this advice if Hitler gave it?" On people: "Could I love this man if he was wrong?"
+On ideas: "Would I take this [[advice]] if Hitler gave it?" On people: "Could I love this man if he was wrong?"

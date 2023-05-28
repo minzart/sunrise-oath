@@ -1,0 +1,1 @@
+In the fourth chapter, "And the [[moon]] had fled with her sad, wan [[light]]...For her [[kingdom]] was [[gone]] with [[night]]," Gale discovers discipline and art [[through]] Selene, but [[also]] realizes that she has [[been]] [[lying]] to him.

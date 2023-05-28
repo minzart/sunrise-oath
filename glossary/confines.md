@@ -1,0 +1,1 @@
+[[The]] [[sound]] [[of]] [[footsteps]] [[echoed]] [[through]] [[the]] [[space]], [[and]] [[we]] [[turned]] [[to]] [[see]] [[the]] security [[guard]] making [[his]] rounds. [[I]] stood [[up]] quickly, adjusting [[my]] tie [[once]] [[more]]. [[The]] [[woman]], tucking [[a]] strand [[of]] hair behind her ear, began to walk away. "[[Wait]]," I [[called]] out. "What's your name?"

@@ -1,0 +1,1 @@
+Chooses [[to]] [[remember]] [[the]] [[worse]] [[dream]] because [[it]] [[represents]] [[when]] [[she]] [[gave]] [[up]] [[her]] [[love]] [[to]] [[save]] [[the]] [[world]].

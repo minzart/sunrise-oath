@@ -1,0 +1,1 @@
+Sunview Heights [[is]] [[home]] [[for]] Rachel. [[Soon]] [[as]] [[I]] [[could]] [[leave]], [[I]] [[did]]. [[The]] [[beauty]] [[of]] [[my]] [[mother]]’s [[craft]] [[was]] [[lost]] [[on]] [[me]]. [[More]] important [[to]] [[me]] [[was]] [[not]] [[being]] [[a]] [[mama]]’s [[boy]].

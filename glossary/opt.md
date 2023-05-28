@@ -1,1 +1,1 @@
-Everyone exchanged glances, nodding. And so, my suggestion was [[put]] in [[place]].
+[[Everyone]] [[traded]] glances, nodding. 

@@ -1,0 +1,1 @@
+The third brain is a commercial brain, made up of software, scripts, apps, ebooks, etc. that one can sell to [[others]]. 

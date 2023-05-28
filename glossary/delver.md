@@ -1,0 +1,1 @@
+Grappling [[over]] [[a]] wall reveals, [[no]] [[dead]] ends [[shall]] [[stop]] [[the]] shifting [[form]] [[of]] [[man]], himself [[a]] warping [[journey]] [[of]] [[his]] tests.

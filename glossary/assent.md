@@ -1,0 +1,1 @@
+[[I]] forgo membership [[in]] [[the]] Kitchener-[[Waterloo]] Rationality Discord server, [[leaving]] [[room]] [[for]] those [[whom]] [[my]] [[long]], esoteric, [[and]] [[frequent]] [[writings]] [[have]] crowded [[out]].  

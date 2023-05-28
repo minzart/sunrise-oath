@@ -1,4 +1,4 @@
-She was silent for some time, then agreed. “I shall [[honor]] my [[word]]. First, more training. [[Autumn]] is coming.”
+She was silent for some time, then [[agreed]]. “I shall [[honor]] my [[word]]. First, more training. [[Autumn]] is coming.”
 
 “And you are the [[autumn]] moon,” I said.
 
