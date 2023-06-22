@@ -1,1 +1,1 @@
-[[I]] [[gulped]], [[gave]] [[a]] knowing [[look]] [[to]] [[the]] officer, [[and]] waited til [[she]] [[pulled]] [[over]] before [[telling]] [[her]] [[the]] news.
+[[I]] [[gulped]], [[gave]] [[a]] knowing [[look]] [[to]] [[the]] officer, [[and]] waited [[til]] [[she]] [[pulled]] [[over]] before [[telling]] [[her]] [[the]] news.

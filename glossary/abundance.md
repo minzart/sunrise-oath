@@ -1,0 +1,1 @@
+[[Oceanic]] [[wealth]] [[is]] [[taken]] [[by]] [[the]] waves, [[cast]] [[against]] rocky shores, [[and]] torn [[away]] [[from]] [[evil]] [[hands]].

@@ -38,7 +38,7 @@ appropriated from the basement for my newest project,
 would be worth saving at all. Will the future
 be so precious with these artifacts? The fear
 of paralyzing pain has made me afraid of
-destroying so-called “value” as defined by
+destroying so-[[called]] “value” as defined by
 Max and Lisa, swine among heathens.
 
 

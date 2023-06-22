@@ -1,1 +1,1 @@
-This [[is]] [[a]] totally [[different]] sort [[of]] [[thing]]. 
+This [[is]] [[a]] totally [[different]] [[sort]] [[of]] [[thing]]. 

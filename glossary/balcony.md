@@ -1,0 +1,1 @@
+Industrious [[maturity]], learned helplessness, obstinate godlessness.  

@@ -1,0 +1,1 @@
+All man left Eden, and walks slowly around the [[viridian]] garden. 

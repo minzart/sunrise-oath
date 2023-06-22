@@ -1,0 +1,1 @@
+Once you know that you are never “in control”, except as a matter of [[decision]] to be at [[peace]] with the [[current]] moment as it is (no more [[resisting]]… no more), then you are free. 

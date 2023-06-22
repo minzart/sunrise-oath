@@ -1,0 +1,1 @@
+[[If]] [[only]] [[someone]] [[loved]] [[me]] [[enough]] [[that]] [[they]] [[take]] [[my]] [[every]] [[word]] [[and]] [[action]] [[as]] [[a]] [[prize]], [[and]] [[place]] [[it]] [[on]] [[their]] [[trophy]] shelf, [[and]] [[store]] [[it]] [[in]] [[a]] museum. [[Then]] [[I]] [[may]] [[sleep]] [[and]] [[never]] wake [[up]].

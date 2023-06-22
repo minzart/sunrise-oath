@@ -8,7 +8,7 @@
 [[eat]] [[the]] [[rabbit]]?  
   
   
-[[emergency]] broadcast: hitler won world war ii  
+[[emergency]] broadcast: hitler [[won]] [[world]] war ii  
 [[author]] [[wakes]] up, sends the novel, and [[kills]] himself.  
   
   

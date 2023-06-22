@@ -1,0 +1,1 @@
+It is my humble hope that my tale is at least worth a footnote in the grand scheme of your world, a small place to live and thrive in the vast [[platitudes]] of your heart.

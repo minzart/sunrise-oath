@@ -1,0 +1,1 @@
+Of course that also means your decision to abide or not is also [[predestined]], and that is perhaps the part of the whole [[ordeal]] that makes me feel so much more thankful. 

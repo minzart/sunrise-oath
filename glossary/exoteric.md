@@ -1,0 +1,1 @@
+The sun [[sneaks]] past the clouds, gives a little wave, and is gone before the fluffy white wisps can sharply punish that small casual insolence. The floating forms shrug and are blown away by the evening wind away from that far point past the skyline hiding the wonders of the world.

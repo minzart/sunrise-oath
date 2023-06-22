@@ -1,0 +1,1 @@
+[[Distinction]] of men and women was by clan, destiny, and lot.

@@ -1,0 +1,1 @@
+The culmination of this bloodless substitute for bloodletting is the murder of the [[enemy]] king, although the [[modern]] game ends euphemistically with the checkmate. This term, too, can be traced through a millennium to Persia. Shah mat “checkmate” means ‘the king (shah) is dead,’ where “mat” is related to the Latin stem mort- “death” found in “[[mortuary]].”

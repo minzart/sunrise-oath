@@ -1,0 +1,1 @@
+The force of the flow of the fjord is the first [[firmament]].  

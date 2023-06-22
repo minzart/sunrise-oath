@@ -1,0 +1,1 @@
+What is the [[harm]] in that? After all, I already think in the languages that others have taught me, and what is the [[Bible]] but yet another one? 

@@ -1,1 +1,1 @@
-“Diana [[Liu]], and [[Selene]] Bauman,” [[I]] hurried, “[[the]] greatest [[mind]] [[I]] [[know]], [[the]] [[curator]] [[who]] taught [[me]], [[the]] [[woman]] [[who]] [[found]] [[me]], [[the]] [[girl]] [[who]] [[never]] [[forgets]].”
+“[[Diana]] [[Liu]], and [[Selene]] Bauman,” [[I]] hurried, “[[the]] greatest [[mind]] [[I]] [[know]], [[the]] [[curator]] [[who]] taught [[me]], [[the]] [[woman]] [[who]] [[found]] [[me]], [[the]] [[girl]] [[who]] [[never]] [[forgets]].”

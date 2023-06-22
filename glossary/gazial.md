@@ -1,0 +1,1 @@
+[[A]] [[prominent]] [[teacher]] [[of]] [[the]] [[divine]] [[writings]].

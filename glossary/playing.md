@@ -1,0 +1,1 @@
+[[Gamification]] leads to blindness. One becomes uploaded to the augmented reality.

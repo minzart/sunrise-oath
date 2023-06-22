@@ -8,7 +8,7 @@ Cello recording is [[from]] Charlotte
 
 * * * 
 
-I touch the ears of Beethoven, the [[eyes]] of Homer.  
+I touch the [[ears]] of Beethoven, the [[eyes]] of Homer.  
   
 The [[light]] of the chandeliers is [[pale]] and permeating.
 

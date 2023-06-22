@@ -1,0 +1,1 @@
+Know the [[pleasures]] of the flesh, and make them come to life anew in the gleaming of the afterglow, searching in her breath the song of spring.

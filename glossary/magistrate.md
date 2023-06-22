@@ -1,0 +1,1 @@
+Above the everyman, seeking truth above the common law, have you the same exuberance as in provincial days, tilling fields your father stewards to this day? The [[bloodline]] looked to soil for God, and you, fruit of generations, peer into scrolls and tomes for gold. 

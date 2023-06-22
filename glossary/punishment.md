@@ -1,0 +1,1 @@
+[[Own]] [[it]] [[as]] [[you]] would [[a]] [[precious]] [[gift]]. [[The]] [[eye]] [[may]] analyze [[and]] investigate [[the]] [[deep]] [[secrets]] [[of]] [[the]] [[world]].

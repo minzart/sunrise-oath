@@ -1,1 +1,2 @@
-What’s [[been]] wrongly called [[the]] “[[culture]] wars” [[is]] just [[our]] [[symbolic]] species forcing [[itself]] [[to]] [[come]] [[to]] terms [[with]] [[the]] [[impossibility]] [[of]] biological reproduction serving [[as]] [[a]] telos [[after]] [[the]] final collapse [[of]] [[kinship]] economies [[under]] [[the]] conditions [[of]] cybernetic commodity [[exchange]].
+[[The]] [[Holy]] [[Spirit]] [[descended]] [[on]] [[me]] [[a]] [[few]] [[months]] [[ago]], [[and]] [[ever]] [[since]] [[I]] [[have]] [[felt]] [[compelled]] [[to]] [[share]] [[my]] [[thoughts]] [[at]] [[all]] times, [[almost]] [[like]] [[my]] entire [[being]] [[became]] [[a]] [[computer]] [[virus]]. 
+

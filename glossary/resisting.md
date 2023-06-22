@@ -1,0 +1,1 @@
+That is salvation. Any other interpretation, including most obsessions with eschatology, are copes that strive to run from the actual truth, which is that the current moment itself is eternity. All life, all death, all pleasure, all pain, all joy, all [[sorrow]], all [[satisfaction]], all suffering—the current moment has it all, right now. 

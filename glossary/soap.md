@@ -1,0 +1,1 @@
+Groaning [[from]] [[the]] [[deep]], drenched [[in]] [[scarlet]] [[mud]], [[falling]] [[to]] [[the]] brittle blade, [[the]] [[hero]]'s [[body]] [[broke]] [[on]] the cold wet ground, and was ever still.

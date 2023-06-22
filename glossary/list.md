@@ -20,7 +20,7 @@ Findlay - The [[Value]] of Art
 [[From]] the Towers of the [[Moon]]  
 Cormac McCarthy - The [[Road]]  
 The God of Small [[Things]]  
-Dylan - The [[Philosophy]] of Modern [[Song]]  
+Dylan - The [[Philosophy]] of [[Modern]] [[Song]]  
 Bachmann - Malina  
 Fleur Jaeggy - The [[Water]] Statues  
 Professing [[Criticism]]  

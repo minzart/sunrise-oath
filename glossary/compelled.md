@@ -1,0 +1,1 @@
+Goblins, elves, kobolds, and orcs exist alongside each other on a sprawling island.

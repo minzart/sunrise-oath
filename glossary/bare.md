@@ -1,1 +1,1 @@
-[[Death]] [[is]] [[a]] [[life]], [[an]] [[illusion]].
+[[Death]] [[is]], [[as]] [[life]], [[an]] [[illusion]].

@@ -20,7 +20,7 @@ Under a tree, my hand touched the [[idol]], then my cuff. The spider wrapped on 
 
 “A [[use]] [[shall]] [[come]],” it reassured [[without]] a [[word]], and was dormant [[again]].
 
-Back in the island [[city]] where I once belonged, I [[thought]] of the [[lies]] I [[lived]], the [[fears]] I [[learned]]. When did I lose them? At the side of a [[cliff]], over a steep [[drop]] in the [[desert]]. [[From]] then on, I was free. Or so I [[thought]], til I looked [[into]] the [[eyes]] of the [[false]] god and [[saw]] nothing.
+Back in the island [[city]] where I once belonged, I [[thought]] of the [[lies]] I [[lived]], the [[fears]] I [[learned]]. When did I lose them? At the side of a [[cliff]], over a steep [[drop]] in the [[desert]]. [[From]] then on, I was free. Or so I [[thought]], [[til]] I looked [[into]] the [[eyes]] of the [[false]] god and [[saw]] nothing.
 
 “You [[again]].” The [[strange]] peddler waved, and hurried over. “Has your fortune [[changed]]?”
 

@@ -1,0 +1,1 @@
+Hope is a contract with the world, one that shall break soon as it is lost.

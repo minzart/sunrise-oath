@@ -1,0 +1,1 @@
+[[Each]] [[card]] [[has]] [[flavor]] [[text]] [[that]] [[progresses]] [[the]] [[story]]. 

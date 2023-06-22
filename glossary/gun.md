@@ -1,0 +1,1 @@
+[[Take]] [[this]] [[bullet]] [[and]] [[find]] [[the]] [[fated]] [[mark]].

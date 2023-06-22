@@ -1,1 +1,1 @@
-*[[Something]] Awful* [[happened]] [[in]] [[1999]].
+*[[Something]] [[Awful]]* [[happened]] [[in]] [[1999]].

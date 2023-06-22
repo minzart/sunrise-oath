@@ -1,0 +1,1 @@
+The mosquitos tactfully remind me of the [[importance]] of modesty, in [[exchange]] for their [[daily]] [[helping]] of blood.

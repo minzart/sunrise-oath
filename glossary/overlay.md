@@ -2,4 +2,4 @@
   
 [[She]] had stylish eyeglasses. [[The]] [[library]] [[was]] [[empty]] [[when]] [[she]] arrived, [[and]] [[she]] approached [[me]] [[in]] [[the]] [[music]] [[aisle]]. "[[Nice]] [[to]] [[see]] [[you]]," [[says]] [[Catherine]]. "[[Good]] [[day]]," [[I]] [[said]], surprised [[at]] [[how]] [[different]] [[she]] [[was]].  
   
-"[[Nice]] [[to]] [[meet]] [[you]]," [[I]] [[said]] [[to]] [[the]] [[curator]] [[who]] ordered [[two]] coffees, [[and]] [[told]] [[me]] [[about]] [[her]] [[work]].
+"[[Nice]] [[to]] [[meet]] [[you]]," [[I]] [[said]] [[to]] [[the]] [[curator]] [[who]] [[ordered]] [[two]] coffees, [[and]] [[told]] [[me]] [[about]] [[her]] [[work]].

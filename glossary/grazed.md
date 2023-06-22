@@ -1,0 +1,1 @@
+The towers and walls poked above the corn, blocking the sun from the rows upon rows of corn. Pushing aside the stalks, I stepped out of the field and circled the stone structure, writing each crack and crevice in my journal. It was certainly there before I was ever born, yet only upon my [[arrival]] was it a castle.

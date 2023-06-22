@@ -1,0 +1,1 @@
+[[The]] [[eagle]] shears [[the]] [[sheep]] [[with]] its sharp beak. 

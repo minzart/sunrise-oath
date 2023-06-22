@@ -1,0 +1,1 @@
+[[She]] [[raised]] [[the]] [[palm]] [[to]] [[her]] [[lips]], [[and]] [[her]] [[tongue]] [[told]] [[her]] [[it]] [[was]] salty. [[A]] tear had [[been]] shed, [[she]] [[was]] [[sure]] [[of]] [[it]].

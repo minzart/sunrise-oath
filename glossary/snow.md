@@ -1,0 +1,1 @@
+[[In]] [[the]] middle [[of]] [[summer]], [[I]] [[forget]] [[the]] [[taste]] [[of]] winter's icy flakes.

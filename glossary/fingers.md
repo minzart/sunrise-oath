@@ -1,0 +1,1 @@
+Public flower pots are subsidized nature staving off the concrete and lights that line the streets where I once walked at night in search of a ride that might return me to the mother's nest where she may yell and hit and say she loved me.

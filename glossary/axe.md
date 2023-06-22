@@ -1,0 +1,1 @@
+[[An]] ornithologist points [[at]] [[fallen]] feathers, [[that]] [[which]] [[has]] separated [[from]] [[the]] [[world]] [[and]] fallen [[back]].

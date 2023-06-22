@@ -1,1 +1,1 @@
-[[We]] [[fell]] [[into]] [[silence]], [[each]] [[lost]] [[to]] [[idle]] thoughts, til [[the]] [[woman]] [[spoke]] [[again]]. 
+[[We]] [[fell]] [[into]] [[silence]], [[each]] [[lost]] [[to]] [[idle]] thoughts, [[til]] [[the]] [[woman]] [[spoke]] [[again]]. 

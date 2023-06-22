@@ -1,0 +1,1 @@
+[[The]] [[anonymous]] [[moment]] [[of]] [[looking]] [[in]] [[another]]'s [[eyes]] [[and]] letting [[the]] easy smile happen—[[that]] [[is]] [[true]] [[love]].

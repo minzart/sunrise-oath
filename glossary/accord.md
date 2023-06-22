@@ -1,0 +1,1 @@
+[[The]] [[mirror]] [[of]] [[the]] [[heart]] [[reflects]] [[the]] [[world]] [[that]] crafted [[it]], [[the]] blessed vessel [[in]] [[God]]'s [[image]].

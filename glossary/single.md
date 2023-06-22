@@ -1,0 +1,1 @@
+[[The]] [[land]] [[of]] [[sin]] [[became]] [[the]] [[holy]] site [[where]] [[a]] [[miracle]] had [[taken]] [[place]]. Arriving there, they face the test.

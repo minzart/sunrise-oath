@@ -4,6 +4,6 @@
 
 “So I wasn’t the only [[one]] who blabbed.” We [[kissed]], and made plans to go to [[city]] hall tomorrow. When tomorrow [[came]], we sat in a park, stunned by a sudden development.
 
-I tried to be hopeful: “We can’t be sure, til we see a [[doctor]].”
+I tried to be hopeful: “We can’t be sure, [[til]] we see a [[doctor]].”
 
 “Don’t, Gale. We [[lost]] it. It’s all over, before it all began.” Her [[crying]] [[face]] [[burrowed]] in my [[chest]]. All I could do was [[pet]] her hair, [[stroke]] her back, and [[look]] at the grey sky.

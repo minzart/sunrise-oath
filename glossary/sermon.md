@@ -1,0 +1,1 @@
+If I wanted to, I could sit here and type forever, having some sort of weird dialogue with myself like an insane person. For example, I could ask myself, how are you? And I would answer, pretty [[damn]] good! 

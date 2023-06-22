@@ -36,7 +36,7 @@ _Did [[she]] dye [[her]] hair? Perhaps it’s [[best]] to [[keep]] it to myself.
 
 **[[GALE]]. I re-watched “Chicanery” last week.**
 
-**SIMONE. Nothing gets past Diana’s [[disciple]].**
+**SIMONE. Nothing gets past [[Diana]]’s [[disciple]].**
 
 **[[GALE]]. Anyway, [[your]] husband. [[Is]] [[there]] [[something]] going on?**
 

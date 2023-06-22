@@ -1,0 +1,1 @@
+She lived and died—no, she has risen! Ripples of a hem I have recolored on the page, from red to a blue as pale as white.

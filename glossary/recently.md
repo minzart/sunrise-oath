@@ -1,0 +1,1 @@
+[[I]] [[think]] [[of]] goblins [[as]] [[spiritually]] advanced [[from]] tripping [[on]] so many of the things they have foraged, and elves as having no inner narrative despite being intelligent and long-lived. I also think of all [[fantasy]] races as humans, but distilled with [[pertinent]] trait first.

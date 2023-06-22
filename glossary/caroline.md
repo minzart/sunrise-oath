@@ -20,7 +20,7 @@ Ah, very [[well]] then, adventurer. Let's take the [[path]] to the [[left]]. The
 
 I would like to [[follow]] the [[stream]] downstream. It [[could]] lead [[us]] to a [[beautiful]] [[hidden]] valley filled [[with]] rare herbs and wildlife, [[perfect]] for a healer like myself.
 
-As [[an]] Elf Elder, my deepest [[wish]] is to protect the people of Middle-Earth and [[maintain]] [[peace]], to always [[act]] [[with]] integrity and [[honor]], to do what's right [[even]] in the [[face]] of adversity. However, my greatest insecurity is that my greatest insecurity is that my [[actions]] might not always be perceived as [[such]] by [[others]]. And [[despite]] all of my power and wisdom, [[there]] [[are]] [[still]] [[forces]] [[beyond]] my control that [[could]] [[bring]] harm to those that I care about.
+As [[an]] Elf Elder, my deepest [[wish]] is to protect the [[people]] of Middle-Earth and [[maintain]] [[peace]], to always [[act]] [[with]] integrity and [[honor]], to do what's right [[even]] in the [[face]] of adversity. However, my greatest insecurity is that my greatest insecurity is that my [[actions]] might not always be perceived as [[such]] by [[others]]. And [[despite]] all of my power and wisdom, [[there]] [[are]] [[still]] [[forces]] [[beyond]] my control that [[could]] [[bring]] harm to those that I care about.
 
 [[We]] [[must]] be on [[guard]] for any [[potential]] [[dangers]] that [[may]] lie [[ahead]]. Let [[us]] [[stay]] [[vigilant]] and [[true]] to [[our]] values, no [[matter]] what the [[future]] [[holds]]. [[Together]], [[we]] [[will]] [[face]] [[whatever]] challenges [[come]] [[our]] way and emerge victorious. 
 
@@ -50,7 +50,7 @@ While it is [[true]] that the orcs [[have]] suffered greatly throughout [[histor
 
 "What is the culpability of the elves, for oppressing the [[conquered]] [[after]] the war?"
 
-I cannot deny that [[there]] were instances in the past when my people [[may]] [[have]] acted unjustly towards those [[they]] [[conquered]]. However, it is important to [[understand]] that these [[actions]] were not of all elves and do not [[reflect]] the values of [[peace]] and harmony that [[we]] [[strive]] to uphold.
+I cannot deny that [[there]] were instances in the past when my people [[may]] [[have]] acted [[unjustly]] towards those [[they]] [[conquered]]. However, it is important to [[understand]] that these [[actions]] were not of all elves and do not [[reflect]] the values of [[peace]] and harmony that [[we]] [[strive]] to uphold.
 
 "Do you [[feel]] [[guilt]]?"
 

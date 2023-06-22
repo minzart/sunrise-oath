@@ -1,0 +1,7 @@
+Margo is a holy knight and servant of the Priest King who suddenly starts hearing a voice that proclaims itself as God. Led to engage in a homosexual relationship with a fellow knight named Joti, he leaves Fort Storm upon the suggestion that the Priest King is a demon who preaches falsely.
+
+Lord Riverwood operates in Great Dam City, a conservation area for the indigenous beavers, as a rumored challenger to the Priest King. He bonds with Margo over beaver pups, but is upset by the idea that the younger knight left the order to practice a life of sin. Lord Riverwood defies the Priest King, but follows all the teachings to be beyond reproach. Following this, led by the voice in his head, Margo befriends a homeless man named Bobo trespassing in the temple, who introduces himself as the Grand Wizard Bishop Stefanan. They steal silver from the temple, and take it to give to refugees.
+
+Margo preaches at the refuge point, deranged in demeanor. He gives a speech where he claims to be the chosen one, and that he may grant salvation. The cloaked allies of Gemma, wishing to root out these beliefs contradicting their own faith, confront these heresies and later kill Margo on the road. Stefanan is gravely injured, and taken by Gemma's network.
+
+Nearby Potato Island has a theocracy that has upset its resident dragon.

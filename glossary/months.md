@@ -1,0 +1,1 @@
+My vocal cords no longer are [[engaged]], and instead my fingers naturally push out all my thoughts in one breath, like I am giving some sort of improvised [[sermon]]. 

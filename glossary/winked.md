@@ -1,0 +1,1 @@
+I shivered, my sense of déjà vu kicking into high gear. The way she was teasing me, the way her facial features arranged themselves in that exact way . . . was I [[imagining]] things, or was it Dawn really [[standing]] there after all?

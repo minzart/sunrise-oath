@@ -1,0 +1,1 @@
+Sorting out the lead and chaff was what you took for science tried and true. Yet now you worship effigies of knowledge, [[fetish]] monuments to your own righteousness. 

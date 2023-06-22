@@ -1,0 +1,1 @@
+[[Love]] is writing a letter for a statue and sending it to a woman.

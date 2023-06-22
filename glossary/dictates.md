@@ -1,0 +1,1 @@
+The weight of duty, yet the levity of play. I really cannot describe it in any way that sounds not like a [[bundle]] of [[contradictions]], a package of nonsense. 

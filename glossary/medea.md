@@ -1,0 +1,1 @@
+Dangerous is the man who dares to think that he has known God except as a reflection, and [[humbled]] is the believer who sees the mystery and scripture in all creation.

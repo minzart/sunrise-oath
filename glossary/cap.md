@@ -1,0 +1,1 @@
+The English, however, were the first to [[introduce]] chess diagrams to printing and since the piece remained a bishop there (and in Iceland) the bishop’s mitre would soon become the worldwide [[standard]]. However, Germans use this now [[universal]] symbol for their laufer “runner” while Russians use the mitre for their slon “the elephant.”

@@ -1,0 +1,1 @@
+[[Nothing]] [[outside]] your experience can be verified in the first place, and then especially you cannot figure out a lie that is even a single step beyond your [[maximal]] resolution of perception even if it is obvious to God.

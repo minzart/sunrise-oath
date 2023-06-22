@@ -1,0 +1,1 @@
+A river diverges into two levels of three waterfalls. In between is lush vegetation, a natural open air paradise. [[Locus]] [[amoenus]], pleasant place of all amenity, ready to be tamed as an explorer wishes. Can only be found by one with divine inspiration, who has in him the spirit of God. 

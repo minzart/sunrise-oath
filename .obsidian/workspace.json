@@ -8,19 +8,33 @@
         "type": "tabs",
         "children": [
           {
-            "id": "25b0df075139ffb6",
+            "id": "7f2b0d67237282ac",
             "type": "leaf",
             "state": {
               "type": "markdown",
               "state": {
-                "file": "glossary/splotch.md",
+                "file": "glossary/teaches.md",
+                "mode": "source",
+                "backlinks": false,
+                "source": false
+              }
+            }
+          },
+          {
+            "id": "6a15c21dc1acb5a7",
+            "type": "leaf",
+            "state": {
+              "type": "markdown",
+              "state": {
+                "file": "glossary/paradise.md",
                 "mode": "source",
                 "backlinks": false,
                 "source": false
               }
             }
           }
-        ]
+        ],
+        "currentTab": 1
       }
     ],
     "direction": "vertical"
@@ -78,8 +92,7 @@
       }
     ],
     "direction": "horizontal",
-    "width": 200.5,
-    "collapsed": true
+    "width": 200.5
   },
   "right": {
     "id": "6b9bf3f5d8a57fca",
@@ -95,13 +108,13 @@
             "state": {
               "type": "backlink",
               "state": {
-                "file": "glossary/splotch.md",
+                "file": "glossary/paradise.md",
                 "collapseAll": false,
                 "extraContext": false,
                 "sortOrder": "alphabetical",
                 "showSearch": false,
                 "searchQuery": "",
-                "backlinkCollapsed": false,
+                "backlinkCollapsed": true,
                 "unlinkedCollapsed": false
               }
             }
@@ -112,7 +125,7 @@
             "state": {
               "type": "outgoing-link",
               "state": {
-                "file": "glossary/splotch.md",
+                "file": "glossary/paradise.md",
                 "linksCollapsed": true,
                 "unlinkedCollapsed": false
               }
@@ -135,8 +148,24 @@
             "state": {
               "type": "outline",
               "state": {
-                "file": "glossary/splotch.md"
+                "file": "glossary/paradise.md"
               }
+            }
+          },
+          {
+            "id": "ba33c60306e1b023",
+            "type": "leaf",
+            "state": {
+              "type": "DICE_ROLLER_VIEW",
+              "state": {}
+            }
+          },
+          {
+            "id": "b20d7c5314afe341",
+            "type": "leaf",
+            "state": {
+              "type": "advanced-tables-toolbar",
+              "state": {}
             }
           }
         ],
@@ -144,46 +173,54 @@
       }
     ],
     "direction": "horizontal",
-    "width": 200.5
+    "width": 200
   },
   "left-ribbon": {
     "hiddenItems": {
       "command-palette:Open command palette": false,
+      "table-editor-obsidian:Advanced Tables Toolbar": false,
       "switcher:Open quick switcher": false,
       "canvas:Create new canvas": false,
       "templates:Insert template": false,
       "random-note:Open random note": false,
+      "webpage-html-export:Export Vault to HTML": false,
       "periodic-notes:Open today": false
     }
   },
-  "active": "25b0df075139ffb6",
+  "active": "6a15c21dc1acb5a7",
   "lastOpenFiles": [
-    "glossary/farmhouse.md",
-    "glossary/splotch.md",
-    "glossary/figment (1).md",
-    "glossary/fiancée (1).md",
-    "glossary/worst.md",
-    "glossary/dim.md",
-    "glossary/congratulations.md",
-    "glossary/fake.md",
-    "glossary/honestly.md",
-    "glossary/starhaven.md",
-    "glossary/belongs.md",
-    "glossary/slave.md",
-    "glossary/wealth.md",
-    "glossary/brann.md",
-    "glossary/curious.md",
-    "glossary/adorn.md",
-    "glossary/room.md",
-    "glossary/speaking.md",
-    "glossary/charisma.md",
-    "glossary/prayer.md",
-    "glossary/active.md",
-    "glossary/bumped.md",
-    "glossary/shock.md",
-    "glossary/foundation.md",
-    "glossary/fragile.md",
-    "glossary/recruits.md",
+    "glossary/aim.md",
+    "glossary/paradise.md",
+    "glossary/mark.md",
+    "glossary/gun.md",
+    "glossary/wand.md",
+    "glossary/sensors.md",
+    "glossary/sense.md",
+    "glossary/banners.md",
+    "glossary/evidence.md",
+    "glossary/fallen.md",
+    "glossary/axe.md",
+    "glossary/sheep.md",
+    "glossary/precious.md",
+    "glossary/punishment.md",
+    "glossary/powerful.md",
+    "glossary/tribulations.md",
+    "glossary/troubles.md",
+    "glossary/phenomenal.md",
+    "glossary/oceanic.md",
+    "glossary/abundance.md",
+    "glossary/intrinsic.md",
+    "glossary/enemy.md",
+    "glossary/modern.md",
+    "glossary/accountant.md",
+    "glossary/autism.md",
+    "glossary/parthole.md",
+    "textgenerator/desktop.ini",
+    "textgenerator/prompts/default",
+    "textgenerator/prompts",
+    "textgenerator",
+    "html",
+    "New folder",
     "link-no-underline.txt",
     "journal/Untitled",
     "archive/hex_template_200_10.png",
@@ -198,13 +235,7 @@
     "map",
     "map/map.canvas",
     "map",
-    "deck/desktop.ini",
     "archive/Pasted image 20230329150730.png",
-    "index",
-    "pages",
-    "archive/Kika_v27.pdf",
-    "archive/Unconfirmed 500322.crdownload",
-    "deck",
     "inbox/scratch.canvas",
     "sunrise oath/workshop/_inbox_/scratch.canvas",
     "sunrise oath/workshop/_desk_/ego/man/body/_inbox_/scratch.canvas",

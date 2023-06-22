@@ -5,12 +5,12 @@ Cleaning [[my]] [[room]] [[in]] preparation, [[the]] [[evidence]] [[for]] any
 [[of]] [[my]] [[life]] [[was]] [[missing]] [[from]] its cracks [[and]] corners, its
 [[strange]] purified [[smell]] [[that]] seeped [[in]] [[my]] nose [[and]] stayed
 [[even]] [[when]] [[I]] [[was]] [[on]] [[the]] [[path]] [[I]] chose [[to]] [[take]]. [[Poetry]]
-rang in my ears on the walk, carefree in my enjoyment of
+rang in my [[ears]] on the walk, carefree in my enjoyment of
 the night that fell as I was contemplating what to work on next.
 
 Whoever came to see me at the corner, friend or foe, ought 
 be welcomed with a kiss of holy charity. I have no
-enemy, for I am saved. The power of the Lord gave me
+[[enemy]], for I am saved. The power of the Lord gave me
 heart, the angel of victory over death. No use to live in dark,
 when light is come to cleanse all sin. Might is the man
 that hangs from a tree in worldly disgrace, bleeding silent
@@ -31,7 +31,7 @@ after I last spoke to her, before she went back to New
 England, I took her to the Old Port of Montreal, a half-
 hour walk blending sidewalk to cobblestone. She broke up
 with Fabian—fabulous name—the week before, and looked
-as stunning as the cute cashier standing by the taquitos,
+as [[stunning]] as the cute cashier standing by the taquitos,
 tending to them like a mother tucking in her litter.
 
 The sight of her distracted me enough to let the last

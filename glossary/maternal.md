@@ -1,1 +1,1 @@
-[[Hera]] [[is]] [[the]] [[Father]] -> prevented Artemis  
+[[Hera]] [[is]] [[the]] [[Father]] -> prevented [[Artemis]]  

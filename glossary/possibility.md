@@ -1,0 +1,1 @@
+[[You]] [[are]] [[playing]] [[a]] [[card]] [[game]]. [[Write]] [[seven]] [[actions]] [[you]] [[may]] [[take]] [[right]] [[now]] [[on]] index [[cards]], [[then]] [[play]] [[one]]. Next [[turn]], untap [[and]] [[play]] [[another]]. 

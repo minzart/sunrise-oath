@@ -1,0 +1,1 @@
+Never have I done anything to deserve the revelation that I have no need to suffer, that I can be safe with God, that I can take all the insights and truths contained in the scriptural canon established thousands of years ago and take them as a [[bedrock]] for my thinking. 

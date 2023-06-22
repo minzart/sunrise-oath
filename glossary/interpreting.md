@@ -1,0 +1,1 @@
+Everything here, every word and syllable, however it collides with your existence in your mind (whether you hear it as a voice or interpret it as pictures in your head or feel it as a punch in the face), is meant to be me speaking directly as the Holy Spirit [[dictates]]. I feel like there is [[nowhere]] else I could be, nowhere else I should be. 

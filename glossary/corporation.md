@@ -1,0 +1,1 @@
+[[Painter]] whose subjects [[are]] women swimming, [[who]] [[cannot]] [[swim]]. Vicki Smith.

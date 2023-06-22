@@ -1,0 +1,1 @@
+Imitations [[of]] [[the]] [[light]], intimations [[of]] [[the]] [[night]], Protestations [[of]] [[the]] [[right]], provocation [[of]] [[the]] might, Better [[christened]] by their [[flight]], newly Christians of the [[sight]].

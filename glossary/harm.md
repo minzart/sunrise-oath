@@ -1,0 +1,1 @@
+More languages let us access more modes of thinking, and more modes of thinking let us live more lives (in parallel and in series, all at once!), which lead us to gain ever more knowledge from every little detail we choose to make [[meaningful]] in the world. 

@@ -4,4 +4,4 @@
 
 “I don’t. This is where I saw you seven [[years]] ago, [[looking]] out at the waters all by yourself.”
 
-“All by myself I was, til last Friday.” She [[leaned]] [[against]] me. “I’m [[glad]] you’re back, Gale Jones.”
+“All by myself I was, [[til]] last Friday.” She [[leaned]] [[against]] me. “I’m [[glad]] you’re back, Gale Jones.”

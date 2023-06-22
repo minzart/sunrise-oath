@@ -1,0 +1,1 @@
+[[Gathering]] [[on]] [[the]] [[laminate]], Bursts [[of]] snow [[in]] woodland [[autumn]] [[late]]. 

@@ -55,7 +55,7 @@ So [[far]], I [[have]] argued that [[one]] can always choose to be [[satisfied]]
 
 Calvinists [[use]] the acronym TULIP to summarize their [[core]] doctrines. I translate (reinterpret) them here for you, for my [[purposes]]:
 
--   Total Depravity: You are boned til you decide to be [[satisfied]]. Absolutely boned.
+-   Total Depravity: You are boned [[til]] you decide to be [[satisfied]]. Absolutely boned.
 -   Unconditional Election: [[There]] is nothing you [[have]] to do to deserve to be [[satisfied]]. You simply [[will]] be [[satisfied]] (by [[conscious]] choice) or you [[will]] not. Predetermined fact.
 -   [[Limited]] Atonement: [[Only]] a finite [[number]] of people are mechanically capable / consciously [[willing]] to make this choice. Some of [[us]] here are probably doomed to [[die]] unhappy. I [[hope]] that is not the [[case]].
 -   Irresistible [[Grace]]: Once you see satisfaction as a choice, you can’t unsee it. You [[will]] always be drawn [[toward]] the [[nature]] of this choice and [[strive]] [[toward]] it. Knowing the choice is almost the whole battle.

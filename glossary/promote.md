@@ -11,7 +11,7 @@ to bring me fame and fortune as a tweet, a pithy declaration?
 
 Which one would land me gigs in Hollywood as a writer, or an actor,
 or if I dare dream big, an executive with a high-rise office
-who picks and chooses what the Jones shall watch, the meta-art
+who picks and chooses what the Jones shall [[watch]], the meta-art
 that I have sought since taking LSD; or show me some deep
 insight (n.): view of the kaleidoscopic world contained?
 

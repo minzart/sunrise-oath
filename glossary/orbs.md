@@ -1,0 +1,1 @@
+Murder mystery where people die off one by one, and it is revealed that they are being killed in [[reverse]] order of how much a character (standin for "God") loves them. The narrator, the final one to die, is the love of the culprit's life. Still, she must die.

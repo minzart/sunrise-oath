@@ -1,0 +1,1 @@
+In the third grade I [[proposed]] an acronym for an action committee and was laughed back to my seat by classmates. The teacher found me endearing.

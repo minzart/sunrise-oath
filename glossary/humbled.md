@@ -1,0 +1,1 @@
+A forest [[glade]] dappled in sunlight

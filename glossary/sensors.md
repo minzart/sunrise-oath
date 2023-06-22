@@ -1,0 +1,1 @@
+[[Hear]], [[and]] [[you]] [[may]] achieve equilibrium [[between]] [[the]] disparate spirits.

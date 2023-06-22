@@ -1,0 +1,1 @@
+I could die right now, and be [[perfectly]] happy knowing that if it happens it was always meant to. I have found my place in history, and in that which I call the universe. Something from beyond spoke to me, and I stopped worrying about what drives me or what defines me. Instead, things are as they are. 

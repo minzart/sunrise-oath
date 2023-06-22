@@ -1,0 +1,1 @@
+[[Humanity]]. [[The]] liars [[of]] [[nature]] [[and]] [[the]] [[nature]] [[of]] liars.

@@ -28,13 +28,13 @@ I [[share]] a meal [[with]] the male elf, a soup [[with]] his fresh hunt. I [[le
 
 "The communion of [[creatures]] [[with]] [[short]], fleeting lives." He looks at [[me]], [[pity]] in his [[eyes]]. "You [[know]] the [[suffering]] of a life that ends too [[soon]]. The compassion of a killer tastes [[sweetest]]."
 
-"[[My]] people [[have]] a saying: [[everyone]] dies, but few people truly [[live]]." I [[let]] him think on it for a [[moment]], [[then]] continue: "[[Human]] sorcerers [[have]] achieved the [[same]] [[magic]] of the elven sages."
+"[[My]] [[people]] [[have]] a saying: [[everyone]] dies, but few [[people]] truly [[live]]." I [[let]] him think on it for a [[moment]], [[then]] continue: "[[Human]] sorcerers [[have]] achieved the [[same]] [[magic]] of the elven sages."
 
 "Prodigies of [[idle]] [[tricks]] and [[games]]," he says, waving his hand. "[[Magic]] [[is]] but a [[game]] for [[children]]." Demonstrating, he snaps his fingers, and the fire goes out. In the next [[moment]], it burns as [[if]] nothing [[ever]] [[happened]].
 
 "[[Have]] sentiments [[changed]]?" I [[ask]]. "The humans [[have]] oft complained of cleaning up [[after]] the elves."
 
-"[[My]] people [[have]] grown accustomed to waste and excess," the elf says, and pours himself [[another]] drink. "I [[am]] no [[different]]. So I [[have]] made myself [[alone]] in these [[woods]], away [[from]] the ones who taught [[me]] to [[wait]] for death."
+"[[My]] [[people]] [[have]] grown accustomed to waste and excess," the elf says, and pours himself [[another]] drink. "I [[am]] no [[different]]. So I [[have]] made myself [[alone]] in these [[woods]], away [[from]] the ones who taught [[me]] to [[wait]] for death."
 
 "The [[creatures]] of these [[woods]] do not elude you," I [[say]], as a [[question]].
 
@@ -80,7 +80,7 @@ Changing subjects: "Would [[an]] elven [[woman]] [[find]] [[me]] agreeable?"
 
 "[[Even]] [[better]]," he says. "Brutish. As [[they]] prefer it."
 
-"Fair and lithe [[beyond]] [[imagination]]," I [[say]], repeating the rumors. "And yet, it [[is]] so?"
+"Fair and lithe [[beyond]] [[imagination]]," I [[say]], [[repeating]] the rumors. "And yet, it [[is]] so?"
 
 "The elven maids gossip thus: 'A [[happy]] [[woman]]'s hips [[are]] [[broken]] twice: by the child, but [[first]] [[from]] [[her]] husband.'"
 

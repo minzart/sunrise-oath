@@ -14,7 +14,7 @@ She shook her [[head]]. “Your [[parents]] [[never]] [[told]] you? I’m [[youn
   
 I was confused. “Your birthday’s in January. The [[party]] was, at [[least]].”  
   
-“I skipped a [[year]] of kindergarten,” the [[engineer]] whispered as [[if]] it were a national [[secret]]. “It [[changes]] nothing, but I [[hated]] [[anyone]] in [[our]] grade [[finding]] out. People make these [[things]] [[into]] bigger deals [[than]] [[they]] [[are]].”  
+“I skipped a [[year]] of kindergarten,” the [[engineer]] whispered as [[if]] it were a national [[secret]]. “It [[changes]] nothing, but I [[hated]] [[anyone]] in [[our]] grade [[finding]] out. [[People]] make these [[things]] [[into]] bigger deals [[than]] [[they]] [[are]].”  
   
 I [[laughed]]. “Aren’t you [[doing]] the [[same]] [[thing]]?”  
   
@@ -50,7 +50,7 @@ I [[turned]] [[around]] all the way, facing the profile of my [[friend]]’s wif
   
 “[[We]] drove [[each]] [[other]] nuts,” I reminded.  
   
-She shifted [[onto]] her side. I [[could]] scarcely see the Cat I knew in the [[engineer]]’s features, [[save]] for the freckles that [[danced]] on the bridge of her nose. The [[night]] was [[cold]], but her breath on my [[chest]] chilled [[me]] like evening frost. “I was [[mean]] to you, but I liked [[seeing]] you at [[dinner]] parties. My [[parents]] didn’t let [[me]] [[play]] [[with]] [[many]] boys.”  
+She shifted [[onto]] her side. I [[could]] scarcely see the [[Cat]] I knew in the [[engineer]]’s features, [[save]] for the freckles that [[danced]] on the bridge of her nose. The [[night]] was [[cold]], but her breath on my [[chest]] chilled [[me]] like evening frost. “I was [[mean]] to you, but I liked [[seeing]] you at [[dinner]] parties. My [[parents]] didn’t let [[me]] [[play]] [[with]] [[many]] boys.”  
   
 I tried to shuffle away, but the warm polyester [[fabric]] trapped [[me]] [[with]] her. “All this [[time]], I [[thought]] you [[hated]] [[me]]. I was okay [[with]] it.”  
   
@@ -64,6 +64,6 @@ I [[thought]] the [[engineer]] would [[laugh]] politely, or chastise [[me]] [[wi
   
 “I can't stand it,” Catherine sobbed. “God [[created]] you, Gale [[Jones]]. He loves you, too. Don’t [[ever]] [[forget]] [[how]] [[much]] you’re [[loved]].”  
   
-“[[There]], [[there]].” I rocked her back and [[forth]] by the [[shoulder]]. “I’m [[sorry]], Cat. I was [[wrong]].”  
+“[[There]], [[there]].” I rocked her back and [[forth]] by the [[shoulder]]. “I’m [[sorry]], [[Cat]]. I was [[wrong]].”  
   
 Wipe, hiccup, sniff. She smiled, and [[moved]] my hand to her wet [[cheek]]. “It’s [[been]] so [[long]],” she [[said]], and [[soon]] she was asleep.

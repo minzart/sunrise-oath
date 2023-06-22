@@ -11,7 +11,7 @@ Odysseus
   
 Perseus - [[Athena]] / Arachne / Nike  
   
-[[Endymion]] - Hera / Myia / Artemis  
+[[Endymion]] - Hera / Myia / [[Artemis]]  
   
 [[Pygmalion]] - [[Aphrodite]] / Daphne / [[Hestia]]  
   
@@ -20,7 +20,7 @@ Narcissus & Echo
 (Dione is [[Athena]], Hera, and [[Aphrodite]] at once.)
 
 [[Hestia]] Vesta  
-Artemis Diana  
+[[Artemis]] [[Diana]]  
 [[Aphrodite]]  
   
 Eos, [[goddess]] of the dawn.

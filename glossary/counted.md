@@ -1,0 +1,1 @@
+[[I]] [[put]] [[my]] [[hand]] [[on]] [[the]] small [[of]] [[her]] cinched [[waist]], [[feeling]] [[her]] [[soft]] [[skin]] [[through]] [[the]] [[thin]] [[fabric]]. [[When]] [[our]] [[kiss]] ended, [[she]] searched [[my]] [[face]] [[and]] brushed [[my]] hair [[out]] [[of]] [[my]] [[eyes]]. “[[A]] [[holy]] [[kiss]] [[of]] [[charity]]. [[Nothing]] [[more]], okay?”

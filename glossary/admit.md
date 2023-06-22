@@ -11,8 +11,8 @@
 
 
 
-[The [[human]] teaches the elf to tell his [[story]].]
+[The [[human]] [[teaches]] the elf to tell his [[story]].]
 
-[The elf teaches the [[human]] to tell his fact.]
+[The elf [[teaches]] the [[human]] to tell his fact.]
 
 [Elf experiences [[story]] as analogy for the [[first]] [[time]].]

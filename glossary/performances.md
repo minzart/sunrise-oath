@@ -1,0 +1,1 @@
+[[Hesychasm]] [[is]] [[the]] [[search]] [[for]] [[peace]] [[and]] [[quiet]], [[repeating]] [[the]] [[name]] [[of]] [[Christ]] [[as]] [[a]] [[way]] [[to]] [[reach]] [[farther]] [[than]] [[one]] [[can]] [[ever]] [[hope]] [[to]] [[see]] [[in]] [[what]] [[they]] [[call]] [[a]] sober [[life]] [[in]] [[the]] [[world]].

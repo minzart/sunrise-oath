@@ -1,0 +1,1 @@
+Domestic [[scenes]], wandering [[the]] perimeter [[of]] [[my]] visions [[of]] childhood, were conjured by the phonetics of the early days I thought I left behind. Static, still and blurry, are the images of everything I knew to be good and right. I was in a bathtub, being punished with a chain.

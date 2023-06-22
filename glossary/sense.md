@@ -1,0 +1,1 @@
+Animals [[like]] [[to]] crawl [[on]] [[four]] [[legs]]. Meanwhile, [[humans]] [[may]] walk [[on]] [[two]], keeping [[balance]] [[with]] [[the]] [[sensors]] [[in]] [[one]]'s [[ears]].

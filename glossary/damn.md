@@ -1,0 +1,1 @@
+Ever since I made the breakthrough that let me call myself a Christian, the world has been so much more generous to me. For that I am eternally thankful. Grace really is always there, waiting for the [[believer]] to behold it. 

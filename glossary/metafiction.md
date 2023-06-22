@@ -1,4 +1,4 @@
-DIANA
+[[DIANA]]
 [[Once]] [[upon]] [[a]] [[time]], [[there]] [[was]] [[a]] [[giant]] . . . 
 
 ELIZABETH

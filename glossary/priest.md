@@ -1,0 +1,9 @@
+Clement is told by Brother Edon to retrieve a rock from the mountainside to finish the wall. He goes, and finds both a rock and a beekeeper's mask. He returns, and pretends to be possessed by a demon. He then runs off and goes to the riverside, where he looks at a tower on the other side of the river. He follows a bee to a labyrinth in the south, where he finds a grave for a Brother Jobo, beloved of Brother Abajin, and eats the berries in the graveyard. Upon returning to the Ivy Cloister, Clement is reprimanded by Brother Maseh, then attacks the older man and injures him with surprising strength. Clement notices that he is stronger than before, and that he thirsts for the trickle of blood running down Maseh's forehead.
+
+Clement goes to Brother Eden, who tells him that the berries in the graveyard fulfilled the prophecy. Back at the labyrinth, Brother Edon is heartbroken by the sin of his brother. Clement runs away, and spies on the Ivy Cloister at night. He sees a man in a beekeeping outfit, and follows him to his secret village hideout in the mountains. There, he is forcefed honey by the man and made to work on the next day, his sixteenth birthday and intended coming of age.
+
+Having finished his business with the beekeeper, Clement goes north to Bridgetown, hoping to cross and head to the Black Tower. He dines and dashes at a local tavern, then follows the west edge of the river to the Black Tower, where he learns that the Town of Tulan is terrorized by a vampire in the tower whose retainers leave in the morning and re-enter at night. Clement offers to slay the vampire, and sucks the blood of the townsfolk to gain power.
+
+He crosses the moat by jumping, but is caught by retainers exiting the tower at dawn. They chase him around the tower, and he enters into the empty garrison complex. As the soldiers try to barge in to find him, he hides in the [[straw]] in the stables, where two dead adventurers lie on the floor next to him.
+
+

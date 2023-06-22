@@ -43,7 +43,7 @@ Midpoint [[of]] [[day]], [[sun]] [[time]].
 
 #### [[Set]]
 
-[[Sessions]] [[must]] [[pause]] [[at]] [[night]] til [[rise]].
+[[Sessions]] [[must]] [[pause]] [[at]] [[night]] [[til]] [[rise]].
 
 #### [[Night]]
 

@@ -1,0 +1,3 @@
+The shadows frightened me for I was in a room I knew not, a small apartment unfamiliar til long months had passed and dear friends had departed. Perhaps that is what it means to be settled: to have encountered something terrible somewhere and so to be tied there forever.  
+  
+Happy times are [[fleeting]] as [[vacation]] journals jotted in a pocketbook, and meanwhile one needs not try to remember all those sorrows and missteps along the way. They cry in the night and walk with me along the streets as I smoke my evening cigarettes on the dark sleepless walks I take when nothing can be written, when the masterpiece I sought to type out on my computer was congested (constipated?) in my knotted being.

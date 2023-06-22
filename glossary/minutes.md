@@ -1,0 +1,1 @@
+Inner awe [[is]] [[for]] [[a]] [[fleeting]] [[lifetime]].

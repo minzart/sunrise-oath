@@ -1,0 +1,1 @@
+[[What]] [[a]] [[deep]] [[love]], [[and]] [[how]] little [[sense]] [[it]] makes [[that]] [[it]] [[should]] exist [[for]] [[us]] [[at]] [[all]].

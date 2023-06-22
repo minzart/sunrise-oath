@@ -1,0 +1,1 @@
+Then I was a proud [[robber]], an arrogant rogue, a wandering knave.  

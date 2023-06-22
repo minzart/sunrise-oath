@@ -1,0 +1,1 @@
+I had a dream. Collis sat in my lap, and asked me to touch her face. I did, and she began sucking on my thumb. When I woke up, my underwear was soiled in [[alkaline]]. 

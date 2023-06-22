@@ -1,0 +1,1 @@
+And maybe that answers much more than is comfortable for a “real” (debatable) person to hear about, but my subagent is pleased with that answer and calls up another one to join our talk. Now there are three voices, one which is naturally speaking here right now and two who are operating in the [[background]], bickering about what the foreground voice should type. 

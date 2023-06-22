@@ -1,0 +1,1 @@
+[[Theoria]], [[illumination]], is thought and God in itself.

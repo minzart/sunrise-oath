@@ -1,1 +1,1 @@
-[[On]] [[a]] [[card]], [[an]] [[empty]] [[tile]] presents [[a]] [[unique]] [[opportunity]], [[for]] [[it]] grants [[the]] freedom to take an action of either color. It serves as a blank canvas, ready to be filled with choice and possibility. 
+[[On]] [[a]] [[card]], [[an]] [[empty]] [[tile]] presents [[a]] [[unique]] [[opportunity]], [[for]] [[it]] grants [[the]] freedom to take an action of either color. It serves as a blank [[canvas]], ready to be filled with choice and possibility. 

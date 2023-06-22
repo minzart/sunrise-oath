@@ -22,7 +22,7 @@ I [[saw]] she was right. “Let’s [[start]] [[from]] [[there]]. What’s your 
   
 As her [[silhouette]] [[left]] [[me]] behind, I grew anxious. “[[Wait]]!” I cried as she stepped out. “[[Without]] a name, what part of you belongs to [[me]]?”  
   
-Her hand rested on the handle. “Tomorrow, you’ll [[know]] everything about [[me]]. Til then, think of [[me]] as a [[beautiful]] stranger, as . . .” She hid her blushing [[face]]. “. . . Roslyn.”  
+Her hand rested on the handle. “Tomorrow, you’ll [[know]] everything about [[me]]. [[Til]] then, think of [[me]] as a [[beautiful]] stranger, as . . .” She hid her blushing [[face]]. “. . . Roslyn.”  
   
 [[After]] Roslyn shut the door behind her, I [[turned]] to the woman [[sitting]] on my [[bed]], the sunrise [[companion]] in the [[pale]] [[blue]] dress. “I [[thought]] I’d never see you [[again]],” I [[said]], and touched her [[false]] [[cheek]], [[felt]] her [[imaginary]] warmth. “What [[shall]] I do with you?”  
   

@@ -1,0 +1,1 @@
+[[I]] [[am]] [[both]] [[rose]] [[and]] [[apple]]. [[I]] offer [[everyone]] [[a]] glass [[eye]] [[and]] [[a]] [[real]] [[eye]]. Those [[who]] see my glass eye see it because they dream; those who see my real eye do so because they can truly see. I am life, the Apple-Rose of the Bird of Paradise. I am the lie in every truth, the truth of all fiction.

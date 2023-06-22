@@ -1,0 +1,1 @@
+I fell in love with a ghost. Meeting Dawn again at the Old Port was real as anything, maybe more. Conversations in the early hours, our one date on that clear summer day, the dance that consummated my yearning — all treasured memories, delusions, deviations.

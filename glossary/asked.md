@@ -1,0 +1,1 @@
+[[God]] [[shall]] [[not]] accommodate [[your]] silly [[values]]. [[Live]] [[in]] him, or perish.

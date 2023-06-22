@@ -1,0 +1,1 @@
+The ones who understood him best were those he [[denied]] all along.

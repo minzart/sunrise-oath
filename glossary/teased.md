@@ -1,0 +1,1 @@
+Standing a few paces behind, I watched her meet the burst of rays from the horizon with what must have been the most perfect of smiles. Those eyes, unseen from the place in the [[shadows]] from which I smoked a morning cigarette, found something I could not. What was there to know?

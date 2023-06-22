@@ -1,0 +1,1 @@
+I had a fear of losing the fire in my heart when things are truly hard, but now I almost cannot remember how it was to live as a sufferer. Glory be to my creator.

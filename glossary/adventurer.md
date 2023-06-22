@@ -26,7 +26,7 @@ She had been walking for what felt like hours, her feet aching and her body exha
 
 As she pushed through the underbrush, [[Lena]] caught a [[glimpse]] of movement in the corner of her eye. She [[turned]] to look, but there was nothing there. Just the rustle of [[leaves]] and the soft sigh of the wind. [[Lena]] shook her head, trying to clear her mind, but the sense of unease lingered.
 
-Too late, she heard it. A low growl, deep and menacing, coming [[from]] somewhere in the darkness [[ahead]]. [[Lena]]'s heart skipped a beat, and she froze in her tracks. She listened, straining to [[hear]] any other [[sound]], but there was nothing. Just the growling, getting louder and closer.
+Too late, she [[heard]] it. A low growl, deep and menacing, coming [[from]] somewhere in the darkness [[ahead]]. [[Lena]]'s heart skipped a beat, and she froze in her tracks. She listened, straining to [[hear]] any other [[sound]], but there was nothing. Just the growling, getting louder and closer.
 
 [[Lena]] knew she had to move, to run, to do something. She took a step forward, and then another, her breath coming in short gasps. The growling grew louder, and the hot breath of the beast blasted her neck. She [[turned]] to face it, her hands [[raised]] in defense, but all she saw was a blur of fur and teeth.
 

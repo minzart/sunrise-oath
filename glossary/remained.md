@@ -1,0 +1,1 @@
+Closing my eyes with a [[mask]] on my face, I warped forward in time as expected. A bit after seven-thirty on New Year’s Day I rose out of bed and smiled out the window of that hospital room. After six long months, the first [[morning]] of the year 2000 was here at last.

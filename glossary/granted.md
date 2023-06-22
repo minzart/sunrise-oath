@@ -1,0 +1,1 @@
+[[The]] [[empty]] [[tomb]] [[of]] [[Christ]], [[the]] [[lost]] [[cenotaph]] [[of]] [[the]] [[resurrection]].

@@ -1,0 +1,1 @@
+She thought about my question long, and answered me in rising song, a voice that brought to life the thought I by my [[greatest]] efforts bought. It could be I have read her wrong, for all my reading never taught old wisdoms men have long forgot.

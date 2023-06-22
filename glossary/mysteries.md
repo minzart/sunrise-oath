@@ -1,0 +1,1 @@
+Christianity is special to me as perhaps the best way for those in places similar to I to receive the critical insight leading us to God, yet I believe many others have [[surely]] reached the divine by other paths and done their [[share]] of [[good]] works for the glory of the [[kingdom]]. 

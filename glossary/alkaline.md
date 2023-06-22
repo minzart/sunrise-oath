@@ -1,0 +1,1 @@
+Is fantasy fair game if not in lust? I wish to analyze the holy beauty of every form, not to take it as an idol but to appreciate the artistry in its design.

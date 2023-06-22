@@ -1,0 +1,1 @@
+[[There]] [[is]] [[no]] [[punishment]] [[in]] [[this]] [[world]]. [[Everything]] [[is]] [[to]] direct [[us]] [[toward]] [[God]]. [[All]] consequence [[is]] [[of]] [[the]] [[life]] [[after]], [[not]] [[that]] [[which]] [[we]] [[know]].

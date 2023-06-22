@@ -1,0 +1,1 @@
+Gale saw in his mother’s paintings the reflection of him he never wished to know: the child of a woman, granted by God.

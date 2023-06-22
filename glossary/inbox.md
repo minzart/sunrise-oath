@@ -17,7 +17,7 @@ Passing Tones in Parallel
 A letter [[from]] [[Ancra]] to [[Eroica]], a violinist's daughter.  
 - - -
 Accented Neighbors  
-Amy (Emile Schreiner) is Gale [[Jones]]. Amy (playwright) is fictional version of Selene Bauman, [[older]] [[sister]] of Diana [[Liu]] who [[left]] her family behind for art.  
+Amy (Emile Schreiner) is Gale [[Jones]]. Amy (playwright) is fictional version of Selene Bauman, [[older]] [[sister]] of [[Diana]] [[Liu]] who [[left]] her family behind for art.  
 - - -
 [[Pygmalion]] / Cupid / Aeneas / Paris  
 [[Endymion]] / Jason / Achilles  

@@ -1,0 +1,1 @@
+Daggers [[and]] [[wealth]] [[have]] [[taken]] [[us]] [[from]] [[the]] [[paradise]] [[we]] had [[from]] [[the]] [[start]]. [[When]] [[shall]] [[we]] [[go]] [[back]] [[and]] enjoy [[our]] homecoming?

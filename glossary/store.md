@@ -1,0 +1,1 @@
+[[The]] takeaway [[from]] [[the]] Holocaust [[is]] [[not]] six million. [[It]] [[is]] [[people]], [[living]] [[humans]] ripped [[away]] [[from]] [[the]] [[world]].

@@ -1,0 +1,1 @@
+Often I think to say something, and it comes out as a song, the revelation of tone and rhythm in the cries of [[children]]. How we [[plead]] to God from the bars of the crib is how we mark the measures of our lives. 歌言，各眼。

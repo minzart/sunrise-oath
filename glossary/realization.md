@@ -1,1 +1,1 @@
-For now, this is all I have to say. I want to [[watch]] anime, Vinland Saga if you must know. I was called to [[write]] til I felt the [[call]] to stop, and for now this is [[where]] I leave things off. May my words tell you what I meant them to.
+For now, this is all I have to say. I want to [[watch]] anime, Vinland Saga if you must know. I was [[called]] to [[write]] [[til]] I felt the [[call]] to stop, and for now this is [[where]] I leave things off. May my words tell you what I meant them to.

@@ -1,4 +1,4 @@
-“I [[leave]] to buy this host of dictionary, [[now]] [[we]] are fucked.”
+“I [[leave]] to buy this [[host]] of dictionary, [[now]] [[we]] are fucked.”
 
 “It’s ‘this fucking dictionary’. Also, [[watch]] your [[language]].”
 

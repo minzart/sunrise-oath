@@ -2,7 +2,7 @@
 
 [[If]] Twitter is de facto marketplace of [[new]] and fresh ideas, then I [[am]] [[glad]] that Elon [[took]] control. [[From]] using it a lot these past few weeks, I [[feel]] my [[brain]] is working better [[than]] before. The scan of [[words]] in [[English]] on a [[page]] or screen fire neurons I [[forgot]] I [[ever]] [[used]].  
   
-The poasters are my [[favorite]] [[company]], providing controversy, scandal, and revolution in my staid intellectual life. I [[started]] [[reading]] literary magazines this past [[year]], and [[have]] a neoliberal [[esthetic]] LARP atop the anarchist that I [[am]]. To [[know]] the enemy is to see [[victory]], [[maybe]]; to see [[only]] the enemy is to [[know]] [[only]] war. Pleasant [[writing]] is not a luxury, but a [[must]]. The Bird App is a town square, not truly public (see the negative tweets about the CEO that were censored) but better [[than]] anything [[we]] [[have]] or [[ever]] had.  
+The poasters are my [[favorite]] [[company]], providing controversy, scandal, and revolution in my staid intellectual life. I [[started]] [[reading]] literary magazines this past [[year]], and [[have]] a neoliberal [[esthetic]] LARP atop the anarchist that I [[am]]. To [[know]] the [[enemy]] is to see [[victory]], [[maybe]]; to see [[only]] the [[enemy]] is to [[know]] [[only]] war. Pleasant [[writing]] is not a luxury, but a [[must]]. The Bird App is a town square, not truly public (see the negative tweets about the CEO that were censored) but better [[than]] anything [[we]] [[have]] or [[ever]] had.  
   
 Art and [[action]] [[start]] and [[end]] with the [[actual]]. A [[painting]] shows [[existence]] yet itself [[exists]], a loop that [[finds]] its fans with those who finished Gödel, Escher, Bach.  
   

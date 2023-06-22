@@ -33,6 +33,6 @@ A [[campaign]] of [[old]] [[can]] be [[set]] here,
 
 I [[need]] to map [[my]] [[campaign]] to locations on the map. Or [[maybe]] I [[can]] [[keep]] the two [[separate]]. Yeah, [[let]]’s [[do]] that.
 
-At the [[origin]], everything begins. A unit [[is]] a kilometer, at [[least]] til I [[get]] tired of tracking this. (This [[means]] buildings [[shall]], for the [[most]] [[part]], be contained on [[one]] [[tile]].)
+At the [[origin]], everything begins. A unit [[is]] a kilometer, at [[least]] [[til]] I [[get]] tired of tracking this. (This [[means]] buildings [[shall]], for the [[most]] [[part]], be contained on [[one]] [[tile]].)
 
 

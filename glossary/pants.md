@@ -1,0 +1,3 @@
+Sherry [[teased]] [[me]] [[when]] [[we]] [[were]] [[younger]], [[but]] [[in]] [[high]] [[school]] [[when]] [[we]] [[met]] [[each]] [[other]] [[again]] [[at]] [[summer]] school (for extra credit, not remedial), she was so shy. Looking at her outfit, I wondered if she was one of those debate team or international business keeners, and if she was hot in the season's weather. Well, she was hot, but…
+
+We chatted for a bit, and stood by each other in silence for much longer. Maybe if I reached for her, with casual words or a friendly touch, I would have more to say. Alas.

@@ -24,7 +24,7 @@ The man spends his days wandering [[around]] drunk.
 When he is back, he has [[one]]-sided [[conversations]] with the player. 
 
 The bird is in a cage, and tries to [[get]] the player to let it out.
-Once [[released]], it flies away and shows up [[from]] [[time]] to [[time]], til [[one]] [[day]] it [[never]] [[comes]] back. 
+Once [[released]], it flies away and shows up [[from]] [[time]] to [[time]], [[til]] [[one]] [[day]] it [[never]] [[comes]] back. 
 (Random [[flight]] in [[an]] array-simulated [[3D]] [[space]].) 
 
 [[There]] [[will]] be a last [[meeting]] [[between]] the player and the bird. [[They]] [[never]] [[know]] when it [[will]] be, or [[if]] it has [[been]].

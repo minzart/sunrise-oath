@@ -1,0 +1,1 @@
+In the many years to come, I would remain a daydreamer, a specter slipping into the invisible cracks in the here and now, wander in a fantasy land of my own making, laugh and cry in earnest. What [[separates]] the real and the fake but our own self-importance?

@@ -1,0 +1,1 @@
+Red plants on the other side of the [[reflection]], [[framing]] my face with ghostly petals through glaring illuminated glass.

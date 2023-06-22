@@ -3,5 +3,6 @@
   "enabledCssSnippets": [
     "link-no-underline"
   ],
-  "baseFontSize": 14
+  "baseFontSize": 14,
+  "theme": "obsidian"
 }

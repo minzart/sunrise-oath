@@ -1,0 +1,1 @@
+[[Intrinsic]] [[in]] [[a]] [[word]] [[is]] [[the]] [[free]] [[will]] of the agent. Pleasure, the blemish of the sinner, the perfection of the saved.

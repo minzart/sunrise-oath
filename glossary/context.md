@@ -1,1 +1,1 @@
-I was always a [[teacher]]'s [[pet]], and so was called to respond to the professor of the [[impromptu]] lecture. “The viewer is an artist,” I said. “They too create a world, a [[practiced]] fiction.”
+I was always a [[teacher]]'s [[pet]], and so was [[called]] to respond to the professor of the [[impromptu]] lecture. “The viewer is an artist,” I said. “They too create a world, a [[practiced]] fiction.”

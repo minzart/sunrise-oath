@@ -1,0 +1,1 @@
+Le Poids du monde, la [[largesse]] du sujet.

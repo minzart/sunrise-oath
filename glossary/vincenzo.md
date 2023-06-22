@@ -1,0 +1,1 @@
+[[She]] knew before I did that we would not meet in my room again. She dusted off the powdery bird shit off her shoulders, adjusted her glasses, and [[pleaded]] once more in English. "Gale, please."

@@ -1,0 +1,3 @@
+[[Take]] [[up]] [[your]] seat [[on]] [[a]] [[high]] [[place]] [[and]] [[watch]], [[if]] [[only]] [[you]] [[know]] [[how]], [[and]] [[then]] [[you]] [[will]] [[see]] [[in]] [[what]] manner, [[when]], whence, [[how]] [[many]] [[and]] [[what]] [[kind]] [[of]] thieves [[come]] [[to]] [[enter]] [[and]] steal [[your]] clusters [[of]] grapes. [[When]] [[the]] watchman grows weary, [[he]] stands [[up]] [[and]] prays; [[and]] [[then]] [[he]] sits [[down]] [[again]] [[and]] courageously [[takes]] [[up]] [[his]] former task.
+
+[[Called]] [[to]] [[write]].

@@ -1,0 +1,1 @@
+When one of the first Caliphs, Omar b. Al-Khattab, was asked if chess were lawful he replied, “There is nothing wrong in it; it has to do with war.”

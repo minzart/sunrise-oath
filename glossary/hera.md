@@ -11,7 +11,7 @@ He [[became]] associated [[with]] Gale [[Jones]] by Selene's intervention and Ca
 
 
   
-That [[night]], I kept [[Louise]] up til [[morning]].  
+That [[night]], I kept [[Louise]] up [[til]] [[morning]].  
   
 Catherine and I [[saw]] [[each]] [[other]] for lunch [[every]] [[day]]. She [[came]] over and cooked for [[me]] and [[Louise]]. The [[first]] [[time]] [[Louise]] canceled, Catherine [[called]] [[me]] and asked: "[[Should]] [[we]] cancel?"  
 I [[thought]] about it. "No."  
@@ -30,7 +30,7 @@ I [[hung]] the beeping [[line]] and threw the phone [[against]] the wall. Then I
   
   
   
-In the Bible, Artemis / Diana was made [[into]] a [[souvenir]] figurine at Ephesus, where her [[temple]] was. See: mission of Paul the Apostle  
+In the Bible, [[Artemis]] / [[Diana]] was made [[into]] a [[souvenir]] figurine at Ephesus, where her [[temple]] was. See: mission of Paul the Apostle  
   
 [[First]] exoplanet discovered in [[1992]]  
   

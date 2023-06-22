@@ -1,1 +1,1 @@
-[[All]] [[was]] [[mine]] [[and]] [[all]] [[was]] [[yours]]. [[I]] [[was]] [[yours]] [[and]] [[you]] were [[mine]]. [[How]] [[could]] [[I]] [[have]] [[let]] [[you]] go?
+[[All]] [[was]] [[mine]] [[and]] [[all]] [[was]] [[yours]]. [[I]] [[was]] [[yours]] [[and]] [[you]] [[were]] [[mine]]. [[How]] [[could]] [[I]] [[have]] [[let]] [[you]] [[go]]?

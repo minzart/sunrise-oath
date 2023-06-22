@@ -3,7 +3,7 @@ In that slight startle [[from]] his contemplation —
 'Tis said (for I'll not answer above [[ground]]
 For any sage's creed or calculation) —
 A mode of proving that the Earth [[turned]] round
-In a [[most]] natural whirl, called “gravitation“;
+In a [[most]] natural whirl, [[called]] “gravitation“;
 And this is the sole mortal who could grapple,
 Since Adam — with a fall — or with an apple.
 

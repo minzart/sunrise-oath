@@ -1,4 +1,4 @@
-[[Splotch]] [[of]] [[red]] [[on]] a canvas, straddling the horizon
+[[Splotch]] [[of]] [[red]] [[on]] a [[canvas]], straddling the horizon
 Stretching left to right within the wood frame
 (Ebony, from a tree grown by the museum)
 Taking up its space and staying in its proper place

@@ -1,4 +1,4 @@
-Going [[down]] [[the]] stairs [[leading]] [[into]] [[Pin]] [[Up]], [[I]] covered [[my]] ears [[and]] [[went]] [[to]] [[the]] [[counter]], [[where]] [[a]] pretty [[girl]] [[was]] tending [[the]] register. “[[It]]’s loud [[in]] [[here]],” I [[said]], raising [[my]] voice for the [[first]] [[time]] in ages.
+Going [[down]] [[the]] stairs [[leading]] [[into]] [[Pin]] [[Up]], [[I]] covered [[my]] [[ears]] [[and]] [[went]] [[to]] [[the]] [[counter]], [[where]] [[a]] pretty [[girl]] [[was]] tending [[the]] register. “[[It]]’s loud [[in]] [[here]],” I [[said]], raising [[my]] voice for the [[first]] [[time]] in ages.
 
 “[[First]] [[time]] here?” [[she]] [[said]] [[with]] a giggle. “I love this [[song]]. ‘99 Red Balloons’.”
 

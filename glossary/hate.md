@@ -1,0 +1,1 @@
+Camping [[with]] [[my]] [[first]] [[girlfriend]], [[watching]] [[her]] [[dream]] [[of]] [[music]] [[and]] [[art]] [[and]] lovers [[never]] [[meant]] [[for]] [[me]] [[to]] [[know]], [[I]] [[let]] [[myself]] [[think]] of the countless stories, false and real, to be told in the years and decades hence.

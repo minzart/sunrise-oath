@@ -1,0 +1,1 @@
+Randomize [[rival]] and bosses in the beginning. Let players adjust. 

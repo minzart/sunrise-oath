@@ -8,7 +8,7 @@ that one is right to say nothing is alright, no one shall be spared.
 Lingering overlaps the milestones, unfolding anniversaries and holy days.
 Generation of new information, gathering of mystic intuitions.
 
-Intractable are problems, til the magic of the professional lying class—
+Intractable are problems, [[til]] the magic of the professional lying class—
 I once thought they were useless, back when I thought humans made
 their own destiny and any modicum of (common) sense—kicks in on cue, leading
 the People into a frenzy, and inspired Crusade into the great unknown.

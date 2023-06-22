@@ -1,0 +1,1 @@
+NEVER BE AFRAID OF ANY OF IT. It has already happened. If you are meant to die tomorrow, or in an hour, or soon as you reach the end of this post (and you will die, believe it or not—you will understand once you reach there), then even your [[reaction]] to the revelation has [[factored]] into the question. (See Newcomb's problem if you like game / decision theory.) 

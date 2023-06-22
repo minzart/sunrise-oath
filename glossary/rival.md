@@ -1,0 +1,1 @@
+[[What]] [[a]] [[harsh]] [[narrative]], [[that]] [[man]] brings [[down]] [[woman]], [[that]] [[white]] strikes [[black]], [[that]] [[left]] [[struggles]] [[against]] [[right]].
